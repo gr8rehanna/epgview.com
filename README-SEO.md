@@ -33,43 +33,43 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Premier League
 - Man City vs Everton
 - NFL Playoff Picture
+- Seahawks
 - Teddy Bridgewater
 - After-Christmas Sales
 - Manmohan Singh
 - Wolves vs Man United
+- Ore
 - Chelsea
-- Tornado Watch
+- Liverpool vs Leicester City
 - Jimmy Butler
+- China stealth fighter jet
 - Todd McLellan
 - NFL
+- Chiefs vs Steelers
 - Ravens vs Texans
-- NBA
+- Merry Christmas
 - Lakers
 - Nosferatu
-- Kansas City Chiefs
-- Squid Game season 2
-- Plane crash
-- Hudson Meek
 - Premier League
 - Man City vs Everton
-- Currys
 - Wolves vs Man United
+- Currys
 - Zara
 - Squid Game Season 2
 - Chelsea vs Fulham
 - Newcastle vs Aston Villa
-- Boxing Day
-- Nottm Forest vs Tottenham
 - Chelsea
 - Rangers
-- Southampton vs West Ham
+- Nottm Forest vs Tottenham
 - Why is it called Boxing Day
+- Boxing Day
+- Southampton vs West Ham
 - Hudson Meek
-- Adidas
+- Leeds United
 - Charlotte Tilbury
 - Nosferatu
+- Adidas
 - New Balance
-- Leeds United
 - Australia vs India
 - Manmohan Singh
 - Sam Konstas
@@ -82,14 +82,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICC
 - Premier League
 - Unimech Aerospace IPO GMP
-- Steve smith
+- Steve Smith
 - CA Final Result Nov 2024
+- Wolves vs Man United
 - Manmohan
 - RJ Simran news
 - CA Final Result
-- Babar Azam
 - Senores Pharmaceuticals IPO allotment status
-- Boxing Day
+- Babar Azam
 - epgview
 - best epg
 - epg for iptv
