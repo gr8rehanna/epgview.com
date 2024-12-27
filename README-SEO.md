@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Premier League
 - Man City vs Everton
-- Liverpool
-- Seahawks
-- Warriors
 - Teddy Bridgewater
-- After-Christmas Sales
+- After Christmas sales
 - Manmohan Singh
 - Wolves vs Man United
 - Chelsea
 - China stealth fighter jet
-- Boxing Day sales
 - Jimmy Butler
 - Todd McLellan
-- NFL
 - Chiefs vs Steelers
 - Ravens vs Texans
+- NFL
+- Beyonce
 - Merry Christmas
+- Lakers
 - Nosferatu
 - NBA
+- Squid Game Season 2
+- Kansas City Chiefs
 - Premier League
 - Man City vs Everton
 - Wolves vs Man United
 - Currys
 - Chelsea vs Fulham
+- Squid Game season 2
 - Newcastle vs Aston Villa
-- Squid Game Season 2
 - Zara
-- Rangers
 - Nottm Forest vs Tottenham
+- Outnumbered
 - Leeds United
+- Boxing day
 - Southampton vs West Ham
 - Hudson Meek
+- Rangers
 - Why is it called Boxing Day
 - Nosferatu
-- Charlotte Tilbury
-- Outnumbered
 - Adidas
 - New Balance
 - Celtic
+- RJ Simran news
 - Australia vs India
 - Manmohan Singh
-- IND vs AUS
 - Sam Konstas
 - Pakistan vs South Africa
 - Squid Game Season 2
 - Cricket
 - Zimbabwe vs Afghanistan
 - Man City vs Everton
-- Premier League
+- ICC
 - Unimech Aerospace IPO GMP
 - Steve Smith
 - Wolves vs Man United
-- Manmohan
-- RJ Simran news
 - CA Final Result
 - ICAI CA Final Result Nov 2024
 - Senores Pharmaceuticals IPO allotment status
 - Babar Azam
 - Boxing Day
+- Veer Bal Diwas
+- Baby John Box Office Collection
 - epgview
 - best epg
 - epg for iptv
