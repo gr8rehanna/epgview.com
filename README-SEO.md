@@ -33,8 +33,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Premier League
 - Liverpool
 - Man City vs Everton
+- NFL Playoff Picture
 - Teddy Bridgewater
 - Manmohan Singh
+- Rutgers Football
 - After Christmas sales
 - Ore
 - Chelsea
@@ -42,17 +44,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Boxing day sales
 - Jimmy Butler
 - Todd McLellan
-- Rutgers Football
+- Pittsburgh vs Toledo
 - Chiefs vs Steelers
 - NFL
 - Texans
 - Beyonce
-- Merry Christmas
 - Nosferatu
-- NBA
+- Fabianski
 - Martin Kemp
 - Premier League
-- Man City vs Everton
+- Liverpool vs Leicester City
 - Wolves vs Man United
 - Currys
 - Chelsea vs Fulham
@@ -62,23 +63,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rangers
 - Nottm Forest vs Tottenham
 - Outnumbered
-- Leeds United
 - Boxing day
+- Australia vs India
+- Leeds United
 - Hudson Meek
 - Southampton vs West Ham
-- Why is it called Boxing Day
-- Australia vs India
 - Nosferatu
 - Adidas
 - RJ Simran news
+- Today News
 - Australia vs India
 - Manmohan Singh
-- Pakistan vs South Africa
+- IND vs AUS
 - Sam Konstas
+- Pakistan vs South Africa
 - Squid Game Season 2
 - Zimbabwe vs Afghanistan
 - Man City vs Everton
-- ICC
 - Premier League
 - Unimech Aerospace IPO GMP
 - Steve Smith
@@ -86,7 +87,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICAI CA Final Result Nov 2024
 - Senores Pharmaceuticals IPO allotment status
 - Babar Azam
-- Boxing Day
 - Veer Bal Diwas
 - Chelsea
 - मनमोहन सिंह
