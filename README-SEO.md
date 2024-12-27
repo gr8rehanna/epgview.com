@@ -30,32 +30,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Seahawks vs Bears
 - Premier League
+- Wordle hint
 - Man City vs Everton
 - Teddy Bridgewater
-- Toledo football
 - Warriors
+- Toledo football
 - Manmohan Singh
+- Kansas State football
 - Jimmy Butler
 - OpenAI ChatGPT outage
 - Caleb Williams
 - Stuff Your Kindle Day
 - China stealth fighter jet
-- Kansas State football
 - Chelsea
 - after-Christmas sales
 - Todd McLellan
-- Wordle hint today
 - Boxing Day sales
 - Geno Smith
-- DeSean Jackson
+- after-Christmas sales 2024
+- Elder
 - Fabianski
 - Martin Kemp
 - The Serial Killer's Wife
-- Stuff Your Kindle day 2024
 - Premier League
-- Liverpool vs Leicester City
+- Man City vs Everton
 - Wolves vs Man United
 - Currys
 - Squid Game season 2
@@ -67,6 +66,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Outnumbered
 - Boxing Day
 - Hudson Meek
+- Lottery results
 - Southampton vs West Ham
 - New look
 - Rangers
@@ -82,7 +82,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - DAM Capital Share Price
 - Ratan tata
 - OpenAI ChatGPT outage
-- Breaking news
+- Breaking News
 - Manmohan Singh
 - Australia vs India
 - Sam Konstas
