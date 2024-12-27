@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Seahawks vs Bears
 - Premier League
 - Man City vs Everton
 - Teddy Bridgewater
 - Rutgers football
+- Toledo football
 - Warriors
 - Manmohan Singh
 - China stealth fighter jet
 - Jimmy Butler
 - After Christmas sales
-- Toledo football
 - Caleb Williams
+- Stuff Your Kindle Day
 - Chelsea
 - Todd McLellan
 - Boxing Day sales
 - Geno Smith
 - DeSean Jackson
+- Elder
 - Ravens vs Texans
-- NFL
-- Seahawks vs Bears
-- Beyonce
 - Fabianski
 - Martin Kemp
 - Premier League
-- Liverpool vs Leicester City
+- Man City vs Everton
 - Wolves vs Man United
 - Currys
 - Squid Game season 2
 - Chelsea vs Fulham
-- Newcastle vs Aston Villa
 - Zara
+- Newcastle vs Aston Villa
 - Nottm Forest vs Tottenham
-- Boxing day
 - Outnumbered
-- Australia vs India
 - Hudson Meek
 - Southampton vs West Ham
+- Boxing day
 - Leeds United
 - Rangers
+- Australia vs India
 - Nosferatu
 - Stoke City vs Leeds United
 - West Indies Women vs India Women
 - Rohit Sharma
 - Salman Khan
+- Delhi weather
+- Sikandar
+- Mamata Machinery share price
+- Ratan tata
+- OpenAI ChatGPT outage
 - Manmohan Singh
 - Australia vs India
 - Sam Konstas
-- Cricket
 - Squid Game Season 2
+- ICC
+- Sports
+- Manmohan Singh age
 - Man City vs Everton
 - Premier League
-- Manmohan Singh age
 - Unimech Aerospace IPO GMP
 - CA Final Result
 - SA vs PAK
-- RJ Simran news
-- Babar Azam
-- Senores Pharmaceuticals IPO allotment status
-- TS TET
-- Veer Bal Diwas
-- Chelsea
 - epgview
 - best epg
 - epg for iptv
