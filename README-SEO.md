@@ -32,25 +32,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Oklahoma vs Navy
 - Norwegian Cruise ship man overboard
+- OG Maco
 - Gleyber Torres
+- Navy football
 - Vivek Ramaswamy
 - PHOENIX
-- OG Maco
 - OpenAI ChatGPT outage
-- Navy football
+- CeeDee Lamb
 - Bowl game schedule
+- Seahawks vs Bears
 - Premier League
 - Teddy Bridgewater
-- Man City vs Everton
 - Rutgers football
 - Warriors
 - Liverpool
 - Manmohan Singh
+- Man City
 - Jimmy Butler
 - Toledo football
-- Ore
-- Caleb Williams
 - Keir Starmer
+- Arsenal vs Ipswich Town
 - Callum Turner
 - Gladiator 2
 - Alice through the looking glass
@@ -66,24 +67,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City vs Everton
 - Wolves vs Man United
 - Squid Game season 2
-- Boxing Day sales
 - Liverpool FC
+- Boxing Day sales
 - Newcastle vs Aston Villa
-- Leeds United
 - Rohit Sharma
+- News
 - Salman Khan
 - Delhi Weather
 - Today News
 - Mamata Machinery share price
-- Sikandar
 - NMDC share price
+- Ratan tata
+- Squid Game season 3
 - DAM Capital share price
 - Odisha Police Constable Answer Key
-- Ratan tata
 - OpenAI ChatGPT outage
 - Breaking News
 - Box office collection Pushpa movie
-- Australia vs India
 - Manmohan Singh
 - IND vs AUS
 - Sam Konstas
