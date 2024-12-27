@@ -31,37 +31,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Oklahoma vs Navy
+- Arsenal
 - Norwegian Cruise ship man overboard
 - OG Maco
 - Gleyber Torres
-- Navy football
-- Vivek Ramaswamy
 - PHOENIX
+- Vivek Ramaswamy
 - OpenAI ChatGPT outage
 - CeeDee Lamb
-- Bowl game schedule
-- Seahawks vs Bears
+- Sean Hannity engaged
 - Premier League
 - Teddy Bridgewater
 - Rutgers football
 - Warriors
 - Liverpool
 - Manmohan Singh
+- Callum Turner
 - Man City
-- Jimmy Butler
-- Toledo football
+- Ore
+- Caleb Williams
+- Arsenal
 - Keir Starmer
-- Arsenal vs Ipswich Town
 - Callum Turner
 - Gladiator 2
 - Alice through the looking glass
+- Cat food recall bird flu
 - North Korean South Korea
 - Big
 - Fabianski
 - Beaches
 - Martin Kemp
-- Cat food recall bird flu
-- Stuff Your Kindle day 2024
+- Hook
 - Liverpool vs Leicester City
 - Premier League
 - Man City vs Everton
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Boxing Day sales
 - Newcastle vs Aston Villa
 - Rohit Sharma
+- Virat Kohli
 - News
 - Salman Khan
 - Delhi Weather
-- Today News
 - Mamata Machinery share price
+- Sikandar
 - NMDC share price
 - Ratan tata
 - Squid Game season 3
 - DAM Capital share price
 - Odisha Police Constable Answer Key
+- Annamalai
+- Aqi delhi
 - OpenAI ChatGPT outage
-- Breaking News
 - Box office collection Pushpa movie
+- Breaking News
 - Manmohan Singh
 - IND vs AUS
-- Sam Konstas
-- Squid Game Season 2
-- Cricket
-- Manmohan Singh age
+- India vs Australia
 - epgview
 - best epg
 - epg for iptv
