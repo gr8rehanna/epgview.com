@@ -33,30 +33,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Seahawks vs Bears
 - Premier League
 - Man City vs Everton
+- Toledo football
 - Teddy Bridgewater
 - Rutgers football
-- Toledo football
 - Warriors
 - Manmohan Singh
 - China stealth fighter jet
 - Jimmy Butler
-- After Christmas sales
+- after-Christmas sales
 - Caleb Williams
 - Stuff Your Kindle Day
 - Chelsea
 - Todd McLellan
 - Boxing Day sales
 - Geno Smith
-- DeSean Jackson
 - Elder
 - Ravens vs Texans
+- NFL
 - Fabianski
 - Martin Kemp
+- Stuff Your Kindle day 2024
 - Premier League
 - Man City vs Everton
 - Wolves vs Man United
 - Currys
-- Squid Game season 2
+- Squid Game Season 2
 - Chelsea vs Fulham
 - Zara
 - Newcastle vs Aston Villa
@@ -64,32 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Outnumbered
 - Hudson Meek
 - Southampton vs West Ham
-- Boxing day
+- Boxing Day
 - Leeds United
 - Rangers
 - Australia vs India
 - Nosferatu
-- Stoke City vs Leeds United
 - West Indies Women vs India Women
 - Rohit Sharma
 - Salman Khan
 - Delhi weather
-- Sikandar
 - Mamata Machinery share price
+- Sikandar
 - Ratan tata
 - OpenAI ChatGPT outage
-- Manmohan Singh
+- DAM Capital share price
+- Breaking news
 - Australia vs India
+- Manmohan Singh
+- Pakistan vs South Africa
 - Sam Konstas
 - Squid Game Season 2
-- ICC
-- Sports
 - Manmohan Singh age
 - Man City vs Everton
 - Premier League
+- ICC
 - Unimech Aerospace IPO GMP
-- CA Final Result
-- SA vs PAK
 - epgview
 - best epg
 - epg for iptv
