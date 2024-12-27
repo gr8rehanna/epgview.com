@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Oklahoma vs Navy
 - Arsenal
-- Norwegian Cruise ship man overboard
+- Georgia Tech vs Vanderbilt
 - OG Maco
+- Norwegian cruise ship man overboard
 - Gleyber Torres
-- PHOENIX
+- Phoenix
 - Vivek Ramaswamy
 - OpenAI ChatGPT outage
 - CeeDee Lamb
 - Sean Hannity engaged
+- Seahawks vs Bears
 - Premier League
+- Squid games
 - Teddy Bridgewater
 - Rutgers football
 - Warriors
 - Liverpool
-- Manmohan Singh
 - Callum Turner
-- Man City
-- Ore
-- Caleb Williams
+- Manmohan Singh
 - Arsenal
 - Keir Starmer
 - Callum Turner
@@ -60,6 +60,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Big
 - Fabianski
 - Beaches
+- Beyond Paradise
 - Martin Kemp
 - Hook
 - Liverpool vs Leicester City
@@ -67,29 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City vs Everton
 - Wolves vs Man United
 - Squid Game season 2
-- Liverpool FC
 - Boxing Day sales
-- Newcastle vs Aston Villa
+- Liverpool FC
 - Rohit Sharma
 - Virat Kohli
 - News
-- Salman Khan
 - Delhi Weather
+- Today News
 - Mamata Machinery share price
-- Sikandar
 - NMDC share price
 - Ratan tata
 - Squid Game season 3
 - DAM Capital share price
 - Odisha Police Constable Answer Key
 - Annamalai
-- Aqi delhi
 - OpenAI ChatGPT outage
 - Box office collection Pushpa movie
 - Breaking News
 - Manmohan Singh
 - IND vs AUS
-- India vs Australia
+- Sam Konstas
+- Squid Game Season 2
+- Cricket
 - epgview
 - best epg
 - epg for iptv
