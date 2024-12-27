@@ -30,60 +30,60 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Oklahoma vs Navy
 - Norwegian Cruise ship man overboard
 - Vivek Ramaswamy
 - PHOENIX
+- Gleyber Torres
 - OpenAI ChatGPT outage
 - Bowl game schedule
 - Premier League
 - Teddy Bridgewater
-- Sean Hannity
+- Rutgers football
 - Warriors
 - Liverpool
 - Manmohan Singh
-- Kansas State football
-- Jimmy Butler
 - Man City
+- Jimmy Butler
 - Toledo football
-- Ore
 - Caleb Williams
 - Todd McLellan
-- Boxing Day sales
-- Geno Smith
+- DeSean Jackson
+- Elder
 - Keir Starmer
-- Gladiator 2
 - Callum Turner
+- Gladiator 2
 - Alice through the looking glass
 - Big
 - Fabianski
 - North Korean South Korea
+- Beaches
 - Martin Kemp
 - Cat food recall bird flu
+- Efl championship
 - Stuff Your Kindle day 2024
 - Liverpool vs Leicester City
 - Premier League
 - Man City vs Everton
 - Wolves vs Man United
-- Squid Game season 2
 - Currys
-- Newcastle vs Aston Villa
-- Leeds United
-- Ikea
+- Squid Game season 2
 - Liverpool FC
+- Newcastle vs Aston Villa
 - Rohit Sharma
 - Salman Khan
 - Delhi Weather
+- Today News
 - Mamata Machinery share price
-- RJ Simran news
 - Sikandar
 - NMDC share price
-- Ratan tata
+- Breaking News
 - DAM Capital share price
+- Ratan tata
 - Odisha Police Constable Answer Key
 - OpenAI ChatGPT outage
-- ZIM vs AFG
-- Breaking News
 - Box office collection Pushpa movie
+- NMDC
 - Australia vs India
 - Manmohan Singh
 - IND vs AUS
