@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Premier League
-- Liverpool
 - Man City vs Everton
-- NFL Playoff Picture
 - Teddy Bridgewater
-- Manmohan Singh
+- Warriors
 - Rutgers Football
+- Toledo football
+- Manmohan Singh
 - After Christmas sales
-- Ore
+- Jimmy Butler
+- Wolves vs Man United
 - Chelsea
 - China stealth fighter jet
-- Boxing day sales
-- Jimmy Butler
 - Todd McLellan
-- Pittsburgh vs Toledo
 - Chiefs vs Steelers
 - NFL
 - Texans
+- NFL games today
 - Beyonce
+- Squid Game Season 2
 - Nosferatu
 - Fabianski
 - Martin Kemp
 - Premier League
 - Liverpool vs Leicester City
-- Wolves vs Man United
+- Man City vs Everton
 - Currys
 - Chelsea vs Fulham
 - Squid Game Season 2
 - Newcastle vs Aston Villa
 - Zara
-- Rangers
 - Nottm Forest vs Tottenham
 - Outnumbered
 - Boxing day
-- Australia vs India
-- Leeds United
 - Hudson Meek
 - Southampton vs West Ham
+- Leeds United
+- Rangers
 - Nosferatu
+- Stoke City vs Leeds United
 - Adidas
-- RJ Simran news
 - Today News
-- Australia vs India
-- Manmohan Singh
 - IND vs AUS
-- Sam Konstas
+- Australia vs India
 - Pakistan vs South Africa
+- Sam Konstas
 - Squid Game Season 2
-- Zimbabwe vs Afghanistan
+- Cricket
+- Live Score
+- IND vs AUS Test
 - Man City vs Everton
 - Premier League
 - Unimech Aerospace IPO GMP
-- Steve Smith
-- Wolves vs Man United
+- Manmohan
+- RJ Simran news
 - ICAI CA Final Result Nov 2024
 - Senores Pharmaceuticals IPO allotment status
 - Babar Azam
+- Boxing Day
 - Veer Bal Diwas
 - Chelsea
-- मनमोहन सिंह
 - epgview
 - best epg
 - epg for iptv
