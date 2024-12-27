@@ -35,61 +35,61 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City vs Everton
 - Liverpool
 - Teddy Bridgewater
-- OpenAI ChatGPT outage
 - Warriors
 - Toledo football
 - Manmohan Singh
-- Kansas State football
 - Jimmy Butler
+- after-Christmas sales
+- OpenAI ChatGPT outage
 - Caleb Williams
 - Stuff Your Kindle Day
+- Kansas State football
 - Chelsea
-- after-Christmas sales
 - Todd McLellan
 - Boxing Day sales
 - Geno Smith
-- after-Christmas sales 2024
+- DeSean Jackson
 - Elder
 - Fabianski
+- Match of the Day
+- Callum Turner
 - Martin Kemp
+- Big
 - The Serial Killer's Wife
+- Efl championship
 - Stuff Your Kindle day 2024
 - Premier League
 - Man City vs Everton
 - Wolves vs Man United
 - Currys
-- Squid Game Season 2
+- Squid Game season 2
 - Chelsea vs Fulham
 - Newcastle vs Aston Villa
+- Zara
 - Leeds United
 - Nottm Forest vs Tottenham
 - Outnumbered
 - Boxing Day
-- Hudson Meek
-- Southampton vs West Ham
-- New look
-- Rangers
-- Nosferatu
 - West Indies Women vs India Women
+- Virat Kohli
 - Rohit Sharma
 - Salman Khan
+- News
 - Delhi Weather
-- Weather Delhi
 - Mamata Machinery share price
 - Sikandar
 - NMDC share price
 - DAM Capital share price
 - Ratan tata
 - OpenAI ChatGPT outage
-- Annamalai
 - Breaking news
-- Manmohan Singh
 - Australia vs India
+- Manmohan Singh
 - Sam Konstas
 - Squid Game Season 2
-- Cricket
-- IND vs AUS Test
 - Manmohan Singh age
+- Premier League
+- ऑस्ट्रेलिया बनाम भारत
 - epgview
 - best epg
 - epg for iptv
