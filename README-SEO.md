@@ -34,22 +34,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Premier League
 - Man City vs Everton
 - Teddy Bridgewater
-- Rutgers football
-- OpenAI ChatGPT outage
-- Warriors
 - Toledo football
+- Warriors
 - Manmohan Singh
 - Jimmy Butler
-- after-Christmas sales
+- OpenAI ChatGPT outage
 - Caleb Williams
 - Stuff Your Kindle Day
+- China stealth fighter jet
+- Kansas State football
 - Chelsea
+- after-Christmas sales
 - Todd McLellan
+- Wordle hint today
 - Boxing Day sales
 - Geno Smith
-- China stealth fighter jets
 - DeSean Jackson
-- Elder
 - Fabianski
 - Martin Kemp
 - The Serial Killer's Wife
@@ -60,14 +60,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Currys
 - Squid Game season 2
 - Chelsea vs Fulham
-- Zara
 - Newcastle vs Aston Villa
+- Zara
+- Leeds United
 - Nottm Forest vs Tottenham
 - Outnumbered
+- Boxing Day
 - Hudson Meek
 - Southampton vs West Ham
-- Boxing day
-- Leeds United
 - New look
 - Rangers
 - West Indies Women vs India Women
@@ -87,9 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Australia vs India
 - Sam Konstas
 - Squid Game Season 2
-- News
 - ICC
-- Premier League
+- Manmohan Singh age
+- ऑस्ट्रेलिया बनाम भारत
 - epgview
 - best epg
 - epg for iptv
