@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - OpenAI ChatGPT outage
+- Norwegian Cruise ship man overboard
+- PHOENIX
+- Bowl game schedule
 - Premier League
 - Man City vs Everton
+- Liverpool
 - Teddy Bridgewater
 - Rutgers football
 - Warriors
 - Manmohan Singh
 - Jimmy Butler
 - Toledo football
-- after-Christmas sales
 - Caleb Williams
 - Bowling Green football
 - Chelsea
 - Todd McLellan
-- Wordle hint today
 - Boxing Day sales
 - Geno Smith
 - Elder
-- NFL
-- Seahawks vs Bears
+- Gladiator 2
 - Callum Turner
-- Big
-- Fabianski
-- North Korean South Korea
 - Keir Starmer
+- Fabianski
+- Big
+- North Korean South Korea
 - Martin Kemp
 - Match of the Day
-- Wayne Rooney
 - The Serial Killer's Wife
 - Stuff Your Kindle day 2024
 - Liverpool vs Leicester City
 - Premier League
 - Man City vs Everton
 - Wolves vs Man United
-- Currys
 - Squid Game season 2
+- Currys
 - Newcastle vs Aston Villa
 - Leeds United
-- Chelsea
-- Nottm Forest vs Tottenham
+- IKEA
+- Liverpool FC
 - West Indies Women vs India Women
 - Rohit Sharma
 - Salman Khan
 - Delhi Weather
+- Weather Delhi
 - Mamata Machinery share price
 - Sikandar
 - NMDC share price
 - DAM Capital share price
 - Ratan tata
 - Annamalai
+- ZIM vs AFG
 - OpenAI ChatGPT outage
-- Breaking News
 - Odisha Police Constable Answer Key
+- Breaking News
 - NMDC
 - Australia vs India
 - Manmohan Singh
+- IND vs AUS
 - Sam Konstas
-- Squid Game Season 2
-- Cricket
-- Aus vs Ind
 - epgview
 - best epg
 - epg for iptv
