@@ -32,8 +32,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Suns
 - Dayle Haddon
-- Kyle McCord
 - Corbin Burnes
+- Kyle McCord
 - Mega Millions
 - Greg Gumbel
 - Oklahoma vs Navy
@@ -43,46 +43,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Connections hint
 - Syracuse Football
 - OG Maco
-- Vanderbilt football
 - Mike Brown
 - Kessler Syndrome
-- The Batman sequel Tom Cruise
 - Celtics
 - IRS
 - Bryant Park fire
+- Arsenal
+- Gleyber Torres
 - Hershey
 - Darts
 - Jazwell Brown
 - New Zealand Vs Sri Lanka
 - Nitish Kumar Reddy
+- Trent Alexander-Arnold
 - Arsenal vs Ipswich Town
 - Arsenal
 - Keir Starmer
 - Brighton vs Brentford
 - Callum Turner
 - Squid Game season 3
-- Gladiator 2
 - Peter Wright
-- Cat food recall bird flu
 - Beyond Paradise
 - North Korean South Korea
 - Big
 - Smart meter
 - Beaches
+- Cat food recall bird flu
 - Gerwyn Price
 - Nitish Kumar Reddy
-- New Zealand Vs Sri Lanka
+- New Zealand vs Sri Lanka
 - Rishabh Pant
 - Arsenal
 - Jaipur Weather
 - Rohit Sharma
 - Virat Kohli
-- News
+- Rahmat Shah
 - Delhi weather
-- Today news
-- Mamata Machinery share price
 - Ratan Tata
+- Today news
 - Box office collection Pushpa movie
+- News today
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
