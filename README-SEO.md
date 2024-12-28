@@ -30,32 +30,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Dayle Haddon
 - Mega Millions
 - Greg Gumbel
 - Oklahoma vs Navy
 - Vanderbilt football
+- USC football
 - Arkansas football
 - Connections hint
 - Syracuse Football
 - OG Maco
-- Texas A&M football
 - Mike Brown
 - Kessler Syndrome
-- Celtics
 - The Batman sequel Tom Cruise
+- Celtics
+- Mavericks vs Suns
 - IRS
 - Arsenal
 - Bryant Park fire
-- Gleyber Torres
 - Norwegian Cruise ship man overboard
-- Robert Brooks
-- Phoenix
+- Gleyber Torres
+- Darts
+- Hershey
 - Arsenal vs Ipswich Town
 - Keir Starmer
 - Brighton vs Brentford
-- Darts
 - Callum Turner
 - Squid Game season 3
+- Peter Wright
 - Gladiator 2
 - Cat food recall bird flu
 - Beyond Paradise
@@ -68,28 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hook
 - Liverpool vs Leicester City
 - Premier League
-- Man City vs Everton
-- Boxing Day sales
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
+- Rishabh Pant
 - Arsenal
 - Jaipur Weather
 - Rohit Sharma
 - Virat Kohli
 - News
-- Delhi weather
+- Delhi Weather
 - Mamata Machinery share price
 - Ratan Tata
-- Squid Game Season 3
 - NMDC share price
 - Liverpool
 - Box office collection Pushpa Movie
+- AQI Delhi
 - Manmohan Singh
 - Squid Game Season 2
 - Manmohan Singh age
 - Steve Smith
 - Corbin Bosch
-- Rishabh Pant
 - epgview
 - best epg
 - epg for iptv
