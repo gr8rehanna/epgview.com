@@ -33,30 +33,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mega Millions
 - Greg Gumbel
 - Oklahoma vs Navy
-- Vanderbilt football
-- Arkansas football
+- Georgia Tech vs Vanderbilt
+- USC football
 - Connections hint
-- Texas A&M football
+- Texas Tech football
 - Syracuse Football
 - OG Maco
+- Vanderbilt football
 - Mike Brown
 - Kessler Syndrome
-- The Batman sequel Tom Cruise
+- Arkansas football
 - Mavericks vs Suns
+- The Batman sequel Tom Cruise
 - Celtics
-- Vivek Ramaswamy
 - IRS
 - Bryant Park fire
 - Arsenal
 - Gleyber Torres
-- Norwegian Cruise ship man overboard
+- Darts
 - Hershey
+- Nitish Kumar Reddy
 - Arsenal vs Ipswich Town
 - Arsenal
 - Keir Starmer
 - Brighton vs Brentford
-- Darts
 - Callum Turner
+- Peter Wright
 - Squid Game season 3
 - Gladiator 2
 - Cat food recall bird flu
@@ -68,27 +70,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Substance
 - Hook
 - Liverpool vs Leicester City
-- Premier League
-- Man City vs Everton
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
-- Arsenal
-- Jaipur Weather
-- Bihar news
 - Rohit Sharma
 - Virat Kohli
 - News
 - Delhi weather
 - Mamata Machinery share price
 - Ratan Tata
+- Today News
 - NMDC share price
+- News Today
 - Liverpool
 - Modi
-- Box office collection Pushpa Movie
+- Box office collection Pushpa movie
 - Manmohan Singh
 - Squid Game Season 2
 - Manmohan Singh age
+- Premier League
 - Steve Smith
 - epgview
 - best epg
