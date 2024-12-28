@@ -35,21 +35,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Oklahoma vs Navy
 - Vanderbilt football
 - Arkansas football
+- Connections hint
 - Syracuse Football
 - OG Maco
-- Mike Brown
 - Texas A&M football
+- Mike Brown
 - Kessler Syndrome
 - Celtics
-- Vivek Ramaswamy
 - The Batman sequel Tom Cruise
 - IRS
 - Arsenal
 - Bryant Park fire
-- Norwegian Cruise ship man overboard
 - Gleyber Torres
+- Norwegian Cruise ship man overboard
+- Robert Brooks
 - Phoenix
-- Dua Lipa
 - Arsenal vs Ipswich Town
 - Keir Starmer
 - Brighton vs Brentford
@@ -71,14 +71,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City vs Everton
 - Boxing Day sales
 - Nitish Kumar Reddy
+- New Zealand vs Sri Lanka
 - Arsenal
 - Jaipur Weather
 - Rohit Sharma
 - Virat Kohli
 - News
-- Delhi Weather
+- Delhi weather
 - Mamata Machinery share price
 - Ratan Tata
+- Squid Game Season 3
 - NMDC share price
 - Liverpool
 - Box office collection Pushpa Movie
@@ -86,10 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Squid Game Season 2
 - Manmohan Singh age
 - Steve Smith
+- Corbin Bosch
 - Rishabh Pant
-- Unimech Aerospace IPO allotment date
-- Naseem Shah
-- Baby John
 - epgview
 - best epg
 - epg for iptv
