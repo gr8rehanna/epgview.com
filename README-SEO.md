@@ -30,32 +30,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Chargers vs Patriots
 - Colorado football
+- Bengals
 - Dayle Haddon
-- Patriots
-- Nuggets
-- Suns
 - Nebraska Football
-- Corbin Burnes
-- Marc Blucas
-- Nitish Kumar Reddy
-- Magnus Carlsen
-- Kyle McCord
-- Scottie Scheffler
 - UConn football
+- Nuggets
+- Corbin Burnes
+- Drake Maye
+- Magnus Carlsen
+- Nitish Kumar Reddy
+- Scottie Scheffler
 - Iowa State football
+- Suns
+- Dallas Mavericks
 - Mega Millions
 - Greg Gumbel
 - USC football
 - Arkansas football
-- Georgia Tech vs Vanderbilt
 - Syracuse Football
 - Hershey
 - Darts
-- Nitish Kumar Reddy
 - Trent Alexander-Arnold
+- Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
+- Maggie Smith
 - Magnus Carlsen
+- About time
 - Arsenal vs Ipswich Town
 - Arsenal
 - Keir Starmer
@@ -68,20 +70,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Big
 - Beaches
 - Gerwyn Price
-- Premier League
-- Man City vs Everton
 - Nitish Kumar Reddy
 - New Zealand Vs Sri Lanka
 - Rishabh Pant
 - Arsenal
-- Jaipur Weather
 - Hockey India League
 - Rohit Sharma
 - Virat kohli
 - Rahmat Shah
 - Delhi Weather
 - Ratan Tata
-- Box office collection Pushpa Movie
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Corbin Bosch
 - Rishabh Pant
 - Unimech Aerospace IPO allotment date
+- Baby John
+- Azerbaijan Airlines plane crashes
 - epgview
 - best epg
 - epg for iptv
