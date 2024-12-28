@@ -31,37 +31,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Chargers vs Patriots
-- Colorado football
 - Bengals
-- Dayle Haddon
 - Nebraska Football
+- Colorado football
+- Dayle Haddon
 - UConn football
+- Iowa State football
 - Nuggets
-- Corbin Burnes
 - Drake Maye
+- Corbin Burnes
 - Magnus Carlsen
 - Nitish Kumar Reddy
+- Kyle McCord
 - Scottie Scheffler
-- Iowa State football
 - Suns
 - Dallas Mavericks
 - Mega Millions
 - Greg Gumbel
 - USC football
-- Arkansas football
-- Syracuse Football
+- Georgia Tech vs Vanderbilt
 - Hershey
 - Darts
+- Maggie Smith
 - Trent Alexander-Arnold
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
-- Maggie Smith
 - Magnus Carlsen
 - About time
 - Arsenal vs Ipswich Town
 - Arsenal
-- Keir Starmer
 - Brighton vs Brentford
+- Keir Starmer
 - Callum Turner
 - Squid Game season 3
 - Peter Wright
@@ -71,7 +71,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Beaches
 - Gerwyn Price
 - Nitish Kumar Reddy
-- New Zealand Vs Sri Lanka
+- New Zealand vs Sri Lanka
 - Rishabh Pant
 - Arsenal
 - Hockey India League
