@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Suns
 - Dayle Haddon
+- Kyle McCord
+- Corbin Burnes
 - Mega Millions
 - Greg Gumbel
 - Oklahoma vs Navy
 - USC football
+- Arkansas football
 - Georgia Tech vs Vanderbilt
 - Connections hint
-- Texas Tech football
 - Syracuse Football
 - OG Maco
 - Vanderbilt football
 - Mike Brown
 - Kessler Syndrome
-- Arkansas football
-- Mavericks vs Suns
 - The Batman sequel Tom Cruise
 - Celtics
 - IRS
 - Bryant Park fire
-- Arsenal
 - Hershey
 - Darts
 - Jazwell Brown
@@ -74,16 +74,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New Zealand Vs Sri Lanka
 - Rishabh Pant
 - Arsenal
+- Jaipur Weather
 - Rohit Sharma
 - Virat Kohli
 - News
 - Delhi weather
-- Today News
+- Today news
 - Mamata Machinery share price
 - Ratan Tata
-- NMDC share price
-- Modi
 - Box office collection Pushpa movie
+- Modi
 - Manmohan Singh
 - Squid Game Season 2
 - Manmohan Singh age
