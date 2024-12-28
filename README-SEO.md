@@ -34,8 +34,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mega Millions
 - Greg Gumbel
 - Oklahoma vs Navy
-- Georgia Tech vs Vanderbilt
 - USC football
+- Georgia Tech vs Vanderbilt
 - Connections hint
 - Texas Tech football
 - Syracuse Football
@@ -50,9 +50,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IRS
 - Bryant Park fire
 - Arsenal
-- Darts
 - Hershey
+- Darts
 - Jazwell Brown
+- New Zealand Vs Sri Lanka
 - Nitish Kumar Reddy
 - Arsenal vs Ipswich Town
 - Arsenal
@@ -69,10 +70,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Smart meter
 - Beaches
 - Gerwyn Price
-- Wayne Rooney
 - Nitish Kumar Reddy
-- New Zealand vs Sri Lanka
+- New Zealand Vs Sri Lanka
 - Rishabh Pant
+- Arsenal
 - Rohit Sharma
 - Virat Kohli
 - News
@@ -86,7 +87,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manmohan Singh
 - Squid Game Season 2
 - Manmohan Singh age
-- Premier League
 - Steve Smith
 - Corbin Bosch
 - Rishabh Pant
