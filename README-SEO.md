@@ -31,28 +31,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Greg Gumbel
-- Oklahoma vs Navy
 - Mega Millions drawing
+- Oklahoma vs Navy
 - Vanderbilt football
 - Arkansas football
+- Connections hint
+- Syracuse Football
 - OG Maco
-- Syracuse football
+- Celtics
 - Mike Brown
+- Texas A&M football
 - Kessler Syndrome
+- Vivek Ramaswamy
 - IRS
-- Arsenal
 - The Batman sequel
+- Arsenal
 - Bryant Park fire
 - Norwegian Cruise ship man overboard
 - Gleyber Torres
 - Phoenix
-- Vivek Ramaswamy
-- Dua Lipa
-- Texas A&M football
-- OpenAI ChatGPT outage
-- Jazwell Brown
 - Arsenal vs Ipswich Town
 - Keir Starmer
+- Brighton vs Brentford
 - Darts
 - Callum Turner
 - Squid Game season 3
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - News
 - Delhi Weather
 - Mamata Machinery share price
-- Squid Game season 3
 - NMDC share price
 - Liverpool
-- Modi
-- Annamalai
-- Box office collection Pushpa movie
 - ZIM vs AFG
+- Box office collection Pushpa movie
 - Manmohan Singh
 - Squid Game Season 2
-- Cricket
 - Manmohan Singh age
 - Steve Smith
+- Unimech Aerospace IPO GMP
+- Corbin Bosch
+- Rishabh Pant
+- Naseem Shah
 - epgview
 - best epg
 - epg for iptv
