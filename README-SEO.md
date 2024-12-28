@@ -33,23 +33,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Greg Gumbel
 - Oklahoma vs Navy
 - Vanderbilt football
+- Mega Millions drawing
 - Arkansas football
 - OG Maco
 - Mike Brown
 - IRS
 - Kessler Syndrome
 - Norwegian cruise ship man overboard
+- Bryant Park fire
 - Gleyber Torres
+- Syracuse Football
 - Phoenix
 - Vivek Ramaswamy
-- Syracuse Football
 - Dua Lipa
 - The Batman sequel
-- Bryant Park fire
 - OpenAI ChatGPT outage
-- CeeDee Lamb
 - Sean Hannity engaged
-- Dow Jones stock markets
+- Texas A&M football
+- Jazwell Brown
+- Arsenal vs Ipswich Town
 - Keir Starmer
 - Brighton vs Brentford
 - Darts
@@ -68,28 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hook
 - Liverpool vs Leicester City
 - Premier League
-- Arsenal vs Ipswich Town
-- Man City vs Everton
+- Arsenal
 - Rohit Sharma
 - News
 - Delhi Weather
 - Mamata Machinery share price
-- Today News
 - NMDC share price
-- Liverpool
 - Squid Game season 3
+- Liverpool
 - Annamalai
-- Breaking News
 - Manmohan Singh
-- IND vs AUS
 - Squid Game Season 2
-- Cricket
 - Manmohan Singh age
+- Cricket
 - Steve Smith
 - Virat Kohli
 - Unimech Aerospace IPO GMP
 - Corbin Bosch
 - Rishabh Pant
+- Naseem Shah
+- Baby John
 - epgview
 - best epg
 - epg for iptv
