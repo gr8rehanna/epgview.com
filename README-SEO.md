@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Dayle Haddon
 - Mega Millions
 - Greg Gumbel
 - Oklahoma vs Navy
@@ -49,27 +50,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IRS
 - Bryant Park fire
 - Arsenal
-- Gleyber Torres
 - Darts
 - Hershey
+- Jazwell Brown
 - Nitish Kumar Reddy
 - Arsenal vs Ipswich Town
 - Arsenal
 - Keir Starmer
 - Brighton vs Brentford
 - Callum Turner
-- Peter Wright
 - Squid Game season 3
 - Gladiator 2
+- Peter Wright
 - Cat food recall bird flu
 - Beyond Paradise
 - North Korean South Korea
 - Big
 - Smart meter
 - Beaches
-- The Substance
-- Hook
-- Liverpool vs Leicester City
+- Gerwyn Price
+- Wayne Rooney
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
@@ -77,12 +77,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Virat Kohli
 - News
 - Delhi weather
+- Today News
 - Mamata Machinery share price
 - Ratan Tata
-- Today News
 - NMDC share price
-- News Today
-- Liverpool
 - Modi
 - Box office collection Pushpa movie
 - Manmohan Singh
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manmohan Singh age
 - Premier League
 - Steve Smith
+- Corbin Bosch
+- Rishabh Pant
 - epgview
 - best epg
 - epg for iptv
