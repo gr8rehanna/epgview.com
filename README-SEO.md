@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Mega Millions
 - Greg Gumbel
-- Mega Millions drawing
 - Oklahoma vs Navy
 - Vanderbilt football
 - Arkansas football
-- Connections hint
 - Syracuse Football
 - OG Maco
-- Celtics
 - Mike Brown
 - Texas A&M football
 - Kessler Syndrome
+- Celtics
 - Vivek Ramaswamy
+- The Batman sequel Tom Cruise
 - IRS
-- The Batman sequel
 - Arsenal
 - Bryant Park fire
 - Norwegian Cruise ship man overboard
 - Gleyber Torres
 - Phoenix
+- Dua Lipa
 - Arsenal vs Ipswich Town
 - Keir Starmer
 - Brighton vs Brentford
@@ -64,12 +64,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Smart meter
 - Fabianski
 - Beaches
-- Martin Kemp
 - The Substance
 - Hook
 - Liverpool vs Leicester City
 - Premier League
 - Man City vs Everton
+- Boxing Day sales
 - Nitish Kumar Reddy
 - Arsenal
 - Jaipur Weather
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - News
 - Delhi Weather
 - Mamata Machinery share price
+- Ratan Tata
 - NMDC share price
 - Liverpool
-- ZIM vs AFG
-- Box office collection Pushpa movie
+- Box office collection Pushpa Movie
 - Manmohan Singh
 - Squid Game Season 2
 - Manmohan Singh age
 - Steve Smith
-- Unimech Aerospace IPO GMP
-- Corbin Bosch
 - Rishabh Pant
+- Unimech Aerospace IPO allotment date
 - Naseem Shah
+- Baby John
 - epgview
 - best epg
 - epg for iptv
