@@ -34,9 +34,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bengals
 - Nebraska football
 - Colorado football
+- Iowa State football
 - Dayle Haddon
 - UConn football
-- Iowa State football
+- Broncos game
 - Drake Maye
 - Nuggets
 - Corbin Burnes
@@ -45,17 +46,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Scottie Scheffler
 - Suns
 - Dallas Mavericks
+- Texas A&M
 - Mega Millions
 - Greg Gumbel
 - USC football
-- Georgia Tech vs Vanderbilt
-- Mike Brown
 - Hershey
 - Darts
 - Maggie Smith
 - Trent Alexander-Arnold
+- 2025 extra Bank Holiday
 - Nitish Kumar Reddy
-- DWP State Pension Underpayments
 - Magnus Carlsen
 - Will Smith
 - About time
@@ -66,15 +66,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Squid Game season 3
 - Peter Wright
 - Beyond Paradise
-- North Korean South Korea
 - Big
+- Beaches
 - Gerwyn Price
 - Premier League
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
-- Jaipur Weather
-- Hockey India League
 - Rohit Sharma
 - Virat kohli
 - Rahmat Shah
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Baby John
 - Azerbaijan Airlines plane crashes
 - MT Vasudevan Nair
+- Kazakhstan
+- Sam Konstas
 - epgview
 - best epg
 - epg for iptv
