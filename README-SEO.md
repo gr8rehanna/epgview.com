@@ -30,59 +30,56 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Oklahoma vs Navy
-- Georgia Tech vs Vanderbilt
 - Greg Gumbel
-- IRS
+- Oklahoma vs Navy
+- Vanderbilt Football
+- Arsenal
 - OG Maco
+- IRS
 - Norwegian cruise ship man overboard
+- Mike Brown
 - Gleyber Torres
+- Texas Tech football
 - Phoenix
-- Dua Lipa
 - Vivek Ramaswamy
 - OpenAI ChatGPT outage
 - CeeDee Lamb
-- Sean Hannity engaged
-- Sacramento Kings
 - Bryant Park fire
+- Sean Hannity engaged
 - The Batman sequel
+- Syracuse Football
 - Seahawks vs Bears
 - Premier League
-- Squid games
-- Teddy Bridgewater
+- Arsenal vs Ipswich Town
 - Keir Starmer
+- Brighton vs Brentford
+- Darts
 - Callum Turner
 - Gladiator 2
 - Cat food recall bird flu
 - Beyond Paradise
 - North Korean South Korea
+- Squid Game season 3
 - Big
 - Fabianski
 - Beaches
 - Martin Kemp
+- The Substance
 - Smart meter
-- Peter Wright
-- Gerwyn Price
+- Brentford FC
 - Hook
 - Liverpool vs Leicester City
 - Premier League
-- Man City vs Everton
-- Arsenal vs Ipswich Town
-- Boxing Day sales
-- Wolves vs Man United
 - Rohit Sharma
 - News
-- Delhi Weather
+- Delhi weather
 - Mamata Machinery share price
 - NMDC share price
 - Ratan tata
 - Squid Game season 3
-- DAM Capital share price
 - Odisha Police Constable Answer Key
+- DAM Capital share price
 - Annamalai
-- Aqi delhi
-- OpenAI ChatGPT outage
-- Box office collection Pushpa movie
 - Breaking News
 - Manmohan Singh
 - IND vs AUS
@@ -90,6 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket
 - Manmohan Singh age
 - Steve Smith
+- Virat Kohli
+- Unimech Aerospace IPO GMP
+- Corbin Bosch
 - epgview
 - best epg
 - epg for iptv
