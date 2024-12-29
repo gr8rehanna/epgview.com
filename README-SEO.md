@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Broncos vs Bengals
 - Colorado football
 - Bengals
+- Broncos vs Bengals
+- Chargers vs Patriots
 - Cardinals vs Rams
 - Iowa State football
-- Chargers
-- Nebraska football
 - Broncos game
+- NFL playoff picture
+- Nebraska football
 - Dayle Haddon
+- Tornado Warning
 - UConn football
 - Drake Maye
-- Colorado
-- Ladd McConkey
-- Knicks
 - James Conner
 - Corbin Burnes
+- Knicks
 - Suns
-- Magnus Carlsen
+- Powerball drawing
 - NC State football
-- Colts
+- Magnus Carlsen
 - The Godfather
 - Tires
 - Darts
@@ -58,6 +58,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Trent Alexander-Arnold
 - Dayle Haddon
 - Nitish Kumar Reddy
+- Wordle hint
 - Magnus Carlsen
 - Will Smith
 - About time
@@ -69,14 +70,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal fc
 - Beyond Paradise
 - Dua Lipa
-- Big
 - Jasprit Bumrah
 - Nitish Kumar Reddy
-- New Zealand vs Sri Lanka
 - Rishabh Pant
 - Hockey India League
 - Virat kohli
 - Delhi Weather
+- Box office collection Pushpa Movie
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
