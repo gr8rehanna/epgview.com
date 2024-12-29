@@ -30,32 +30,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Festival of Lights
 - Gonzaga basketball
-- Tornado
 - Bengals
 - Colorado football
 - Cardinals vs Rams
 - Chargers vs Patriots
-- Broncos vs Bengals
 - Iowa State football
 - NFL playoff picture
 - Jeju Air
 - Nebraska football
+- Tornado warning
 - Dayle Haddon
 - Wordle hint
 - Hershey
 - UConn football
+- Miami Dolphins
 - Drake Maye
 - James Conner
 - Corbin Burnes
 - Knicks
-- Bengals game
 - Plane crash
+- Leicester City vs Man City
 - Festival of Lights
-- The Godfather
 - Darts
 - Dayle Haddon
 - Maggie Smith
+- DWP State Pension underpayments
 - Trent Alexander-Arnold
 - Wordle hint
 - Nitish Kumar Reddy
@@ -69,7 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Squid Game season 3
 - Ipswich Town
 - Peter Wright
-- Big
 - Squid Game
 - Sam Konstas
 - Marnus Labuschagne
@@ -82,6 +82,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nitish Kumar Reddy
 - Rishabh Pant
 - Hockey India League
+- Bihar news
 - Virat kohli
 - Delhi Weather
 - Box office collection Pushpa Movie
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manmohan Singh
 - Squid Game Season 2
 - Dr. Manmohan Singh death
-- Steve Smith
 - epgview
 - best epg
 - epg for iptv
