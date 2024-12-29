@@ -31,46 +31,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Cowboys vs Eagles
-- Dorian Finney-Smith
 - Leicester City vs Man City
-- Hanukkah
-- West Ham vs Liverpool
+- Raiders vs Saints
+- Dorian Finney-Smith
 - Jets vs Bills
+- West Ham vs Liverpool
+- Hanukkah
 - Festival of Lights
 - Hanukkah foods
-- Tornado
-- Playoff picture NFL
+- Tanner McKee
 - Packers vs Vikings
+- Baker Mayfield
+- Tornado
+- Anthony Richardson
+- Joe Flacco
+- Tottenham vs Wolves
 - Bengals
 - Colorado football
 - Cardinals vs Rams
 - Jeju Air
-- Iowa State football
-- Chargers
-- Wordle hint
-- Colts
-- Dayle Haddon
 - Leicester City vs Man City
 - West Ham vs Liverpool
 - Plane crash
 - Tottenham vs Wolves
-- Everton vs nottm Forest
 - Leeds United
+- Everton vs nottm Forest
+- Michelle Keegan
 - Rangers
 - Sound of Music
 - Championship
 - Sheffield United
-- Michelle Keegan
 - Festival of Lights
-- Plymouth Argyle
-- Crystal Palace
 - The Split
+- Plymouth Argyle
 - Derby County
-- Aberdeen FC
-- The Godfather
+- Crystal Palace
+- SHEFFIELD Wednesday
 - Hanukkah
 - Wayne Rooney
-- Squid Game
+- The Godfather
 - Sam Konstas
 - Jasprit Bumrah
 - Leicester City vs Man City
@@ -80,10 +79,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Haryana Steelers
 - Cricket India vs Australia 4th Test
 - Uma Thomas
-- WTC
 - Plane crash
 - Santosh Trophy
 - Nitish Kumar Reddy
+- Rishabh Pant
+- Hockey India League
 - Virat kohli
 - Delhi Weather
 - Modi
