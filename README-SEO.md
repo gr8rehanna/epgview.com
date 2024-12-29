@@ -36,10 +36,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chargers vs Patriots
 - Cardinals vs Rams
 - Broncos vs Bengals
-- Miami Football
+- Broncos
+- Iowa State football
 - NFL playoff picture
 - Nebraska football
-- Denver Broncos
 - Jeju Air
 - Broncos game
 - Dayle Haddon
@@ -64,22 +64,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - About time
 - Arsenal
 - Keir Starmer
+- Callum Turner
 - Squid Game season 3
 - Ipswich Town
 - Peter Wright
 - Arsenal fc
-- Dua Lipa
 - Big
 - Sam Konstas
 - Squid Game
 - Pat Cummins
-- Cricket India vs Australia 4th Test
 - South Korea
+- Cricket India vs Australia 4th Test
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
 - Hockey India League
-- Bihar News
 - Virat kohli
 - Delhi Weather
 - Box office collection Pushpa Movie
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Steve Smith
 - Corbin Bosch
 - Rishabh Pant
+- Unimech Aerospace IPO allotment date
 - epgview
 - best epg
 - epg for iptv
