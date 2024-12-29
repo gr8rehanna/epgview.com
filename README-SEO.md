@@ -32,34 +32,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Broncos vs Bengals
 - Chargers vs Patriots
+- Bengals
 - Colorado football
 - Iowa State football
-- Nebraska football
 - Broncos game
+- Cardinals vs Rams
+- Nebraska football
 - Dayle Haddon
 - UConn football
-- Joe Burrow
+- Drake Maye
 - Ladd McConkey
 - Corbin Burnes
-- Rams
+- Snoop Dogg Bowl
 - Suns
 - Magnus Carlsen
-- TCU Football
 - Gordon Brothers Big Lots
-- Tee Higgins
-- Kyle McCord
-- NC State football
-- Texas A&M
+- TCU Football
+- Colts
+- AFC playoff picture
+- The Godfather
 - Tires
 - Darts
 - Hershey
 - Maggie Smith
 - Trent Alexander-Arnold
-- Nitish Kumar Reddy
 - Dayle Haddon
+- Nitish Kumar Reddy
 - Magnus Carlsen
 - Will Smith
-- Extra Bank Holiday 2025
 - About time
 - Arsenal vs Ipswich Town
 - Arsenal
@@ -74,7 +74,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New Zealand vs Sri Lanka
 - Rishabh Pant
 - Arsenal
-- Jaipur Weather
 - Delhi Weather
 - Modi
 - Manmohan Singh
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kazakhstan
 - Sam Konstas
 - Christmas
+- Christmas Wishes
 - epgview
 - best epg
 - epg for iptv
