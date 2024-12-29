@@ -32,49 +32,49 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Broncos vs Bengals
 - Chargers vs Patriots
+- Colorado football
+- Iowa State football
 - Nebraska football
 - Broncos game
-- Iowa State football
-- Colorado football
 - Dayle Haddon
 - UConn football
+- Joe Burrow
 - Ladd McConkey
 - Corbin Burnes
+- Rams
+- Suns
 - Magnus Carlsen
 - TCU Football
-- Kyle McCord
-- Scottie Scheffler
+- Gordon Brothers Big Lots
 - Tee Higgins
-- Suns
-- Dallas Mavericks
-- Mega Millions
-- Greg Gumbel
-- USC football
+- Kyle McCord
+- NC State football
+- Texas A&M
 - Tires
 - Darts
 - Hershey
 - Maggie Smith
 - Trent Alexander-Arnold
 - Nitish Kumar Reddy
-- Magnus Carlsen
 - Dayle Haddon
+- Magnus Carlsen
 - Will Smith
+- Extra Bank Holiday 2025
 - About time
 - Arsenal vs Ipswich Town
 - Arsenal
 - Keir Starmer
-- Callum Turner
 - Squid Game season 3
 - Peter Wright
 - Arsenal fc
 - Beyond Paradise
+- Dua Lipa
 - Big
-- Gerwyn Price
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
+- Arsenal
 - Jaipur Weather
-- Virat kohli
 - Delhi Weather
 - Modi
 - Manmohan Singh
