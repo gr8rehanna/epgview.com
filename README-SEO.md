@@ -41,20 +41,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NFL playoff picture
 - Nebraska football
 - Jeju Air
-- Broncos game
 - Dayle Haddon
 - HERSHEY
 - Wordle hint
 - UConn football
-- Drake Maye
 - James Conner
 - Corbin Burnes
 - Knicks
-- Jeju Air
+- NC State football
+- Colts
+- Plane crash
 - The Godfather
 - Darts
-- Maggie Smith
 - Dayle Haddon
+- Maggie Smith
 - Trent Alexander-Arnold
 - Nitish Kumar Reddy
 - Wordle hint
@@ -68,13 +68,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Squid Game season 3
 - Ipswich Town
 - Peter Wright
-- Arsenal fc
 - Big
+- Beaches
 - Sam Konstas
 - Squid Game
+- Marnus Labuschagne
 - Pat Cummins
 - South Korea
 - Cricket India vs Australia 4th Test
+- Dileep Shankar
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr. Manmohan Singh death
 - Steve Smith
 - Corbin Bosch
-- Rishabh Pant
-- Unimech Aerospace IPO allotment date
 - epgview
 - best epg
 - epg for iptv
