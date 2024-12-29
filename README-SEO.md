@@ -31,18 +31,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Festival of Lights
+- Tornado
 - Gonzaga basketball
 - Bengals
 - Colorado football
 - Cardinals vs Rams
-- Chargers vs Patriots
+- Chargers
 - Iowa State football
-- NFL playoff picture
 - Jeju Air
+- NFL playoff picture
 - Nebraska football
-- Tornado warning
+- Broncos game
 - Dayle Haddon
-- Wordle hint
 - Hershey
 - UConn football
 - Miami Dolphins
@@ -52,11 +52,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Knicks
 - Plane crash
 - Leicester City vs Man City
+- Tottenham vs Wolves
+- Everton vs nottm Forest
 - Festival of Lights
 - Darts
 - Dayle Haddon
 - Maggie Smith
-- DWP State Pension underpayments
 - Trent Alexander-Arnold
 - Wordle hint
 - Nitish Kumar Reddy
@@ -69,7 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Callum Turner
 - Squid Game season 3
 - Ipswich Town
-- Peter Wright
 - Squid Game
 - Sam Konstas
 - Marnus Labuschagne
@@ -78,6 +78,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - South Korea
 - Cricket India vs Australia 4th Test
 - Dileep Shankar
+- Uma Thomas
 - WTC
 - Nitish Kumar Reddy
 - Rishabh Pant
@@ -85,7 +86,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bihar news
 - Virat kohli
 - Delhi Weather
-- Box office collection Pushpa Movie
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
