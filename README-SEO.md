@@ -31,19 +31,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Gonzaga basketball
-- Colorado football
 - Bengals
+- Colorado football
 - Chargers vs Patriots
 - Cardinals vs Rams
 - Broncos vs Bengals
-- Broncos
 - Iowa State football
-- NFL playoff picture
 - Nebraska football
+- NFL playoff picture
 - Jeju Air
 - Dayle Haddon
 - HERSHEY
 - Wordle hint
+- Broncos game
 - UConn football
 - James Conner
 - Corbin Burnes
@@ -51,13 +51,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NC State football
 - Colts
 - Plane crash
+- Festival of Lights
 - The Godfather
 - Darts
 - Dayle Haddon
 - Maggie Smith
 - Trent Alexander-Arnold
-- Nitish Kumar Reddy
 - Wordle hint
+- Nitish Kumar Reddy
 - Magnus Carlsen
 - Will Smith
 - Hornets nest
@@ -68,19 +69,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Squid Game season 3
 - Ipswich Town
 - Peter Wright
-- Big
-- Beaches
+- Arsenal fc
 - Sam Konstas
 - Squid Game
-- Marnus Labuschagne
 - Pat Cummins
 - South Korea
 - Cricket India vs Australia 4th Test
 - Dileep Shankar
 - Nitish Kumar Reddy
-- New Zealand vs Sri Lanka
 - Rishabh Pant
 - Hockey India League
+- Nitish Kumar
 - Virat kohli
 - Delhi Weather
 - Box office collection Pushpa Movie
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr. Manmohan Singh death
 - Steve Smith
 - Corbin Bosch
+- Rishabh Pant
 - epgview
 - best epg
 - epg for iptv
