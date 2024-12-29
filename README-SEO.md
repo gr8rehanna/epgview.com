@@ -30,60 +30,60 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Leicester City vs Man City
+- Cowboys vs Eagles
 - Dorian Finney-Smith
+- Leicester City vs Man City
 - Hanukkah
 - Festival of Lights
 - Hanukkah foods
+- Jets vs Bills
+- West Ham vs Liverpool
 - Tornado
-- Cowboys vs Eagles
 - Bengals
 - Colorado football
+- Chargers vs Patriots
 - Cardinals vs Rams
-- Chargers
 - Jeju Air
 - NFL playoff picture
 - Iowa State football
-- Dayle Haddon
+- Nebraska Football
 - Wordle hint
+- Dayle Haddon
 - Hershey
-- Miami Dolphins
-- UConn football
-- Drake Maye
 - Leicester City vs Man City
-- Plane crash
 - West Ham vs Liverpool
+- Plane crash
 - Tottenham vs Wolves
 - Everton vs nottm Forest
 - Rangers
-- Crystal Palace vs Southampton
 - Sound of Music
 - West Ham
+- Crystal Palace vs Southampton
+- Championship
+- Derby County vs Leeds United
 - Sheffield United
 - Festival of Lights
+- Plymouth Argyle
 - The Split
-- Hanukkah
+- The Godfather
+- Derby County
+- Wayne Rooney
+- Aberdeen FC
 - Darts
-- Hershey
-- Dayle Haddon
-- Maggie Smith
-- DWP State Pension underpayments
-- Trent Alexander-Arnold
-- Wordle hint
 - Squid Game
 - Sam Konstas
 - Jasprit Bumrah
 - Leicester City vs Man City
+- Pat Cummins
 - South Korea
-- Cricket India vs Australia 4th Test
+- Haryana Steelers
 - Tottenham vs Wolves
+- Cricket India vs Australia 4th Test
 - Uma Thomas
-- PKL final
 - WTC
 - Plane crash
 - Santosh Trophy
 - Nitish Kumar Reddy
-- Rishabh Pant
 - Virat kohli
 - Delhi Weather
 - Modi
