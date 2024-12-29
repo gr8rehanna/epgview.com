@@ -32,30 +32,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Festival of Lights
 - Tornado
-- Gonzaga basketball
+- Leicester City vs Man City
 - Bengals
 - Colorado football
+- Chargers vs Patriots
 - Cardinals vs Rams
-- Chargers
 - Iowa State football
-- Jeju Air
 - NFL playoff picture
-- Nebraska football
-- Broncos game
+- Jeju Air
+- Nebraska Football
+- Tornado Warning
 - Dayle Haddon
+- Wordle hint
 - Hershey
-- UConn football
 - Miami Dolphins
 - Drake Maye
 - James Conner
 - Corbin Burnes
 - Knicks
-- Plane crash
 - Leicester City vs Man City
+- Plane crash
 - Tottenham vs Wolves
-- Everton vs nottm Forest
+- Everton vs Nottm Forest
 - Festival of Lights
+- The Godfather
+- Hanukkah
 - Darts
+- Hershey
 - Dayle Haddon
 - Maggie Smith
 - Trent Alexander-Arnold
@@ -67,15 +70,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - About time
 - Arsenal
 - Keir Starmer
-- Callum Turner
-- Squid Game season 3
-- Ipswich Town
 - Squid Game
 - Sam Konstas
 - Marnus Labuschagne
 - Jasprit Bumrah
 - Pat Cummins
 - South Korea
+- Leicester City vs Man City
 - Cricket India vs Australia 4th Test
 - Dileep Shankar
 - Uma Thomas
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
-- Dr. Manmohan Singh death
 - epgview
 - best epg
 - epg for iptv
