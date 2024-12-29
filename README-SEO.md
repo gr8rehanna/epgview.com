@@ -31,52 +31,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Chargers vs Patriots
-- Bengals
+- Broncos vs Bengals
 - Nebraska football
-- Colorado football
 - Iowa State football
+- Colorado football
+- Broncos game
 - Dayle Haddon
 - UConn football
-- Broncos game
 - Drake Maye
 - Nuggets
+- Suns
 - Corbin Burnes
 - Magnus Carlsen
 - Kyle McCord
+- TCU Football
 - Scottie Scheffler
-- Suns
-- Dallas Mavericks
-- Texas A&M
+- Tee Higgins
 - Mega Millions
 - Greg Gumbel
 - USC football
-- Hershey
 - Darts
+- Hershey
 - Maggie Smith
 - Trent Alexander-Arnold
-- 2025 extra Bank Holiday
+- Extra Bank Holiday 2025
 - Nitish Kumar Reddy
 - Magnus Carlsen
 - Will Smith
+- Dayle Haddon
 - About time
 - Arsenal vs Ipswich Town
 - Arsenal
+- Brighton vs Brentford
 - Keir Starmer
 - Callum Turner
 - Squid Game season 3
 - Peter Wright
 - Beyond Paradise
 - Big
-- Beaches
 - Gerwyn Price
-- Premier League
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
-- Rohit Sharma
+- Jaipur Weather
+- Hockey India League
 - Virat kohli
 - Rahmat Shah
-- Ratan Tata
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
