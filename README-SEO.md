@@ -30,9 +30,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Leicester City vs Man City
+- Hanukkah
 - Festival of Lights
 - Tornado
-- Leicester City vs Man City
 - Bengals
 - Colorado football
 - Chargers vs Patriots
@@ -41,19 +42,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NFL playoff picture
 - Jeju Air
 - Nebraska Football
-- Tornado Warning
 - Dayle Haddon
 - Wordle hint
 - Hershey
 - Miami Dolphins
+- UConn football
 - Drake Maye
 - James Conner
 - Corbin Burnes
-- Knicks
 - Leicester City vs Man City
 - Plane crash
 - Tottenham vs Wolves
-- Everton vs Nottm Forest
+- West Ham vs Liverpool
+- Everton vs nottm Forest
+- Sheffield United
 - Festival of Lights
 - The Godfather
 - Hanukkah
@@ -68,28 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Will Smith
 - Hornets nest
 - About time
-- Arsenal
-- Keir Starmer
 - Squid Game
 - Sam Konstas
 - Marnus Labuschagne
 - Jasprit Bumrah
-- Pat Cummins
-- South Korea
 - Leicester City vs Man City
+- South Korea
 - Cricket India vs Australia 4th Test
-- Dileep Shankar
 - Uma Thomas
+- Tottenham vs Wolves
+- PKL final
 - WTC
+- Plane crash
+- Santosh Trophy
 - Nitish Kumar Reddy
 - Rishabh Pant
 - Hockey India League
-- Bihar news
 - Virat kohli
 - Delhi Weather
 - Modi
 - Manmohan Singh
-- Squid Game Season 2
 - epgview
 - best epg
 - epg for iptv
