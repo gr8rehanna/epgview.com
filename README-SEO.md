@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Colorado football
 - Bengals
 - Broncos vs Bengals
-- Chargers vs Patriots
 - Cardinals vs Rams
+- Chargers vs Patriots
 - Iowa State football
-- Broncos game
 - NFL playoff picture
 - Nebraska football
+- Broncos game
 - Dayle Haddon
 - Tornado Warning
+- Jeju Air
+- Wordle hint
 - UConn football
 - Drake Maye
 - James Conner
 - Corbin Burnes
 - Knicks
 - Suns
-- Powerball drawing
 - NC State football
-- Magnus Carlsen
 - The Godfather
 - Tires
 - Darts
@@ -68,15 +68,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Squid Game season 3
 - Peter Wright
 - Arsenal fc
-- Beyond Paradise
 - Dua Lipa
+- Big
 - Jasprit Bumrah
 - Nitish Kumar Reddy
+- New Zealand vs Sri Lanka
 - Rishabh Pant
 - Hockey India League
 - Virat kohli
 - Delhi Weather
-- Box office collection Pushpa Movie
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
