@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Leicester City vs Man City
+- Dorian Finney-Smith
 - Hanukkah
 - Festival of Lights
+- Hanukkah foods
 - Tornado
+- Cowboys vs Eagles
 - Bengals
 - Colorado football
-- Chargers vs Patriots
 - Cardinals vs Rams
-- Iowa State football
-- NFL playoff picture
+- Chargers
 - Jeju Air
-- Nebraska Football
+- NFL playoff picture
+- Iowa State football
 - Dayle Haddon
 - Wordle hint
 - Hershey
 - Miami Dolphins
 - UConn football
 - Drake Maye
-- James Conner
-- Corbin Burnes
 - Leicester City vs Man City
 - Plane crash
-- Tottenham vs Wolves
 - West Ham vs Liverpool
+- Tottenham vs Wolves
 - Everton vs nottm Forest
+- Rangers
+- Crystal Palace vs Southampton
+- Sound of Music
+- West Ham
 - Sheffield United
 - Festival of Lights
-- The Godfather
+- The Split
 - Hanukkah
 - Darts
 - Hershey
 - Dayle Haddon
 - Maggie Smith
+- DWP State Pension underpayments
 - Trent Alexander-Arnold
 - Wordle hint
-- Nitish Kumar Reddy
-- Magnus Carlsen
-- Will Smith
-- Hornets nest
-- About time
 - Squid Game
 - Sam Konstas
-- Marnus Labuschagne
 - Jasprit Bumrah
 - Leicester City vs Man City
 - South Korea
 - Cricket India vs Australia 4th Test
-- Uma Thomas
 - Tottenham vs Wolves
+- Uma Thomas
 - PKL final
 - WTC
 - Plane crash
 - Santosh Trophy
 - Nitish Kumar Reddy
 - Rishabh Pant
-- Hockey India League
 - Virat kohli
 - Delhi Weather
 - Modi
 - Manmohan Singh
+- Squid Game Season 2
+- Dr. Manmohan Singh death
 - epgview
 - best epg
 - epg for iptv
