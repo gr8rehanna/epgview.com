@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Colorado football
 - Bengals
 - Broncos vs Bengals
-- Cardinals vs Rams
 - Chargers vs Patriots
+- Cardinals vs Rams
 - Iowa State football
+- Broncos
 - NFL playoff picture
 - Nebraska football
 - Broncos game
-- Dayle Haddon
-- Tornado Warning
 - Jeju Air
+- Dayle Haddon
+- HERSHEY
 - Wordle hint
 - UConn football
 - Drake Maye
+- Miami Dolphins
 - James Conner
 - Corbin Burnes
 - Knicks
-- Suns
-- NC State football
 - The Godfather
 - Tires
 - Darts
@@ -61,7 +61,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Wordle hint
 - Magnus Carlsen
 - Will Smith
-- About time
+- Hornets nest
+- About Time
 - Arsenal vs Ipswich Town
 - Arsenal
 - Keir Starmer
@@ -69,14 +70,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Peter Wright
 - Arsenal fc
 - Dua Lipa
-- Big
 - Jasprit Bumrah
+- Pat Cummins
+- South Korea
 - Nitish Kumar Reddy
-- New Zealand vs Sri Lanka
 - Rishabh Pant
 - Hockey India League
 - Virat kohli
 - Delhi Weather
+- Box office collection Pushpa movie
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Baby John
 - Azerbaijan Airlines plane crashes
 - MT Vasudevan Nair
-- Kazakhstan
-- Sam Konstas
 - epgview
 - best epg
 - epg for iptv
