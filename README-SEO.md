@@ -30,43 +30,43 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Chargers vs Patriots
 - Broncos vs Bengals
+- Chargers vs Patriots
 - Nebraska football
+- Broncos game
 - Iowa State football
 - Colorado football
-- Broncos game
 - Dayle Haddon
 - UConn football
-- Drake Maye
-- Nuggets
-- Suns
+- Ladd McConkey
 - Corbin Burnes
 - Magnus Carlsen
-- Kyle McCord
 - TCU Football
+- Kyle McCord
 - Scottie Scheffler
 - Tee Higgins
+- Suns
+- Dallas Mavericks
 - Mega Millions
 - Greg Gumbel
 - USC football
+- Tires
 - Darts
 - Hershey
 - Maggie Smith
 - Trent Alexander-Arnold
-- Extra Bank Holiday 2025
 - Nitish Kumar Reddy
 - Magnus Carlsen
-- Will Smith
 - Dayle Haddon
+- Will Smith
 - About time
 - Arsenal vs Ipswich Town
 - Arsenal
-- Brighton vs Brentford
 - Keir Starmer
 - Callum Turner
 - Squid Game season 3
 - Peter Wright
+- Arsenal fc
 - Beyond Paradise
 - Big
 - Gerwyn Price
@@ -74,9 +74,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New Zealand vs Sri Lanka
 - Rishabh Pant
 - Jaipur Weather
-- Hockey India League
 - Virat kohli
-- Rahmat Shah
+- Delhi Weather
 - Modi
 - Manmohan Singh
 - Squid Game Season 2
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - MT Vasudevan Nair
 - Kazakhstan
 - Sam Konstas
+- Christmas
 - epgview
 - best epg
 - epg for iptv
