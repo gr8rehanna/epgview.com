@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Broncos vs Bengals
-- Chargers vs Patriots
 - Bengals
+- Chargers vs Patriots
 - Colorado football
-- Iowa State football
-- Broncos game
 - Cardinals vs Rams
+- Iowa State football
 - Nebraska football
 - Dayle Haddon
+- Broncos game
+- Joe Burrow
 - UConn football
 - Drake Maye
 - Ladd McConkey
+- Knicks
 - Corbin Burnes
-- Snoop Dogg Bowl
 - Suns
+- James Conner
 - Magnus Carlsen
-- Gordon Brothers Big Lots
-- TCU Football
+- NC State football
 - Colts
-- AFC playoff picture
+- Gordon Brothers Big Lots
 - The Godfather
 - Tires
 - Darts
@@ -73,7 +73,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nitish Kumar Reddy
 - New Zealand vs Sri Lanka
 - Rishabh Pant
-- Arsenal
 - Delhi Weather
 - Modi
 - Manmohan Singh
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sam Konstas
 - Christmas
 - Christmas Wishes
+- Allu Arjun Pushpa box office collection
 - epgview
 - best epg
 - epg for iptv
