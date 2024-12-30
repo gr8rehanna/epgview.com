@@ -31,16 +31,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - LeBron James
-- Lions vs 49ers
+- Browns
 - Happy New Year
+- Lions vs 49ers
 - Jimmy Carter
 - Packers vs Vikings
 - Cowboys vs Eagles
 - Saquon Barkley
 - Lakers
 - Falcons vs Commanders
-- NFL Draft order
+- Washington Commanders
 - Norovirus
+- NFL Draft order
 - Jets vs Bills
 - Aaron Rodgers
 - Leicester City vs Man City
@@ -48,13 +50,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hanukkah
 - Morgan Wallen
 - Celtics
-- Saints
-- Hunter S. Thompson
 - Wind warning
+- Callan Rydz
+- Trinidad and Tobago state of emergency
 - Stoke City
 - AC Milan
-- Netanyahu
 - Hogmanay
+- Netanyahu
 - KLM
 - West Ham vs Liverpool
 - Jimmy Carter
@@ -63,27 +65,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Plane crash
 - Championship
 - Tottenham vs Wolves
-- Mancity
+- Man City
 - Everton vs nottm Forest
 - The Split
 - Leeds United
 - Derby County vs Leeds United
-- Rangers
-- Cary Grant
+- Adani Wilmar
 - New Zealand vs Sri Lanka
 - Rohit Sharma
-- Rishabh Pant
 - Happy New Year 2025
+- Rishabh Pant
 - Jimmy Carter
 - Mancity
-- World Test Championship Points Table
 - Punjab Bandh
+- World Test Championship Points Table
 - ISRO
 - Somvati Amavasya 2024
 - New Year Wishes
-- Priyank Kharge
 - Jaiswal
-- WTC points table
+- WTC Points Table
 - Jasprit Bumrah
 - South Korea
 - Uma Thomas
