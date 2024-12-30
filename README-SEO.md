@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Jimmy Carter
 - Packers vs Vikings
 - Cowboys vs Eagles
 - Saquon Barkley
 - Lakers
 - Raiders vs Saints
 - Jets vs Bills
-- Leicester City vs Man City
+- NFL Draft Order
 - Falcons vs Commanders
-- Norovirus
+- Leicester City vs Man City
+- Aaron Rodgers
 - Hanukkah
+- Norovirus
 - Tanner McKee
 - West Ham vs Liverpool
 - Festival of Lights
 - Titans vs Jaguars
 - Baker Mayfield
 - Drew Lock
-- Brock Bowers
 - Seahawks' playoff chances
-- Aaron Jones
-- Air Canada
 - Wind warning
 - AC Milan
 - KLM
@@ -66,19 +66,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Split
 - Plane crash
 - Rangers
-- Crystal Palace vs Southampton
-- Cary Grant
 - Sheffield United
 - Maria Callas
+- Festival of Lights
+- Plymouth Argyle
 - Haryana Steelers
 - Jimmy Carter
+- WTC Final
 - Jasprit Bumrah
 - South Korea
 - Cricket India vs Australia 4th Test
 - Uma Thomas
 - Allu Arjun Pushpa box office collection
 - Plane crash
-- Santosh Trophy
 - Nitish Kumar Reddy
 - Virat kohli
 - Delhi Weather
