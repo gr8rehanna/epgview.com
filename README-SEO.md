@@ -32,16 +32,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - LeBron James
 - Atlanta Falcons
-- Browns
 - Iowa football
+- Browns
 - Man United vs Newcastle
 - Chelsea
 - Amen Thompson
-- Lions vs 49ers
-- Will Ferrell
-- Mizzou Football
-- Happy new year 2025
 - Trinidad and Tobago state of emergency
+- Mizzou Football
+- Lions vs 49ers
+- Happy new year 2025
+- Boston Celtics
 - Jimmy Carter
 - Packers vs Vikings
 - Commanders
@@ -56,17 +56,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs Brighton
 - Wind warning
 - Trinidad and Tobago state of emergency
-- Callan Rydz
 - Stephen Bunting
+- Callan Rydz
 - Hogmanay
+- Chelsea FC
+- Zirkzee
 - Stoke City
 - AC Milan
-- Netanyahu
-- Chelsea FC
 - Silverfish
-- Zirkzee
-- KLM
+- Netanyahu
 - LeBron James
+- Tesco opening hours New Year Eve
 - Jimmy Carter
 - West Ham vs Liverpool
 - Michelle Keegan
@@ -78,9 +78,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy New Year 2025
 - Mancity
 - New Year Wishes 2025
+- Happy New Year
 - Punjab Bandh
 - ISRO
-- Somvati Amavasya 2024
 - New Year Wishes
 - Jaiswal
 - Rohit Sharma
