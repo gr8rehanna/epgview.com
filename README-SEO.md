@@ -30,30 +30,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Jimmy Carter
 - Packers vs Vikings
 - Cowboys vs Eagles
 - Saquon Barkley
-- Lakers
 - Falcons vs Commanders
+- Lakers
 - Raiders vs Saints
-- NFL Draft order
 - Jets vs Bills
 - Leicester City vs Man City
 - Aaron Rodgers
 - Tanner McKee
-- Hanukkah
 - Norovirus
+- Hanukkah
 - West Ham vs Liverpool
 - Baker Mayfield
 - Celtics
-- Bijan Robinson
-- Hunter S. Thompson
 - Drew Lock
+- Hunter S. Thompson
 - Morgan Wallen
+- Brock Bowers
 - Wind warning
 - Stoke City
 - AC Milan
 - NFL playoff picture
+- KLM
 - West Ham vs Liverpool
 - Leicester City vs Man City
 - Jimmy Carter
@@ -68,20 +69,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield United
 - Plymouth Argyle
 - Neal Maupay
-- Derby County
-- Crystal Palace
+- The firm
 - Haryana Steelers
 - Jimmy Carter
 - Punjab Bandh
+- New Year wishes 2025
 - Jasprit Bumrah
 - South Korea
-- WTC points table
+- WTC Points Table
 - WTC
 - Uma Thomas
 - Cricket India vs Australia 4th Test
 - Allu Arjun Pushpa box office collection
-- Plane crash
 - Santosh Trophy
+- Bumrah
 - Nitish Kumar Reddy
 - Virat kohli
 - Delhi Weather
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manmohan Singh
 - Squid Game Season 2
 - Dr. Manmohan Singh death
-- Steve Smith
 - epgview
 - best epg
 - epg for iptv
