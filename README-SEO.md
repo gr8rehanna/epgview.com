@@ -30,16 +30,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Jimmy Carter
+- Packers
 - Cowboys vs Eagles
 - Saquon Barkley
-- Packers vs Vikings
 - Raiders vs Saints
 - Jets vs Bills
-- Leicester City vs Man City
 - Dorian Finney-Smith
-- West Ham vs Liverpool
+- Leicester City vs Man City
 - NFL Draft order
+- West Ham vs Liverpool
 - Hanukkah
 - Tanner McKee
 - Festival of Lights
@@ -50,34 +49,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tornado
 - Anthony Richardson
 - Tottenham vs Wolves
+- Jimmy Carter
 - West Ham vs Liverpool
 - Leicester City vs Man City
-- Plane crash
-- Leeds United
-- Michelle Keegan
-- Tottenham vs Wolves
-- Everton vs nottm Forest
 - Jimmy Carter
-- Rangers
-- Crystal Palace vs Southampton
+- Michelle Keegan
+- Leeds United
+- Tottenham vs Wolves
+- Jeju Air
+- Everton vs nottm Forest
 - The Split
+- Rangers
+- Plane crash
+- Crystal Palace vs Southampton
 - Sound of Music
 - Championship
+- Cary Grant
 - Sheffield United
 - Festival of Lights
+- Maria Callas
 - Plymouth Argyle
 - Derby County
-- SHEFFIELD Wednesday
-- Hanukkah
-- Wayne Rooney
 - WTC final
 - Sam Konstas
-- Jasprit Bumrah
 - Leicester City vs Man City
 - South Korea
-- Haryana Steelers
 - Cricket India vs Australia 4th Test
 - Uma Thomas
+- PKL final
 - Plane crash
 - Santosh Trophy
 - Nitish Kumar Reddy
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr. Manmohan Singh death
 - Steve Smith
 - Corbin Bosch
+- Rishabh Pant
 - epgview
 - best epg
 - epg for iptv
