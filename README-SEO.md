@@ -35,24 +35,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cowboys vs Eagles
 - Saquon Barkley
 - Lakers
-- Raiders vs Saints
-- Jets vs Bills
-- NFL Draft Order
 - Falcons vs Commanders
+- Raiders vs Saints
+- NFL Draft Order
+- Jets vs Bills
 - Leicester City vs Man City
 - Aaron Rodgers
 - Hanukkah
+- Tampa Bay Buccaneers
 - Norovirus
 - Tanner McKee
 - West Ham vs Liverpool
-- Festival of Lights
-- Titans vs Jaguars
 - Baker Mayfield
+- Celtics
+- Titans vs Jaguars
 - Drew Lock
-- Seahawks' playoff chances
 - Wind warning
 - AC Milan
-- KLM
 - NFL playoff picture
 - West Ham vs Liverpool
 - Leicester City vs Man City
@@ -70,13 +69,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Maria Callas
 - Festival of Lights
 - Plymouth Argyle
+- Neal Maupay
 - Haryana Steelers
 - Jimmy Carter
-- WTC Final
+- Punjab Bandh
+- Squid Game
 - Jasprit Bumrah
 - South Korea
-- Cricket India vs Australia 4th Test
+- WTC
 - Uma Thomas
+- Cricket India vs Australia 4th Test
 - Allu Arjun Pushpa box office collection
 - Plane crash
 - Nitish Kumar Reddy
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr. Manmohan Singh death
 - Steve Smith
 - Corbin Bosch
-- Rishabh Pant
-- Unimech Aerospace IPO allotment date
 - epgview
 - best epg
 - epg for iptv
