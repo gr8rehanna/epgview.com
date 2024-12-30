@@ -44,12 +44,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Festival of Lights
 - Hanukkah foods
 - Baker Mayfield
-- Drew Lock
 - Joe Flacco
 - Tornado
 - Anthony Richardson
+- Jerome Ford
+- Brock Bowers
 - Tottenham vs Wolves
-- Jimmy Carter
 - West Ham vs Liverpool
 - Leicester City vs Man City
 - Jimmy Carter
@@ -59,28 +59,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jeju Air
 - Everton vs nottm Forest
 - The Split
-- Rangers
 - Plane crash
+- Rangers
 - Crystal Palace vs Southampton
-- Sound of Music
 - Championship
+- Sound of Music
 - Cary Grant
+- Peter Wright
 - Sheffield United
 - Festival of Lights
 - Maria Callas
 - Plymouth Argyle
-- Derby County
-- WTC final
 - Sam Konstas
 - Leicester City vs Man City
 - South Korea
 - Cricket India vs Australia 4th Test
 - Uma Thomas
-- PKL final
 - Plane crash
 - Santosh Trophy
 - Nitish Kumar Reddy
-- Hockey India League
 - Virat kohli
 - Delhi Weather
 - Modi
@@ -90,6 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Steve Smith
 - Corbin Bosch
 - Rishabh Pant
+- Unimech Aerospace IPO allotment date
+- Baby John
+- Azerbaijan Airlines plane crashes
 - epgview
 - best epg
 - epg for iptv
