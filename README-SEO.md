@@ -36,20 +36,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - Raiders vs Saints
 - Jets vs Bills
-- NFL Draft order
 - Leicester City vs Man City
-- West Ham vs Liverpool
+- Falcons vs Commanders
 - Norovirus
 - Hanukkah
-- Hanukkah foods
-- Falcons vs Commanders
+- Tanner McKee
+- West Ham vs Liverpool
+- Festival of Lights
+- Titans vs Jaguars
 - Baker Mayfield
 - Drew Lock
-- Joe Flacco
-- Aaron Jones
 - Brock Bowers
-- Tornado
-- Anthony Richardson
+- Seahawks' playoff chances
+- Aaron Jones
+- Air Canada
 - Wind warning
 - AC Milan
 - KLM
@@ -69,14 +69,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Crystal Palace vs Southampton
 - Cary Grant
 - Sheffield United
-- Festival of Lights
-- Sam Konstas
+- Maria Callas
+- Haryana Steelers
+- Jimmy Carter
 - Jasprit Bumrah
-- Leicester City vs Man City
 - South Korea
 - Cricket India vs Australia 4th Test
 - Uma Thomas
-- Allu Arjun Pushpa box office Collection
+- Allu Arjun Pushpa box office collection
 - Plane crash
 - Santosh Trophy
 - Nitish Kumar Reddy
