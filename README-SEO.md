@@ -32,38 +32,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - LeBron James
 - Lions vs 49ers
+- Happy New Year
 - Jimmy Carter
 - Packers vs Vikings
 - Cowboys vs Eagles
 - Saquon Barkley
 - Lakers
 - Falcons vs Commanders
-- Norovirus
 - NFL Draft order
+- Norovirus
 - Jets vs Bills
 - Aaron Rodgers
 - Leicester City vs Man City
 - Tanner McKee
 - Hanukkah
-- Festival of Lights
 - Morgan Wallen
 - Celtics
 - Saints
-- NFL playoffs
+- Hunter S. Thompson
 - Wind warning
 - Stoke City
 - AC Milan
-- NFL playoff picture
 - Netanyahu
+- Hogmanay
 - KLM
 - West Ham vs Liverpool
 - Jimmy Carter
 - Michelle Keegan
 - Leicester City vs Man City
 - Plane crash
-- Mancity
 - Championship
 - Tottenham vs Wolves
+- Mancity
 - Everton vs nottm Forest
 - The Split
 - Leeds United
@@ -72,12 +72,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cary Grant
 - New Zealand vs Sri Lanka
 - Rohit Sharma
+- Rishabh Pant
 - Happy New Year 2025
 - Jimmy Carter
 - Mancity
 - World Test Championship Points Table
 - Punjab Bandh
 - ISRO
+- Somvati Amavasya 2024
 - New Year Wishes
 - Priyank Kharge
 - Jaiswal
@@ -87,9 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Uma Thomas
 - Cricket India vs Australia 4th Test
 - Indo Farm Equipment GMP
-- Allu Arjun Pushpa box office collection
 - Plane crash
-- Nitish Kumar Reddy
 - epgview
 - best epg
 - epg for iptv
