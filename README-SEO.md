@@ -30,7 +30,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Jimmy Carter
 - Packers vs Vikings
 - Cowboys vs Eagles
 - Saquon Barkley
@@ -43,11 +42,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tanner McKee
 - Norovirus
 - Hanukkah
+- Buccaneers
 - West Ham vs Liverpool
-- Baker Mayfield
 - Celtics
 - Drew Lock
 - Hunter S. Thompson
+- Bucs
 - Morgan Wallen
 - Brock Bowers
 - Wind warning
@@ -58,8 +58,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - West Ham vs Liverpool
 - Leicester City vs Man City
 - Jimmy Carter
-- Plane crash
 - Michelle Keegan
+- Plane crash
 - Leeds United
 - Tottenham vs Wolves
 - Everton vs nottm Forest
@@ -67,22 +67,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Split
 - Rangers
 - Sheffield United
-- Plymouth Argyle
 - Neal Maupay
+- Plymouth Argyle
 - The firm
 - Haryana Steelers
 - Jimmy Carter
+- WTC) final
 - Punjab Bandh
+- World Test Championship Points Table
 - New Year wishes 2025
+- Sam Konstas
 - Jasprit Bumrah
 - South Korea
-- WTC Points Table
-- WTC
 - Uma Thomas
 - Cricket India vs Australia 4th Test
 - Allu Arjun Pushpa box office collection
 - Santosh Trophy
-- Bumrah
 - Nitish Kumar Reddy
 - Virat kohli
 - Delhi Weather
