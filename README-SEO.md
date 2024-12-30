@@ -30,46 +30,47 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Packers
+- Packers vs Vikings
 - Cowboys vs Eagles
 - Saquon Barkley
 - Raiders vs Saints
 - Jets vs Bills
+- NFL Draft order
 - Dorian Finney-Smith
 - Leicester City vs Man City
-- NFL Draft order
 - West Ham vs Liverpool
+- Sam Darnold
 - Hanukkah
 - Tanner McKee
-- Festival of Lights
 - Hanukkah foods
+- Titans vs Jaguars
 - Baker Mayfield
-- Joe Flacco
 - Tornado
 - Anthony Richardson
 - Jerome Ford
 - Brock Bowers
 - Tottenham vs Wolves
+- Wind warning
+- AC Milan
+- NFL playoff picture
 - West Ham vs Liverpool
 - Leicester City vs Man City
 - Jimmy Carter
+- Plane crash
 - Michelle Keegan
 - Leeds United
 - Tottenham vs Wolves
-- Jeju Air
 - Everton vs nottm Forest
 - The Split
-- Plane crash
 - Rangers
 - Crystal Palace vs Southampton
 - Championship
 - Sound of Music
-- Cary Grant
 - Peter Wright
+- Cary Grant
 - Sheffield United
 - Festival of Lights
-- Maria Callas
-- Plymouth Argyle
+- Haryana Steelers
 - Sam Konstas
 - Leicester City vs Man City
 - South Korea
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rishabh Pant
 - Unimech Aerospace IPO allotment date
 - Baby John
-- Azerbaijan Airlines plane crashes
 - epgview
 - best epg
 - epg for iptv
