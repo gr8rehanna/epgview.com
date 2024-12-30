@@ -42,13 +42,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sam Darnold
 - Leicester City vs Man City
 - Aaron Rodgers
-- Tanner McKee
 - Norovirus
+- Tanner McKee
 - Hanukkah
-- NFL playoffs
 - Celtics
 - Saints
 - Hunter S. Thompson
+- Morgan Wallen
 - Bucs
 - Wind warning
 - Stoke City
@@ -61,31 +61,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michelle Keegan
 - Leicester City vs Man City
 - Plane crash
-- Mancity
 - Tottenham vs Wolves
+- Championship
+- Mancity
 - Everton vs nottm Forest
 - The Split
 - Leeds United
-- Peter Wright
 - Derby County vs Leeds United
 - Rangers
 - Cary Grant
 - New Zealand vs Sri Lanka
 - Rohit Sharma
-- Jimmy Carter
+- Virat Kohli
 - Happy New Year 2025
+- Jimmy Carter
 - Mancity
 - WTC) final
 - Punjab Bandh
-- New Year wishes 2025
 - World Test Championship Points Table
-- Jasprit Bumrah
 - WTC Points Table
+- Jasprit Bumrah
 - South Korea
 - Uma Thomas
 - Cricket India vs Australia 4th Test
 - Indo Farm Equipment GMP
-- Allu Arjun Pushpa box office collection
+- Allu Arjun Pushpa Box Office Collection
 - Nitish Kumar Reddy
 - Virat kohli
 - Delhi Weather
