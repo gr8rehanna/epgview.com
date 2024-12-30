@@ -39,17 +39,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - Falcons vs Commanders
 - Norovirus
+- NFL Draft order
 - Jets vs Bills
-- Leicester City vs Man City
 - Aaron Rodgers
+- Leicester City vs Man City
 - Tanner McKee
 - Hanukkah
+- Festival of Lights
+- Morgan Wallen
 - Celtics
 - Saints
-- Hunter S. Thompson
-- Morgan Wallen
-- Giants game
-- Ronald Reagan
+- NFL playoffs
 - Wind warning
 - Stoke City
 - AC Milan
@@ -76,20 +76,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jimmy Carter
 - Mancity
 - World Test Championship Points Table
-- WTC) final
 - Punjab Bandh
+- ISRO
 - New Year Wishes
 - Priyank Kharge
-- ISRO
-- WTC Points Table
+- Jaiswal
+- WTC points table
 - Jasprit Bumrah
 - South Korea
 - Uma Thomas
 - Cricket India vs Australia 4th Test
 - Indo Farm Equipment GMP
+- Allu Arjun Pushpa box office collection
 - Plane crash
 - Nitish Kumar Reddy
-- Virat kohli
 - epgview
 - best epg
 - epg for iptv
