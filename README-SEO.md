@@ -33,8 +33,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jimmy Carter
 - Packers vs Vikings
 - Cowboys vs Eagles
-- Saquon Barkley
 - Lakers
+- Saquon Barkley
 - Falcons vs Commanders
 - Raiders vs Saints
 - NFL Draft Order
@@ -42,15 +42,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Leicester City vs Man City
 - Aaron Rodgers
 - Hanukkah
-- Tampa Bay Buccaneers
 - Norovirus
 - Tanner McKee
 - West Ham vs Liverpool
 - Baker Mayfield
+- Festival of Lights
 - Celtics
 - Titans vs Jaguars
 - Drew Lock
 - Wind warning
+- Stoke City
 - AC Milan
 - NFL playoff picture
 - West Ham vs Liverpool
@@ -66,21 +67,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Plane crash
 - Rangers
 - Sheffield United
-- Maria Callas
-- Festival of Lights
 - Plymouth Argyle
 - Neal Maupay
+- Derby County
 - Haryana Steelers
 - Jimmy Carter
 - Punjab Bandh
-- Squid Game
 - Jasprit Bumrah
 - South Korea
 - WTC
-- Uma Thomas
 - Cricket India vs Australia 4th Test
+- Uma Thomas
 - Allu Arjun Pushpa box office collection
 - Plane crash
+- Santosh Trophy
 - Nitish Kumar Reddy
 - Virat kohli
 - Delhi Weather
