@@ -32,13 +32,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - LeBron James
 - Lions vs 49ers
+- Jimmy Carter
 - Packers vs Vikings
 - Cowboys vs Eagles
-- Falcons vs Commanders
 - Saquon Barkley
 - Lakers
+- Falcons vs Commanders
 - Jets vs Bills
-- NFL Draft order
+- Sam Darnold
 - Leicester City vs Man City
 - Aaron Rodgers
 - Tanner McKee
@@ -49,7 +50,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saints
 - Hunter S. Thompson
 - Bucs
-- Morgan Wallen
 - Wind warning
 - Stoke City
 - AC Milan
@@ -57,31 +57,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Netanyahu
 - KLM
 - West Ham vs Liverpool
-- Leicester City vs Man City
 - Jimmy Carter
 - Michelle Keegan
+- Leicester City vs Man City
 - Plane crash
-- Leeds United
+- Mancity
 - Tottenham vs Wolves
-- Championship
 - Everton vs nottm Forest
 - The Split
+- Leeds United
+- Peter Wright
+- Derby County vs Leeds United
 - Rangers
 - Cary Grant
-- Neal Maupay
-- Sheffield United
 - New Zealand vs Sri Lanka
 - Rohit Sharma
-- Virat Kohli
 - Jimmy Carter
+- Happy New Year 2025
+- Mancity
 - WTC) final
 - Punjab Bandh
-- New Year Wishes 2025
+- New Year wishes 2025
 - World Test Championship Points Table
-- Squid Game
-- Sam Konstas
-- WTC Points Table
 - Jasprit Bumrah
+- WTC Points Table
 - South Korea
 - Uma Thomas
 - Cricket India vs Australia 4th Test
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nitish Kumar Reddy
 - Virat kohli
 - Delhi Weather
+- Modi
 - epgview
 - best epg
 - epg for iptv
