@@ -30,58 +30,59 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Alabama football
+- College football today
 - Lions vs 49ers
-- Commanders
 - Linda Lavin death
+- Commanders
 - Iowa football
 - LeBron James
 - Falcons
 - Man United vs Newcastle
+- Happy New Year
 - Browns
 - Brock Purdy
-- Happy New Year
 - Chelsea
+- Paige and Craig break up
 - Mizzou Football
-- Dan Campbell
-- U.S. Treasury Department
+- Bowl games today
+- US Treasury Department
 - Trinidad and Tobago state of emergency
 - Jeopardy!
 - Geomagnetic storm aurora forecast
-- Deebo Samuel
-- Craig Conover
-- Jimmy Carter
 - New Year's Eve
+- New Year Honours List 2025
 - Gareth Southgate
 - Happy New Year
-- New Year Honours List 2025
+- 2025
 - British airways tier points
 - Nathan Aspinall
-- 2025
-- New Year's Honours List
 - Sadiq Khan
 - Isak
+- New Year's Eve 2024
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
 - Wind warning
 - New Year's Honours List 2025
 - Trinidad and Tobago state of emergency
+- Happy New Year 2025
 - Zirkzee
 - Aston Villa
-- Happy New Year 2025
 - Elton John
 - Stephen Bunting
 - New Year's Eve
-- 2025
 - Adani Wilmar
 - Manchester United
+- New Year 2025
 - Chelsea
 - Unimech Aerospace share price
+- Rohit Sharma Retirement
+- Nitesh Rane
 - Happy New Year 2025
 - Rohit Sharma
 - Virat Kohli
 - Jimmy Carter
 - ISRO
-- New Year
 - Punjab Bandh
 - Hanuman jayanti 2024
 - South Korea
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Indo Farm Equipment GMP
 - WTC
 - Cricket India vs Australia 4th Test
-- Allu Arjun Pushpa box office collection
 - epgview
 - best epg
 - epg for iptv
