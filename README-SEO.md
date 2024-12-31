@@ -38,24 +38,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man United vs Newcastle
 - Browns
 - Chelsea
+- Happy New Year
+- Brock Purdy
 - Mizzou Football
 - Paige and Craig break up
-- Happy New Year
-- Trinidad and Tobago state of emergency
 - Dan Campbell
+- Trinidad and Tobago state of emergency
+- Geomagnetic storm aurora forecast
+- U.S. Treasury Department
 - Jimmy Carter
-- Falcons vs Commanders
 - Packers vs Vikings
+- Falcons vs Commanders
 - Lakers
-- Saquon Barkley
-- Norovirus
-- Jets vs Bills
 - New Years Eve
 - Nathan Aspinall
 - British Airways tier points
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
-- Wind warning
 - Aston Villa vs Brighton
 - Trinidad and Tobago state of emergency
 - New years Honours list 2025
@@ -70,26 +69,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AC Milan
 - Netanyahu
 - LeBron James
+- Tesco opening hours New Year Eve
 - New Year's Eve
 - Man United vs Newcastle
 - Adani Wilmar
-- New Zealand vs Sri Lanka
+- Chelsea
 - Jaiswal
 - Rohit Sharma
+- Happy New Year 2025
 - Virat Kohli
 - Rishabh Pant
-- Happy New Year 2025
 - Jimmy Carter
-- Man City
 - ISRO
-- New Year Wishes
-- Punjab Bandh
-- World Test Championship
+- Man City
+- Punjab bandh
+- Hanuman jayanti 2024
 - Priyank Kharge
 - South Korea
 - Uma Thomas
 - WTC
 - Cricket India vs Australia 4th Test
+- Indo Farm Equipment GMP
 - epgview
 - best epg
 - epg for iptv
