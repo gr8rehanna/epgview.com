@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Alabama vs Michigan
 - College Football
+- Lake effect snow warning
+- Alabama
 - Puerto Rico
 - Winter Classic 2025
-- Alabama
-- Happy New Year's Eve
+- LSU Football
 - College Football Playoff schedule
 - Brad Pitt
-- LSU football
+- Champagne
+- Puerto Rico power outages
 - Polar vortex 2025
+- Illinois football
 - Lions vs 49ers
 - Linda Lavin death
-- LeBron James
-- Iowa football
-- Falcons
-- Man United vs Newcastle
 - Happy New Year
-- Brock Purdy
-- Browns
-- Chelsea
+- LeBron James
+- Falcons
+- Iowa football
+- Man United vs Newcastle
 - Johnnie Walker
 - Wayne Rooney
 - Happy New Year
-- New Year Honours List 2025
 - London fireworks
-- Max George
-- 2025
-- New years honours list 2024
+- New Year Honours List 2025
+- Edinburgh Hogmanay 2024
 - Happy New Year wishes
-- London fireworks 2024
+- 2025
+- Max George
+- New years honours list 2024
 - Brad Pitt
 - Sadiq Khan
+- Avicii
 - British Airways Tier Points
 - John Travolta
 - Nathan Aspinall
-- Avicii
+- New Year
 - Isak
 - Ipswich
 - Manchester united f.c.
-- New Year's Eve
+- New Year's day
 - Time
-- New Year's Day
 - New Year wishes for love
 - Adani Wilmar
 - Manchester United
 - Santosh Trophy
 - Unimech Aerospace share price
+- Bank holidays 2025
 - New Year's Eve
-- Happy New Year 2025
+- New Year wishes 2025
 - Rohit Sharma
-- Virat Kohli
 - Jimmy Carter
 - ISRO
-- Hanuman jayanti 2024
 - South Korea
 - Uma Thomas
 - Indo Farm Equipment GMP
 - WTC
 - Cricket India vs Australia 4th Test
 - Allu Arjun Pushpa box office collection
+- Nitish Kumar Reddy
 - epgview
 - best epg
 - epg for iptv
