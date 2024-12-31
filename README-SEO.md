@@ -32,41 +32,41 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Alabama vs Michigan
 - College Football
-- Lake effect snow warning
+- Lake Effect Snow Warning
 - Alabama
+- Puerto Rico power outage
 - Puerto Rico
 - Winter Classic 2025
-- LSU Football
-- College Football Playoff schedule
-- Brad Pitt
-- Champagne
-- Puerto Rico power outages
-- Polar vortex 2025
+- LSU football
 - Illinois football
+- South Carolina football
+- Champagne
+- Brad Pitt
+- Michigan
+- College Football playoffs
+- Aaron Brown
+- Polar vortex 2025
 - Lions vs 49ers
 - Linda Lavin death
-- Happy New Year
-- LeBron James
-- Falcons
 - Iowa football
-- Man United vs Newcastle
+- LeBron James
 - Johnnie Walker
 - Wayne Rooney
 - Happy New Year
 - London fireworks
 - New Year Honours List 2025
-- Edinburgh Hogmanay 2024
+- London New Year fireworks
 - Happy New Year wishes
-- 2025
+- Stephen Fry
 - Max George
 - New years honours list 2024
 - Brad Pitt
 - Sadiq Khan
 - Avicii
-- British Airways Tier Points
 - John Travolta
-- Nathan Aspinall
 - New Year
+- British Airways Tier Points
+- Nathan Aspinall
 - Isak
 - Ipswich
 - Manchester united f.c.
@@ -79,7 +79,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Unimech Aerospace share price
 - Bank holidays 2025
 - New Year's Eve
-- New Year wishes 2025
+- Happy New Year 2025 wishes
 - Rohit Sharma
 - Jimmy Carter
 - ISRO
