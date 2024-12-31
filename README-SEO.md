@@ -33,14 +33,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lions vs 49ers
 - Linda Lavin death
 - LeBron James
+- Iowa football
 - Falcons
 - Man United vs Newcastle
-- Iowa vs Missouri
 - Browns
 - Brock Purdy
 - Chelsea
 - Happy New Year
 - Paige and Craig break up
+- New Year's Eve
 - Mizzou Football
 - Trinidad and Tobago state of emergency
 - U.S. Treasury Department
@@ -49,11 +50,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jimmy Carter
 - Packers vs Vikings
 - Falcons vs Commanders
-- Lakers
 - New Years Eve
+- Edinburgh Hogmanay 2024
 - Nathan Aspinall
 - British Airways tier points
-- Edinburgh Hogmanay 2024
+- New years Honours list 2024
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
 - Aston Villa vs Brighton
@@ -69,7 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Stoke City
 - Silverfish
 - AC Milan
-- Netanyahu
 - New Year's Eve
 - Man United vs Newcastle
 - Adani Wilmar
@@ -86,10 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City
 - Punjab Bandh
 - Hanuman jayanti 2024
-- Priyank Kharge
 - South Korea
 - Uma Thomas
 - Indo Farm Equipment GMP
+- WTC
 - epgview
 - best epg
 - epg for iptv
