@@ -30,34 +30,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Lions vs 49ers
 - Falcons
 - Linda Lavin death
 - LeBron James
-- Lions vs 49ers
 - Iowa football
 - Man United vs Newcastle
 - Browns
 - Chelsea
-- Happy New Year
 - Mizzou Football
-- Will Ferrell
-- Trinidad and Tobago state of emergency
 - Paige and Craig break up
+- Happy New Year
+- Trinidad and Tobago state of emergency
+- Dan Campbell
 - Jimmy Carter
-- Packers vs Vikings
 - Falcons vs Commanders
-- Saquon Barkley
+- Packers vs Vikings
 - Lakers
+- Saquon Barkley
 - Norovirus
-- NFL Draft order
+- Jets vs Bills
 - New Years Eve
 - Nathan Aspinall
+- British Airways tier points
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
 - Wind warning
 - Aston Villa vs Brighton
 - Trinidad and Tobago state of emergency
-- New years Honours List 2025
+- New years Honours list 2025
 - Hogmanay
 - Elton John
 - Stephen Bunting
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AC Milan
 - Netanyahu
 - LeBron James
-- Tesco opening hours New Year Eve
+- New Year's Eve
 - Man United vs Newcastle
 - Adani Wilmar
+- New Zealand vs Sri Lanka
 - Jaiswal
 - Rohit Sharma
 - Virat Kohli
-- Happy New Year 2025
 - Rishabh Pant
+- Happy New Year 2025
 - Jimmy Carter
 - Man City
-- New Year wishes 2025
 - ISRO
+- New Year Wishes
 - Punjab Bandh
+- World Test Championship
+- Priyank Kharge
 - South Korea
 - Uma Thomas
 - WTC
 - Cricket India vs Australia 4th Test
-- Allu Arjun Pushpa box office collection
-- Plane crash
-- Bumrah
-- Nitish Kumar Reddy
 - epgview
 - best epg
 - epg for iptv
