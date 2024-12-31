@@ -30,39 +30,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Falcons
 - Linda Lavin death
 - LeBron James
+- Lions vs 49ers
 - Iowa football
-- Falcons
 - Man United vs Newcastle
 - Browns
 - Chelsea
 - Happy New Year
-- Amen Thompson
-- Lions vs 49ers
 - Mizzou Football
+- Will Ferrell
 - Trinidad and Tobago state of emergency
 - Paige and Craig break up
 - Jimmy Carter
-- Falcons vs Commanders
 - Packers vs Vikings
-- Cowboys vs Eagles
+- Falcons vs Commanders
 - Saquon Barkley
 - Lakers
 - Norovirus
+- NFL Draft order
 - New Years Eve
 - Nathan Aspinall
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
-- Aston Villa vs Brighton
 - Wind warning
+- Aston Villa vs Brighton
 - Trinidad and Tobago state of emergency
-- New years Honours list 2025
+- New years Honours List 2025
 - Hogmanay
 - Elton John
 - Stephen Bunting
-- Callan Rydz
 - Zirkzee
+- Callan Rydz
 - Chelsea FC
 - Stoke City
 - Silverfish
@@ -72,21 +72,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tesco opening hours New Year Eve
 - Man United vs Newcastle
 - Adani Wilmar
-- New Year 2025
-- New Zealand vs Sri Lanka
+- Jaiswal
 - Rohit Sharma
+- Virat Kohli
+- Happy New Year 2025
 - Rishabh Pant
 - Jimmy Carter
-- Happy New Year 2025
 - Man City
+- New Year wishes 2025
 - ISRO
 - Punjab Bandh
-- World Test Championship
-- Jaiswal
 - South Korea
-- WTC
 - Uma Thomas
+- WTC
 - Cricket India vs Australia 4th Test
+- Allu Arjun Pushpa box office collection
 - Plane crash
 - Bumrah
 - Nitish Kumar Reddy
