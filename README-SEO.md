@@ -34,12 +34,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Linda Lavin death
 - LeBron James
 - Falcons
-- Iowa vs Missouri
 - Man United vs Newcastle
+- Iowa vs Missouri
 - Browns
 - Brock Purdy
-- Chelsea
 - Happy New Year
+- Chelsea
 - Paige and Craig break up
 - Mizzou Football
 - Trinidad and Tobago state of emergency
@@ -52,14 +52,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - New Years Eve
 - Edinburgh Hogmanay 2024
-- New years Honours list 2024
-- Nathan Aspinall
 - British Airways tier points
+- Nathan Aspinall
+- Happy New Year
+- Manchester united f.c.
+- Ipswich
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
+- Wind warning
 - Aston Villa vs Brighton
+- New years Honours List 2025
 - Trinidad and Tobago state of emergency
-- New years Honours list 2025
 - Zirkzee
 - Elton John
 - Stephen Bunting
@@ -67,22 +70,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hogmanay
 - Happy New Year 2025
 - Chelsea FC
-- Tesco opening hours New Year Eve
-- Stoke City
-- Silverfish
 - New Year's Eve
-- Manchester United
+- Man United vs Newcastle
 - Adani Wilmar
 - Chelsea
 - New Year 2025
-- Unimech Aerospace share price
+- Unimech Aerospace Share Price
 - Rohit Sharma retirement
 - Happy New Year 2025
 - Rohit Sharma
 - Virat Kohli
 - Jimmy Carter
 - ISRO
-- Man City
 - Punjab bandh
 - Hanuman jayanti 2024
 - South Korea
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Indo Farm Equipment GMP
 - WTC
 - Cricket India vs Australia 4th Test
+- Allu Arjun Pushpa box office collection
 - epgview
 - best epg
 - epg for iptv
