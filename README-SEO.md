@@ -31,11 +31,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Lions vs 49ers
-- Falcons
 - Linda Lavin death
 - LeBron James
-- Iowa football
+- Falcons
 - Man United vs Newcastle
+- Iowa vs Missouri
 - Browns
 - Brock Purdy
 - Chelsea
@@ -43,13 +43,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Paige and Craig break up
 - Mizzou Football
 - Trinidad and Tobago state of emergency
+- U.S. Treasury Department
 - Jeopardy!
 - Geomagnetic storm aurora forecast
-- Deebo Samuel
-- Troy Aikman
 - Jimmy Carter
 - Packers vs Vikings
 - Falcons vs Commanders
+- Lakers
 - New Years Eve
 - Nathan Aspinall
 - British Airways tier points
@@ -65,28 +65,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Callan Rydz
 - Hogmanay
 - Chelsea FC
+- Happy New Year 2025
 - Stoke City
 - Silverfish
 - AC Milan
 - Netanyahu
-- Tesco opening hours New Year Eve
 - New Year's Eve
 - Man United vs Newcastle
 - Adani Wilmar
 - Chelsea
 - New Year 2025
-- Rohit Sharma retirement
 - Unimech Aerospace share price
+- Rohit Sharma retirement
 - Happy New Year 2025
 - Jaiswal
 - Rohit Sharma
 - Virat Kohli
-- Rishabh Pant
 - Jimmy Carter
 - ISRO
 - Man City
 - Punjab Bandh
 - Hanuman jayanti 2024
+- Priyank Kharge
 - South Korea
 - Uma Thomas
 - Indo Farm Equipment GMP
