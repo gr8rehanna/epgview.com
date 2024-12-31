@@ -37,15 +37,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Iowa football
 - Man United vs Newcastle
 - Browns
-- Chelsea
 - Brock Purdy
+- Chelsea
+- Happy New Year
 - Paige and Craig break up
 - Mizzou Football
-- Happy New Year
 - Trinidad and Tobago state of emergency
 - Jeopardy!
-- U.S. Treasury Department
 - Geomagnetic storm aurora forecast
+- Deebo Samuel
 - Troy Aikman
 - Jimmy Carter
 - Packers vs Vikings
@@ -59,20 +59,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs Brighton
 - Trinidad and Tobago state of emergency
 - New years Honours list 2025
+- Zirkzee
 - Elton John
 - Stephen Bunting
-- Zirkzee
 - Callan Rydz
 - Hogmanay
 - Chelsea FC
 - Stoke City
 - Silverfish
 - AC Milan
-- Jeopardy!
 - Netanyahu
+- Tesco opening hours New Year Eve
+- New Year's Eve
 - Man United vs Newcastle
 - Adani Wilmar
 - Chelsea
+- New Year 2025
+- Rohit Sharma retirement
+- Unimech Aerospace share price
 - Happy New Year 2025
 - Jaiswal
 - Rohit Sharma
@@ -85,11 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hanuman jayanti 2024
 - South Korea
 - Uma Thomas
-- WTC
-- Cricket India vs Australia 4th Test
 - Indo Farm Equipment GMP
-- Allu Arjun Pushpa box office collection
-- Bumrah
 - epgview
 - best epg
 - epg for iptv
