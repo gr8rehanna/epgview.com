@@ -30,18 +30,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- LeBron James
 - Iowa football
+- LeBron James
 - Atlanta Falcons
-- Browns
 - Man United vs Newcastle
+- Browns
 - Chelsea
-- Happy New Year
 - Amen Thompson
 - Mizzou Football
-- Trinidad and Tobago state of emergency
 - Lions vs 49ers
-- Boston Celtics
+- Trinidad and Tobago state of emergency
+- Happy new year 2025
 - Paige and Craig break up
 - Jimmy Carter
 - Falcons vs Commanders
@@ -50,18 +49,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saquon Barkley
 - Lakers
 - Norovirus
+- NFL Draft order
+- Nathan Aspinall
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
-- Man Utd
 - Aston Villa vs Brighton
 - Wind warning
 - Trinidad and Tobago state of emergency
+- New years Honours list 2025
+- Hogmanay
+- Elton John
 - Stephen Bunting
 - Callan Rydz
-- Elton John
-- New years Honours list 2025
 - Zirkzee
-- Hogmanay
 - Chelsea FC
 - Stoke City
 - AC Milan
@@ -69,7 +69,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Netanyahu
 - LeBron James
 - Tesco opening hours New Year Eve
-- Happy new year 2025
+- Jimmy Carter
 - Man United vs Newcastle
 - Adani Wilmar
 - New Zealand vs Sri Lanka
@@ -77,12 +77,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rishabh Pant
 - Happy New Year 2025
 - Jimmy Carter
-- Mancity
+- Man City
 - New Year Wishes 2025
 - ISRO
-- Happy New Year
 - Punjab Bandh
-- New Year Wishes
+- World Test Championship
 - Jaiswal
 - South Korea
 - WTC
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket India vs Australia 4th Test
 - Plane crash
 - Bumrah
+- Nitish Kumar Reddy
 - epgview
 - best epg
 - epg for iptv
