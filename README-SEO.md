@@ -30,54 +30,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Alabama vs Michigan
 - College Football
-- Alabama football
+- College Football today
 - Puerto Rico
 - Winter Classic 2025
+- Happy New Year's Eve
 - Lions vs 49ers
-- Linda Lavin death
 - Commanders
-- Iowa football
+- Linda Lavin death
 - LeBron James
+- Iowa football
 - Falcons
 - Happy New Year
 - Man United vs Newcastle
 - Brock Purdy
 - Browns
-- College football today
+- Chelsea
+- Bowl games today
 - Mizzou Football
 - Will Ferrell
-- Chelsea
-- Trinidad and Tobago state of emergency
-- New Year's Eve
-- New Year's Eve
 - Johnnie Walker
+- London fireworks
 - Happy New Year
 - New Year Honours List 2025
+- Max George
 - New years honours list 2024
 - 2025
-- Max George
 - Sadiq Khan
 - British Airways tier points
 - Nathan Aspinall
 - John Travolta
 - Isak
+- Ipswich
+- London fireworks 2024
+- Manchester united f.c.
+- Avicii
+- New Year's Eve
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
 - Wind warning
-- Aston Villa vs Brighton
-- New Year's Honours List 2025
-- Happy New Year 2025
-- Trinidad and Tobago state of emergency
-- Zirkzee
 - Adani Wilmar
+- New Year wishes for love
 - Manchester United
-- New year wishes for love
-- Chelsea
+- Santosh Trophy
 - Unimech Aerospace share price
-- Nitesh Rane
-- New Year's Eve
+- New Year Wishes 2025
 - Happy New Year 2025
+- Jaiswal
 - Rohit Sharma
 - Virat Kohli
 - Jimmy Carter
