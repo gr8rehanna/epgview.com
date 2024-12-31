@@ -32,44 +32,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Lions vs 49ers
 - Linda Lavin death
+- Iowa football
 - LeBron James
 - Falcons
 - Man United vs Newcastle
-- Iowa vs Missouri
 - Browns
 - Brock Purdy
 - Happy New Year
 - Chelsea
-- Paige and Craig break up
 - Mizzou Football
 - Trinidad and Tobago state of emergency
-- U.S. Treasury Department
+- US Treasury Department
 - Jeopardy!
 - Geomagnetic storm aurora forecast
+- Deebo Samuel
+- Craig Conover
 - Jimmy Carter
-- Falcons vs Commanders
+- Commanders
 - Packers
-- Lakers
 - New Years Eve
 - Edinburgh Hogmanay 2024
-- British Airways tier points
-- Nathan Aspinall
 - Happy New Year
-- Manchester united f.c.
+- British airways Tier Points
+- Nathan Aspinall
+- 2025
 - Ipswich
+- Gareth Southgate
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
 - Wind warning
 - Aston Villa vs Brighton
-- New years Honours List 2025
+- New years Honours list 2025
 - Trinidad and Tobago state of emergency
 - Zirkzee
 - Elton John
-- Stephen Bunting
-- Callan Rydz
-- Hogmanay
 - Happy New Year 2025
-- Chelsea FC
+- Stephen Bunting
+- Hogmanay
+- Callan Rydz
 - New Year's Eve
 - Man United vs Newcastle
 - Adani Wilmar
@@ -82,14 +82,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Virat Kohli
 - Jimmy Carter
 - ISRO
-- Punjab bandh
+- Punjab Bandh
 - Hanuman jayanti 2024
 - South Korea
 - Uma Thomas
 - Indo Farm Equipment GMP
-- WTC
 - Cricket India vs Australia 4th Test
 - Allu Arjun Pushpa box office collection
+- Nitish Kumar Reddy
 - epgview
 - best epg
 - epg for iptv
