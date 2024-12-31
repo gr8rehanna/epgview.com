@@ -38,58 +38,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man United vs Newcastle
 - Browns
 - Chelsea
-- Happy New Year
 - Brock Purdy
-- Mizzou Football
 - Paige and Craig break up
-- Dan Campbell
+- Mizzou Football
+- Happy New Year
 - Trinidad and Tobago state of emergency
-- Geomagnetic storm aurora forecast
+- Jeopardy!
 - U.S. Treasury Department
+- Geomagnetic storm aurora forecast
+- Troy Aikman
 - Jimmy Carter
 - Packers vs Vikings
 - Falcons vs Commanders
-- Lakers
 - New Years Eve
 - Nathan Aspinall
 - British Airways tier points
+- Edinburgh Hogmanay 2024
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
 - Aston Villa vs Brighton
 - Trinidad and Tobago state of emergency
 - New years Honours list 2025
-- Hogmanay
 - Elton John
 - Stephen Bunting
 - Zirkzee
 - Callan Rydz
+- Hogmanay
 - Chelsea FC
 - Stoke City
 - Silverfish
 - AC Milan
+- Jeopardy!
 - Netanyahu
-- LeBron James
-- Tesco opening hours New Year Eve
-- New Year's Eve
 - Man United vs Newcastle
 - Adani Wilmar
 - Chelsea
+- Happy New Year 2025
 - Jaiswal
 - Rohit Sharma
-- Happy New Year 2025
 - Virat Kohli
 - Rishabh Pant
 - Jimmy Carter
 - ISRO
 - Man City
-- Punjab bandh
+- Punjab Bandh
 - Hanuman jayanti 2024
-- Priyank Kharge
 - South Korea
 - Uma Thomas
 - WTC
 - Cricket India vs Australia 4th Test
 - Indo Farm Equipment GMP
+- Allu Arjun Pushpa box office collection
+- Bumrah
 - epgview
 - best epg
 - epg for iptv
