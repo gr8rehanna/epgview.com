@@ -48,48 +48,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deebo Samuel
 - Craig Conover
 - Jimmy Carter
+- Packers vs Vikings
 - Commanders
-- Packers
-- New Years Eve
-- Edinburgh Hogmanay 2024
-- Happy New Year
-- British airways Tier Points
+- New Year's Eve
+- Gareth Southgate
+- Happy New Year!
+- British Airways tier points
 - Nathan Aspinall
 - 2025
-- Ipswich
-- Gareth Southgate
 - Man United vs Newcastle
 - Ipswich Town vs Chelsea
 - Wind warning
-- Aston Villa vs Brighton
-- New years Honours list 2025
+- New Years Honours list 2025
 - Trinidad and Tobago state of emergency
+- Aston Villa
 - Zirkzee
-- Elton John
 - Happy New Year 2025
+- Elton John
 - Stephen Bunting
 - Hogmanay
 - Callan Rydz
+- Chelsea FC
+- Tesco opening hours New Year Eve
 - New Year's Eve
-- Man United vs Newcastle
+- 2025
 - Adani Wilmar
+- Manchester United
 - Chelsea
-- New Year 2025
-- Unimech Aerospace Share Price
+- Unimech Aerospace share price
 - Rohit Sharma retirement
 - Happy New Year 2025
 - Rohit Sharma
 - Virat Kohli
 - Jimmy Carter
 - ISRO
+- New Year
 - Punjab Bandh
 - Hanuman jayanti 2024
 - South Korea
 - Uma Thomas
 - Indo Farm Equipment GMP
+- WTC
 - Cricket India vs Australia 4th Test
-- Allu Arjun Pushpa box office collection
-- Nitish Kumar Reddy
 - epgview
 - best epg
 - epg for iptv
