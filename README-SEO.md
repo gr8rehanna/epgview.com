@@ -34,11 +34,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Penn State Football
 - Alabama vs Michigan
 - New Year's Day
+- Where to watch: The ball drop
 - Ryan Seacrest
 - South Carolina football
 - Anderson Cooper
 - Puerto Rico
-- New Year countdown 2025
 - LSU football
 - Ohio State Football
 - Lake effect snow warning
@@ -47,33 +47,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Celtics
 - Auld lang syne
 - Notre Dame football
-- Brad Pitt
 - Georgia football
+- Brad Pitt
 - Texas Football
-- New Year's Day
 - Bob Geldof
 - Time
 - Coldplay
+- London Eye
+- Trent Alexander-Arnold
 - Countdown
 - Queen
 - New Years Eve
 - London fireworks
 - Johnnie Walker
 - Happy New Year
-- Jools Holland
 - 2025
 - Wayne Rooney
+- Jools Holland
 - Robbie Williams
-- New Year's Honours list 2024
 - EuroMillions
-- Happy New Year wishes
 - New Year Honours List 2025
 - Brad Pitt
 - Auld lang syne
+- Max George
 - New years day
 - Time
 - Date
-- New Year's Day 2025
+- Anurag kashyap
+- Gautam Gambhir
 - New Year's Eve
 - 2025
 - New Year wishes for love
@@ -81,15 +82,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Santosh Trophy
 - Manchester United
 - Unimech Aerospace share price
-- Bank Holidays 2025
-- EaseMyTrip Nishant Pitti
+- Bank holidays 2025
 - New Zealand
 - ITC Hotels demerger
 - Suchir Balaji
 - Indo Farm Equipment IPO GMP
+- Happy New Year 2025 Wishes
 - Happy New Year 2025
 - New Year Wishes 2025
-- Rohit Sharma
 - epgview
 - best epg
 - epg for iptv
