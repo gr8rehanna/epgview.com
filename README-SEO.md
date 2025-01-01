@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- New Orleans
+- Kesha
 - Suns
 - Penn State Football
-- Alabama vs Michigan
 - New Year's Day
+- Alabama vs Michigan
 - Where to watch: The ball drop
 - Ryan Seacrest
-- South Carolina football
 - Anderson Cooper
+- South Carolina football
 - Puerto Rico
-- New Year countdown 2025
-- LSU football
+- LSU Football
 - Ohio State Football
 - Lake effect snow warning
+- New Year countdown 2025
 - Winter Classic 2025
 - Notre Dame football
+- Is Walmart open on New Year's Day
 - Texas Football
+- Alabama
 - Celtics
-- Auld lang syne
-- Brad Pitt
-- New Year's Day
+- New year's day
 - Bob Geldof
 - Time
+- New Orleans
 - Coldplay
 - London Eye
 - Trent Alexander-Arnold
-- New Orleans
-- Countdown
 - Missing You
-- Queen
+- Plymouth Argyle vs Bristol City
+- Countdown
 - Traitors
-- New Years Eve
+- Queen
+- New Year's Eve
 - London fireworks
 - Johnnie Walker
 - Wayne Rooney
-- Robbie Williams
 - New Year's Eve 2024
+- Robbie Williams
 - 2025
 - New Year Honours List 2025
-- Brad Pitt
 - Happy New Year 2025
 - New Year's Day
 - Time
+- Anurag Kashyap
 - Gautam Gambhir
-- Resolution
 - Stock Market Holidays 2025
 - New Year's Eve
 - New Year wishes for love
 - Adani Wilmar
 - Santosh Trophy
 - Manchester United
-- Unimech Aerospace share price
 - Bank holidays 2025
+- Unimech Aerospace share price
+- New Year's Eve fireworks
 - Indo Farm Equipment IPO GMP
 - New Zealand
 - ITC Hotels demerger
 - New Year Wishes 2025
 - Happy New Year 2025
 - Happy New Year 2025 Wishes
-- New Year Wishes 2025
 - epgview
 - best epg
 - epg for iptv
