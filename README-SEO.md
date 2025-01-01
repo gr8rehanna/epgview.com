@@ -30,30 +30,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Rose bowl Parade 2025
 - Kesha
 - Suns
 - Penn State Football
 - New Year's Day
 - Alabama vs Michigan
 - Where to watch: The ball drop
+- South Carolina football
 - Ryan Seacrest
 - Anderson Cooper
-- Puerto Rico
 - Ohio State Football
+- Rose bowl 2025
+- Sugar Bowl 2025
+- Puerto Rico
 - LSU Football
-- South Carolina football
+- Is Walmart open on New Year's Day
+- Carrie Underwood
 - Lake effect snow warning
 - Winter Classic 2025
-- Notre Dame football
-- Is Walmart open on New Year's Day
+- New Year countdown 2025
 - Texas Football
-- Rose Bowl 2025
-- Alabama
-- New year's day
+- New Year's Day
 - Bob Geldof
-- New Orleans
 - Missing You
+- New Orleans
 - Time
 - Traitors
 - Plymouth Argyle vs Bristol City
@@ -61,28 +61,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Coldplay
 - London Eye
 - Countdown
-- Queen
 - SAS Rogue Heroes
+- Queen
+- Chris Dobey
+- QPR
 - Flood warnings
+- New Year's Day 2025
+- Sean Connery
 - New Year's Eve
-- Johnnie Walker
 - London fireworks
-- Happy New Year!
-- Wayne Rooney
-- Robbie Williams
-- Happy New Year! 2025
+- Happy New Year 2025
 - New Year's Day
 - Time
-- Anurag Kashyap
+- Anurag kashyap
 - Gautam Gambhir
-- Stock Market Holidays 2025
-- New Year's Eve
+- New Orleans
+- CTET Answer Key
 - New Year wishes for love
+- 2025
 - Adani Wilmar
 - Santosh Trophy
 - Manchester United
-- Bank holidays 2025
-- Unimech Aerospace share price
+- New Year's Eve fireworks
 - EaseMyTrip Nishant Pitti
 - Indo Farm Equipment IPO GMP
 - New Zealand
