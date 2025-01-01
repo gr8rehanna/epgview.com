@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Penn State Football
 - Alabama vs Michigan
-- College Football
 - South Carolina football
-- College Football Playoff
-- LSU Football
-- Lake effect snow Warning
+- LSU football
+- Ohio State Football
+- Lake effect snow warning
 - Winter Classic 2025
-- Louisville vs Washington
-- Puerto Rico power outage
+- Ryan Seacrest
+- Puerto Rico power outages
 - Cfb Playoff
-- Alabama
+- Louisville vs Washington
 - Brad Pitt
 - Puerto Rico
+- Anderson Cooper
+- Rose Bowl 2025
 - Notre Dame football
+- Where to watch the ball drop
+- Georgia football
+- Cavs
 - Texas football
-- Is Walmart open on New Year's Day
-- Michigan
-- Aaron Brown
-- Ezekiel Elliott
-- Clippers
 - Wind warning
-- New Year Countdown
-- New Year's Day
 - Time
-- New Year's Eve
-- London fireworks
+- Coldplay
+- London Eye
+- Countdown
+- Queen
+- New Years Eve
 - Johnnie Walker
 - Jools Holland
 - Happy New Year
 - Wayne Rooney
 - Robbie Williams
 - Happy New Year wishes
+- New Year's Honours list 2024
 - EuroMillions
 - 2025
-- New Year Honours List 2025
 - Brad Pitt
 - Auld lang syne
 - Max George
-- New Year's Honours list 2024
-- Jane McDonald
+- New Year's Eve 2024
 - New years day
 - Time
-- New Year Countdown
+- Date
 - नए साल का पहला दिन
 - Anurag Kashyap
-- New Year wishes for love
+- New Year's Day 2025
+- Kekius Maximus
+- New Year Wishes for love
 - Adani Wilmar
-- Manchester United
+- Santosh Trophy
 - Unimech Aerospace share price
 - Bank holidays 2025
 - New Year's Eve
-- New Year Wishes 2025
+- Happy New Year 2025 Wishes
 - Rohit Sharma
 - Jimmy Carter
 - ISRO
 - South Korea
 - Uma Thomas
 - Indo Farm Equipment GMP
-- WTC
-- Cricket India vs Australia 4th Test
 - epgview
 - best epg
 - epg for iptv
