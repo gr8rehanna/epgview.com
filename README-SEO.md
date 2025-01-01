@@ -30,62 +30,62 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Arsenal
+- Restaurants open on New Year's Day
 - Suns
 - New Year's Day
 - Penn State Football
-- Alabama football
+- Alabama vs Michigan
 - Where to watch: The ball drop
-- South Carolina football
 - Rose bowl 2025
 - Ohio State Football
+- South Carolina football
 - Anderson Cooper
 - Is Walmart open on New Year's Day
+- Texas Football
 - Puerto Rico
-- Sugar Bowl 2025
 - Carrie Underwood
 - Lake effect snow warning
-- Texas Football
 - Winter Classic 2025
 - Diplo
-- Baylor football
 - New Year's Rockin' Eve
-- Alabama
+- Bret Bielema
 - New Year's Day
-- Bob Geldof
+- Brentford vs Arsenal
 - Championship
+- Bob Geldof
 - Missing You
 - New Orleans
-- Traitors
 - Leeds United
-- Brentford vs Arsenal
+- Traitors
 - Marti Pellow
 - Time
+- The Man Who Would Be King
 - Plymouth Argyle vs Bristol City
-- Sean Connery
-- Uber
+- Flood warnings
 - Trent Alexander-Arnold
-- London Eye
 - Coldplay
+- London Eye
 - Chris Martin
-- Countdown
-- SAS Rogue Heroes
+- Sheffield Wednesday
 - Sam Thompson
-- Happy New Year 2025
+- SAS Rogue Heroes
 - New Year's Day
+- Happy New Year 2025
 - New Year
 - Time
-- Gautam Gambhir
-- Anurag kashyap
 - Brentford vs Arsenal
+- Gautam Gambhir
+- Anurag Kashyap
 - Stock Market Holidays 2025
 - CTET Answer Key
 - New Year celebration
 - New Year Wishes 2025
 - New Year wishes for love
+- 2025
 - Adani Wilmar
 - Santosh Trophy
 - Manchester United
-- EaseMyTrip Nishant Pitti
 - Indo Farm Equipment IPO gmp
 - New Zealand
 - ITC Hotels demerger
