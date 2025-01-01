@@ -30,38 +30,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Año Nuevo
 - Suns
 - Penn State Football
 - Alabama vs Michigan
 - New Year's Day
 - Ryan Seacrest
-- Anderson Cooper
-- LSU football
 - South Carolina football
+- Anderson Cooper
 - Puerto Rico
-- New Year's Countdown
+- New Year countdown 2025
+- LSU football
 - Ohio State Football
 - Lake effect snow warning
 - Winter Classic 2025
 - Louisville vs Washington
 - Celtics
-- Cfb Playoff
 - Auld lang syne
-- Notre Dame Football
+- Notre Dame football
 - Brad Pitt
+- Georgia football
+- Texas Football
 - New Year's Day
+- Bob Geldof
 - Time
-- New Year's Countdown
 - Coldplay
-- London Eye
 - Countdown
 - Queen
-- New Year's Eve
+- New Years Eve
 - London fireworks
 - Johnnie Walker
 - Happy New Year
 - Jools Holland
+- 2025
 - Wayne Rooney
 - Robbie Williams
 - New Year's Honours list 2024
@@ -74,7 +74,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Time
 - Date
 - New Year's Day 2025
-- Gautam Gambhir
 - New Year's Eve
 - 2025
 - New Year wishes for love
@@ -82,14 +81,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Santosh Trophy
 - Manchester United
 - Unimech Aerospace share price
-- Suchir Balaji
+- Bank Holidays 2025
+- EaseMyTrip Nishant Pitti
+- New Zealand
 - ITC Hotels demerger
+- Suchir Balaji
 - Indo Farm Equipment IPO GMP
 - Happy New Year 2025
 - New Year Wishes 2025
 - Rohit Sharma
-- Jimmy Carter
-- ISRO
 - epgview
 - best epg
 - epg for iptv
