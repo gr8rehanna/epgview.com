@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Rose bowl Parade 2025
 - Kesha
 - Suns
 - Penn State Football
@@ -38,39 +39,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Where to watch: The ball drop
 - Ryan Seacrest
 - Anderson Cooper
-- South Carolina football
 - Puerto Rico
-- LSU Football
 - Ohio State Football
+- LSU Football
+- South Carolina football
 - Lake effect snow warning
-- New Year countdown 2025
 - Winter Classic 2025
 - Notre Dame football
 - Is Walmart open on New Year's Day
 - Texas Football
+- Rose Bowl 2025
 - Alabama
-- Celtics
 - New year's day
 - Bob Geldof
-- Time
 - New Orleans
+- Missing You
+- Time
+- Traitors
+- Plymouth Argyle vs Bristol City
+- Trent Alexander-Arnold
 - Coldplay
 - London Eye
-- Trent Alexander-Arnold
-- Missing You
-- Plymouth Argyle vs Bristol City
 - Countdown
-- Traitors
 - Queen
+- SAS Rogue Heroes
+- Flood warnings
 - New Year's Eve
-- London fireworks
 - Johnnie Walker
+- London fireworks
+- Happy New Year!
 - Wayne Rooney
-- New Year's Eve 2024
 - Robbie Williams
-- 2025
-- New Year Honours List 2025
-- Happy New Year 2025
+- Happy New Year! 2025
 - New Year's Day
 - Time
 - Anurag Kashyap
@@ -83,7 +83,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manchester United
 - Bank holidays 2025
 - Unimech Aerospace share price
-- New Year's Eve fireworks
+- EaseMyTrip Nishant Pitti
 - Indo Farm Equipment IPO GMP
 - New Zealand
 - ITC Hotels demerger
