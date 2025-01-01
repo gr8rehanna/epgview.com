@@ -32,28 +32,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Penn State Football
 - Alabama vs Michigan
-- Where to watch: The ball drop
 - New Year's Day
 - Ryan Seacrest
 - South Carolina football
 - LSU football
 - Anderson Cooper
-- Ohio State football
+- Puerto Rico power outages
+- Ohio State Football
+- New Year's Countdown
 - Lake effect snow warning
 - Winter Classic 2025
-- Puerto Rico power outages
-- Cavaliers vs Lakers
-- Cfb Playoff
-- New Year's Countdown
 - Louisville vs Washington
-- New Year
 - Puerto Rico
 - Celtics
+- Cfb Playoff
+- Notre Dame Football
 - Brad Pitt
-- Wind warning
+- Auld lang syne
+- Georgia football
+- New Year's Day
 - Time
-- New Year's Countdown
 - Coldplay
+- London Eye
 - Countdown
 - Queen
 - New Year's Eve
@@ -63,9 +63,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jools Holland
 - Wayne Rooney
 - Robbie Williams
-- Happy New Year wishes
 - New Year's Honours list 2024
 - EuroMillions
+- Happy New Year wishes
 - 2025
 - New Year Honours List 2025
 - Brad Pitt
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New Year wishes for love
 - Adani Wilmar
 - Santosh Trophy
+- Manchester United
 - Unimech Aerospace share price
-- New Zealand
-- ITC Hotels demerger
+- EaseMyTrip Nishant Pitti
 - Indo Farm Equipment IPO GMP
 - Happy New Year 2025
 - Rohit Sharma
 - Jimmy Carter
 - ISRO
-- Jaiswal
 - South Korea
 - Uma Thomas
 - Indo Farm Equipment GMP
+- WTC
 - epgview
 - best epg
 - epg for iptv
