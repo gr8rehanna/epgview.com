@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Suns
 - Penn State Football
 - Alabama vs Michigan
-- New Year's Day
 - Where to watch: The ball drop
 - Ryan Seacrest
 - South Carolina football
 - Anderson Cooper
 - Puerto Rico
 - LSU football
-- Ohio State Football
+- Ohio State football
 - Lake effect snow warning
-- New Year countdown 2025
 - Winter Classic 2025
+- Notre Dame football
 - Louisville vs Washington
 - Celtics
 - Auld lang syne
-- Notre Dame football
 - Brad Pitt
 - Texas Football
+- Is Walmart open on New Year's Day
+- Spurs
 - Bob Geldof
 - Time
 - Coldplay
@@ -57,11 +57,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Trent Alexander-Arnold
 - Countdown
 - Queen
+- Missing You
 - New Year's Eve
-- Johnnie Walker
 - London fireworks
+- Johnnie Walker
 - 2025
-- Happy New Year
 - Wayne Rooney
 - Jools Holland
 - Robbie Williams
@@ -70,7 +70,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Auld lang syne
 - Max George
 - Jools Holland Hootenanny
-- New years day
+- New Year's Day
 - Time
 - Date
 - Gautam Gambhir
@@ -84,7 +84,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New Zealand
 - ITC Hotels demerger
 - Indo Farm Equipment IPO GMP
-- Happy New Year
+- New Year Wishes 2025
 - Happy New Year 2025
 - Happy New Year 2025 Wishes
 - New Year Wishes 2025
