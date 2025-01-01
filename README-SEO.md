@@ -42,12 +42,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - LSU football
 - Ohio State Football
 - Lake effect snow warning
+- New Year countdown 2025
 - Winter Classic 2025
 - Louisville vs Washington
 - Celtics
 - Auld lang syne
 - Notre Dame football
-- Georgia football
 - Brad Pitt
 - Texas Football
 - Bob Geldof
@@ -57,39 +57,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Trent Alexander-Arnold
 - Countdown
 - Queen
-- New Years Eve
-- London fireworks
+- New Year's Eve
 - Johnnie Walker
-- Happy New Year
+- London fireworks
 - 2025
+- Happy New Year
 - Wayne Rooney
 - Jools Holland
 - Robbie Williams
-- EuroMillions
 - New Year Honours List 2025
 - Brad Pitt
 - Auld lang syne
 - Max George
+- Jools Holland Hootenanny
 - New years day
 - Time
 - Date
-- Anurag kashyap
 - Gautam Gambhir
 - New Year's Eve
-- 2025
 - New Year wishes for love
 - Adani Wilmar
 - Santosh Trophy
 - Manchester United
 - Unimech Aerospace share price
-- Bank holidays 2025
+- Bank Holidays 2025
 - New Zealand
 - ITC Hotels demerger
-- Suchir Balaji
 - Indo Farm Equipment IPO GMP
-- Happy New Year 2025 Wishes
+- Happy New Year
 - Happy New Year 2025
+- Happy New Year 2025 Wishes
 - New Year Wishes 2025
+- Rohit Sharma
+- Jimmy Carter
 - epgview
 - best epg
 - epg for iptv
