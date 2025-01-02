@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Skattebo
-- Cybertruck explosion
+- Cybertruck
 - Arsenal
-- Año nuevo
 - Kenny Dillingham
 - Jocelyn Wildenstein
+- Breaking news
+- Billie jean king
 - Timberwolves
 - Suns
 - Ole Miss football
-- Missing You netflix
 - New York
 - New Year's Day
-- Penn State Football
 - Texas Football
-- Alabama football
-- Ohio State Football
-- College football
+- Penn State Football
+- College Football Playoff
+- Alabama Football
 - Rose bowl 2025
-- Where to watch the Ball Drop
+- Where to watch the ball drop
 - Is Walmart open on New Year's Day
+- Anderson Cooper
 - New Year's Day
 - Brentford vs Arsenal
 - Darts
@@ -59,22 +59,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bob Geldof
 - Nosferatu
 - Sunderland vs Sheffield United
+- Stephen Bunting
 - Leeds United
 - SAS Rogue Heroes
 - Sam Thompson
 - Marti Pellow
 - Time
 - James Corden
+- Greater Manchester flooding
 - The Man Who Would Be King
 - Weather warnings snow
-- Greater Manchester flooding
-- Peter Wright
-- Plymouth Argyle vs Bristol City
+- Jocelyn Wildenstein
+- Arsenal
 - New Year's Day
 - Happy New Year 2025
 - Time
-- Brentford vs Arsenal
-- New Year's Day 2025
+- New Year's Day
 - Gautam Gambhir
 - New Orleans
 - Anurag Kashyap
