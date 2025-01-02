@@ -30,12 +30,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Queens shooting
 - Super Bowl
 - Cybertruck explosion
 - Skattebo
-- Happy New Year!
+- Happy New Year
+- Rose Parade 2025
 - Radium
-- Jocelyn Wildenstein
+- IED
+- Aurora
 - Missing You Netflix
 - Arsenal
 - Restaurants open on New Year's Day
@@ -45,17 +48,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Breaking news
 - Rose Parade
 - Amber Alert
-- Montenegro
 - UNC basketball
-- Billie jean king
-- Suns
-- New Year's Day
+- Salamander
 - Cybertruck
-- Bridgewater Canal
+- Council tax
 - HelloFresh
 - Kevin whately
-- GK Barry
 - Claudia Winkleman
+- GK Barry
 - New Year's Day
 - Brentford vs Arsenal
 - Darts
@@ -65,19 +65,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nosferatu
 - Bob Geldof
 - Sam Thompson
+- Weather warnings snow
+- Leeds United
 - Callan Rydz
 - SAS Rogue Heroes
-- Jocelyn Wildenstein
-- Sheffield United
-- Greater Manchester flooding
+- Championship
 - Arsenal
 - Beau Webster
+- Identity movie
 - Bangladesh
 - Bajaj Finserv
-- New Year's Day
+- Jacob Duffy
+- Happy New Year 2025
 - New Orleans
 - Gautam Gambhir
-- Happy New Year 2025
 - New Year Wishes 2025
 - Sri Lanka vs New Zealand
 - Happy New Year 2025 photo
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy New Year 2025
 - Happy New Year 2025 Wishes
 - New Year Wishes 2025
-- New Year Wishes
 - epgview
 - best epg
 - epg for iptv
