@@ -36,10 +36,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Skattebo
 - Happy New Year
 - Rose Parade 2025
+- Año nuevo
 - Radium
 - IED
 - Aurora
-- Missing You Netflix
 - Arsenal
 - Restaurants open on New Year's Day
 - Rose Bowl Parade
@@ -47,49 +47,49 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Generation Beta
 - Breaking news
 - Rose Parade
+- Gypsy Rose
 - Amber Alert
 - UNC basketball
-- Salamander
 - Cybertruck
+- Bank holidays 2025
+- HMRC
 - Council tax
 - HelloFresh
-- Kevin whately
+- Dinosaur footprints Oxfordshire
+- Jobs
+- Neil Young
 - Claudia Winkleman
+- Kevin whately
+- Civil service jobs
 - GK Barry
 - New Year's Day
 - Brentford vs Arsenal
 - Darts
 - Missing You
-- New Orleans
 - Traitors
+- New Orleans
 - Nosferatu
 - Bob Geldof
-- Sam Thompson
-- Weather warnings snow
-- Leeds United
-- Callan Rydz
-- SAS Rogue Heroes
-- Championship
 - Arsenal
 - Beau Webster
 - Identity movie
-- Bangladesh
 - Bajaj Finserv
+- Armaan Malik
 - Jacob Duffy
-- Happy New Year 2025
 - New Orleans
 - Gautam Gambhir
+- Happy New Year 2025
 - New Year Wishes 2025
 - Sri Lanka vs New Zealand
 - Happy New Year 2025 photo
 - Adani Wilmar
+- 2025 New Year
 - Manchester United
 - Bank holidays 2025
 - Indo Farm Equipment IPO GMP
 - ITC Hotels demerger
 - Happy New Year 2025
 - Happy New Year 2025 Wishes
-- New Year Wishes 2025
 - epgview
 - best epg
 - epg for iptv
