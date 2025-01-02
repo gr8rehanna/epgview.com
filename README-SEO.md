@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Cybertruck explosion
 - Skattebo
-- Rose Parade 2025
 - Radium
 - Jocelyn Wildenstein
-- Cfb Playoff bracket
 - Aurora
 - Arsenal
-- Missing You Netflix
 - Restaurants open on New Year's Day
 - Kenny Dillingham
 - Generation Beta
 - Breaking news
-- Gypsy Rose
 - Amber Alert
 - Montenegro
 - UNC basketball
 - Billie jean king
 - Suns
-- New Orleans
+- New Year's Day
+- Ohio State vs Oregon
+- Texas football
+- Penn State Football
+- Rose bowl 2025
 - Cybertruck
 - Bridgewater Canal
 - Kevin whately
@@ -60,28 +60,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Traitors
 - New Orleans
 - Nosferatu
+- Bob Geldof
 - Sam Thompson
 - Callan Rydz
 - SAS Rogue Heroes
-- Sheffield United
-- Jocelyn Wildenstein
 - Weather warnings snow
+- Jocelyn Wildenstein
+- Sheffield United
 - Marti Pellow
 - Vera
 - James Corden
-- Time
 - Arsenal
 - Beau Webster
+- Bajaj Finserv
 - Happy New Year 2025
 - New Year
 - Gautam Gambhir
-- Happy
 - New Year Wishes 2025
 - Sri Lanka vs New Zealand
 - Happy New Year 2025 photo
 - Adani Wilmar
-- 2025 New Year
 - Manchester United
+- Bank holidays 2025
 - Indo Farm Equipment IPO GMP
 - ITC Hotels demerger
 - Happy New Year 2025
