@@ -30,54 +30,57 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Queens shooting
 - Super Bowl
 - Cybertruck explosion
 - Skattebo
-- Happy New Year
 - Rose Parade 2025
-- Año nuevo
 - Radium
+- News today
+- Luther Vandross
 - IED
 - Aurora
+- Missing You Netflix
 - Arsenal
 - Restaurants open on New Year's Day
 - Rose Bowl Parade
 - Kenny Dillingham
+- Montenegro
 - Generation Beta
 - Breaking news
-- Rose Parade
 - Gypsy Rose
+- Rose Parade
 - Amber Alert
-- UNC basketball
+- Premier League
 - Cybertruck
+- Rangers vs Celtic
 - Bank holidays 2025
 - HMRC
+- FTSE 100
+- Dinosaur footprints Oxfordshire
 - Council tax
 - HelloFresh
-- Dinosaur footprints Oxfordshire
-- Jobs
 - Neil Young
+- Jobs
 - Claudia Winkleman
-- Kevin whately
 - Civil service jobs
+- Kevin whately
 - GK Barry
 - New Year's Day
-- Brentford vs Arsenal
 - Darts
+- Brentford vs Arsenal
 - Missing You
-- Traitors
 - New Orleans
-- Nosferatu
-- Bob Geldof
 - Arsenal
 - Beau Webster
-- Identity movie
+- Bangladesh
 - Bajaj Finserv
+- Vodafone Idea 5G launch plans
 - Armaan Malik
 - Jacob Duffy
+- Sydney weather
+- Hyundai Creta Electric
 - New Orleans
-- Gautam Gambhir
+- Happy
 - Happy New Year 2025
 - New Year Wishes 2025
 - Sri Lanka vs New Zealand
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manchester United
 - Bank holidays 2025
 - Indo Farm Equipment IPO GMP
-- ITC Hotels demerger
-- Happy New Year 2025
-- Happy New Year 2025 Wishes
 - epgview
 - best epg
 - epg for iptv
