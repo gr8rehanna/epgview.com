@@ -30,9 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Queens
 - Meghan Markle
-- New Orleans
 - Cybertruck explosion
 - Skattebo
 - Happy New Year
@@ -41,15 +39,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jeremiah Smith
 - Jocelyn Wildenstein
 - Turo
-- Luther Vandross
-- News today
+- Jaden Ivey injury
 - Cotton Bowl
+- News today
+- New York
+- Aurora
 - Gypsy Rose
 - Rock and Roll Hall Of Fame 2024
 - Arsenal
+- Thursday Night Football
+- ASU
 - Rose Bowl Parade
-- Kenny Dillingham
-- Polar vortex cold weather forecast
 - Rangers vs Celtic
 - Premier League
 - Cybertruck
@@ -60,20 +60,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Royal Mail
 - FTSE 100
 - Tesla
-- Dinosaur footprints Oxfordshire
 - Kyle Walker
+- Dinosaur footprints Oxfordshire
 - Coventry Building Society
 - Evri
+- Inter Vs Atalanta
 - Neil Young
+- Dundee United
+- Wayne Osmond
 - Council tax
 - HelloFresh
-- Civil service jobs
-- Hargreaves Lansdown
-- Jobs
 - Game Changer
-- Sri Lanka vs New Zealand
 - Rohit Sharma
 - Beau Webster
+- New Zealand vs Sri Lanka
 - Bangladesh
 - Hyundai Creta Electric
 - Armaan Malik
