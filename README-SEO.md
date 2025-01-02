@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cybertruck explosion
 - Skattebo
 - Rose Parade 2025
-- Arsenal
 - Will Howard
+- News Today
+- Arsenal
 - Missing You Netflix
+- Kenny Dillingham
 - Generation Beta
 - Breaking news
 - Amber Alert
 - UNC basketball
 - Billie jean king
 - Miami Heat
-- Mavericks vs Rockets
 - Suns
 - Ole Miss football
 - New Year's Day
 - Ohio State vs Oregon
 - Texas football
 - Penn State Football
-- Alabama football
 - Cybertruck
 - Kevin whately
 - New Year's Day
@@ -68,20 +68,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Marti Pellow
 - Vera
 - Jocelyn Wildenstein
+- JUNGLE
 - James Corden
-- Time
+- Sri Lanka vs New Zealand
 - Arsenal
 - Kunal Kamra
+- Beau Webster
 - New Year's Day
 - Happy New Year
-- New Year
 - Time
+- New Orleans
 - Gautam Gambhir
 - CTET Answer Key
 - New Year Wishes 2025
 - Happy New Year 2025 photo
 - 2025
-- Kusal Perera
 - Adani Wilmar
 - Manchester United
 - Bank holidays 2025
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITC Hotels demerger
 - Happy New Year 2025
 - Happy New Year 2025 Wishes
-- New Year Wishes 2025
 - epgview
 - best epg
 - epg for iptv
