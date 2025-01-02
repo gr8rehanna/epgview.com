@@ -31,45 +31,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - New York shooting
-- Super Bowl
+- WINTER STORM snow forecast
 - Pro Bowl 2025
+- Super Bowl
 - Cotton Bowl tickets
 - Meghan Markle
+- Georgia
 - Cybertruck explosion
 - Skattebo
-- Happy New Year
 - Rose Parade 2025
+- What's open on New Year's Day
 - Jeremiah Smith
 - Jocelyn Wildenstein
-- What's open on New Year's Day
 - Radium
 - Turo
 - News today
 - IED
 - Aurora
+- Montenegro
 - Arsenal
-- Rose Bowl Parade
-- Kenny Dillingham
 - Rangers vs Celtic
 - Premier League
 - Cybertruck
 - LinkedIn
 - Bank holidays 2025
 - HMRC
+- Lockerbie bombing
 - Royal Mail
 - FTSE 100
-- Lockerbie
 - Dinosaur footprints Oxfordshire
 - Tesla
-- Kyle Walker
 - Coventry Building Society
+- Kyle Walker
 - Neil Young
-- Council tax
 - HelloFresh
+- Council tax
+- Civil service jobs
 - Jobs
+- Hargreaves Lansdown
 - Aviva
-- Claudia Winkleman
-- Teams
 - Sri Lanka vs New Zealand
 - Rohit Sharma
 - Arsenal
@@ -82,6 +82,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sarfaraz Khan
 - Game Changer trailer Ram Charan
 - New Orleans
+- Gautam Gambhir
 - Happy
 - Happy New Year 2025
 - New Year Wishes 2025
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Adani Wilmar
 - 2025 New Year
 - Manchester United
-- Bank holidays 2025
 - epgview
 - best epg
 - epg for iptv
