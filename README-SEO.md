@@ -32,55 +32,56 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - New York shooting
 - Super Bowl
+- Pro Bowl 2025
 - Cotton Bowl tickets
+- Meghan Markle
 - Cybertruck explosion
 - Skattebo
+- Happy New Year
 - Rose Parade 2025
 - Jeremiah Smith
+- Jocelyn Wildenstein
+- What's open on New Year's Day
 - Radium
 - Turo
-- Cotton Bowl 2025
 - News today
+- IED
 - Aurora
 - Arsenal
 - Rose Bowl Parade
-- Montenegro
 - Kenny Dillingham
-- Generation Beta
-- Breaking news
-- Rose Parade
-- Thursday Night Football
 - Rangers vs Celtic
 - Premier League
 - Cybertruck
 - LinkedIn
 - Bank holidays 2025
 - HMRC
+- Royal Mail
 - FTSE 100
-- Tesla
+- Lockerbie
 - Dinosaur footprints Oxfordshire
+- Tesla
 - Kyle Walker
-- Evri
-- Council tax
-- Neil Young
 - Coventry Building Society
+- Neil Young
+- Council tax
 - HelloFresh
 - Jobs
-- Civil service jobs
-- Claudia Winkleman
 - Aviva
-- Kevin whately
+- Claudia Winkleman
+- Teams
 - Sri Lanka vs New Zealand
 - Rohit Sharma
 - Arsenal
 - Beau Webster
 - Bangladesh
+- Hyundai Creta Electric
 - Armaan Malik
 - Jacob Duffy
-- Hyundai Creta Electric
 - Sydney weather
+- Sarfaraz Khan
+- Game Changer trailer Ram Charan
 - New Orleans
-- Gautam Gambhir
 - Happy
 - Happy New Year 2025
 - New Year Wishes 2025
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - 2025 New Year
 - Manchester United
 - Bank holidays 2025
-- Indo Farm Equipment IPO GMP
 - epgview
 - best epg
 - epg for iptv
