@@ -32,37 +32,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Cybertruck explosion
 - Skattebo
+- Rose Parade 2025
 - Arsenal
 - Will Howard
-- News TODAY
 - Missing You Netflix
 - Generation Beta
 - Breaking news
 - Amber Alert
 - UNC basketball
 - Billie jean king
-- Montenegro
 - Miami Heat
-- Dan Lanning
+- Mavericks vs Rockets
 - Suns
 - Ole Miss football
 - New Year's Day
 - Ohio State vs Oregon
 - Texas football
 - Penn State Football
+- Alabama football
 - Cybertruck
 - Kevin whately
 - New Year's Day
 - Brentford vs Arsenal
-- Darts
+- Stephen Bunting
 - Missing You
+- Darts
 - Traitors
 - New Orleans
-- Championship
 - Nosferatu
 - Sunderland vs Sheffield United
-- Leeds United
 - Sam Thompson
+- Leeds United
 - SAS Rogue Heroes
 - Weather warnings snow
 - Marti Pellow
@@ -70,22 +70,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jocelyn Wildenstein
 - James Corden
 - Time
-- Kusal Perera
 - Arsenal
 - Kunal Kamra
 - New Year's Day
-- Happy New Year 2025
+- Happy New Year
+- New Year
 - Time
-- New Orleans
 - Gautam Gambhir
 - CTET Answer Key
 - New Year Wishes 2025
 - Happy New Year 2025 photo
 - 2025
+- Kusal Perera
 - Adani Wilmar
 - Manchester United
 - Bank holidays 2025
-- EaseMyTrip Nishant Pitti
+- New Year greetings
 - ITC Hotels demerger
 - Happy New Year 2025
 - Happy New Year 2025 Wishes
