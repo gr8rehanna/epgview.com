@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Cybertruck explosion
-- Happy New Year
-- Rose Parade 2025
 - Skattebo
-- News Today
+- Rose Parade 2025
+- Radium
+- Jocelyn Wildenstein
+- Cfb Playoff bracket
 - Aurora
 - Arsenal
 - Missing You Netflix
 - Restaurants open on New Year's Day
 - Kenny Dillingham
-- Cfb Playoff bracket
 - Generation Beta
 - Breaking news
+- Gypsy Rose
 - Amber Alert
 - Montenegro
 - UNC basketball
 - Billie jean king
-- Miami Heat
 - Suns
 - New Orleans
 - Cybertruck
+- Bridgewater Canal
 - Kevin whately
 - New Year's Day
 - Brentford vs Arsenal
-- Stephen Bunting
-- Missing You
 - Darts
-- New Orleans
+- Missing You
 - Traitors
+- New Orleans
 - Nosferatu
 - Sam Thompson
-- Leeds United
+- Callan Rydz
 - SAS Rogue Heroes
 - Sheffield United
+- Jocelyn Wildenstein
 - Weather warnings snow
 - Marti Pellow
-- Jocelyn Wildenstein
 - Vera
 - James Corden
 - Time
 - Arsenal
 - Beau Webster
-- Bangladesh
-- Happy New Year
-- Time
-- New Orleans
+- Happy New Year 2025
+- New Year
 - Gautam Gambhir
-- CTET Answer Key
+- Happy
 - New Year Wishes 2025
 - Sri Lanka vs New Zealand
 - Happy New Year 2025 photo
 - Adani Wilmar
 - 2025 New Year
 - Manchester United
-- Bank holidays 2025
-- New Year greetings
 - Indo Farm Equipment IPO GMP
-- EaseMyTrip Nishant Pitti
 - ITC Hotels demerger
 - Happy New Year 2025
+- Happy New Year 2025 Wishes
+- New Year Wishes 2025
+- New Year Wishes
+- New Year
+- Rohit Sharma
 - epgview
 - best epg
 - epg for iptv
