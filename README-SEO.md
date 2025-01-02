@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Cybertruck 'explosion
+- Cybertruck explosion
 - Skattebo
+- Año nuevo
 - Arsenal
 - Jeremiah Smith
-- Oregon
 - Jocelyn Wildenstein
+- News TODAY
 - Kenny Dillingham
+- Generation Beta
 - Breaking news
 - Missing You Netflix
-- Billie jean king
 - Will Howard
+- Cotton Bowl
+- Amber Alert
+- Billie jean king
 - Timberwolves
 - Suns
 - Ole Miss football
 - New Year's Day
 - Texas Football
-- Penn State Football
-- Ohio State Football
-- Rose bowl 2025
-- Alabama football
 - Kevin whately
 - Brentford vs Arsenal
 - Darts
@@ -58,28 +58,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New Orleans
 - Championship
 - Nosferatu
-- Bob Geldof
 - Sunderland vs Sheffield United
 - Leeds United
-- SAS Rogue Heroes
 - Sam Thompson
-- Weather warnings snow
+- SAS Rogue Heroes
 - Marti Pellow
 - Elon Musk
 - Vera
+- Weather warnings snow
 - James Corden
-- Time
 - Jocelyn Wildenstein
+- Time
+- Greater Manchester flooding
 - Arsenal
 - New Year's Day
 - Happy New Year 2025
-- New Year
 - Time
 - Gautam Gambhir
+- New Orleans
 - Anurag kashyap
 - CTET Answer Key
 - New Year Wishes 2025
-- New Year wishes for love
+- New Year Wishes for love
 - 2025
 - Adani Wilmar
 - 2025 New Year
