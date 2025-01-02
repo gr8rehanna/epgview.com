@@ -30,57 +30,59 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Skattebo
+- Cybertruck explosion
 - Arsenal
-- Las Vegas
+- Año nuevo
 - Kenny Dillingham
+- Jocelyn Wildenstein
+- Timberwolves
 - Suns
 - Ole Miss football
+- Missing You netflix
 - New York
 - New Year's Day
 - Penn State Football
-- Alabama Football
 - Texas Football
-- College football today
-- Where to watch: The ball drop
+- Alabama football
+- Ohio State Football
+- College football
 - Rose bowl 2025
+- Where to watch the Ball Drop
 - Is Walmart open on New Year's Day
-- Anderson Cooper
-- South Carolina football
-- Puerto Rico
-- Carrie Underwood
-- Lake effect snow warning
-- Winter Classic 2025
 - New Year's Day
 - Brentford vs Arsenal
+- Darts
 - Missing You
-- New Orleans
 - Traitors
-- Championship
+- New Orleans
 - Bob Geldof
+- Nosferatu
+- Sunderland vs Sheffield United
 - Leeds United
-- Stephen Bunting
-- Marti Pellow
-- Sam Thompson
-- Time
-- The Man Who Would Be King
-- James Corden
-- Greater Manchester flooding
-- Plymouth Argyle vs Bristol City
 - SAS Rogue Heroes
+- Sam Thompson
+- Marti Pellow
+- Time
+- James Corden
+- The Man Who Would Be King
+- Weather warnings snow
+- Greater Manchester flooding
 - Peter Wright
-- Uber
-- Trent Alexander-Arnold
+- Plymouth Argyle vs Bristol City
 - New Year's Day
 - Happy New Year 2025
-- New Year
 - Time
 - Brentford vs Arsenal
+- New Year's Day 2025
 - Gautam Gambhir
+- New Orleans
 - Anurag Kashyap
 - CTET Answer Key
 - New Year celebration
 - New Year Wishes 2025
 - New Year wishes 2025 images
+- 2025
 - Adani Wilmar
 - Manchester United
 - EaseMyTrip Nishant Pitti
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITC Hotels demerger
 - Beer
 - Happy New Year 2025
-- Happy New Year 2025 Wishes
-- New Year Wishes 2025
 - epgview
 - best epg
 - epg for iptv
