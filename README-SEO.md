@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Cybertruck explosion
 - Skattebo
-- Jeremiah Smith
 - Arsenal
 - News TODAY
 - Will Howard
 - Kenny Dillingham
+- Missing You Netflix
 - Generation Beta
-- Missing You netflix
 - Breaking news
-- College Football bracket
+- Gypsy Rose
 - Amber Alert
-- Billie jean king
 - UNC basketball
-- Timberwolves
+- Billie jean king
 - Suns
 - Ole Miss football
 - New Year's Day
 - Ohio State vs Oregon
 - Texas Football
+- Penn State Football
+- Rose bowl 2025
 - Kevin whately
 - New Year's Day
 - Brentford vs Arsenal
@@ -70,18 +70,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jocelyn Wildenstein
 - James Corden
 - Time
+- Sri Lanka vs New Zealand
 - Arsenal
 - New Year's Day
 - Happy new year
 - Time
-- New Orleans
+- New Year's Day
 - Gautam Gambhir
-- Anurag kashyap
 - CTET Answer Key
+- New Year celebration
 - New Year Wishes 2025
 - Happy New Year 2025 images
 - Adani Wilmar
-- 2025 New Year
 - Manchester United
 - Indo Farm Equipment IPO gmp
 - ITC Hotels demerger
