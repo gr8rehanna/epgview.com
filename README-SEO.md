@@ -34,22 +34,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Wayne Osmond
 - Carson Beck
 - Gunner Stockton
+- Fort Bragg
 - Aetna
-- Meghan Markle
 - Anthony Edwards
+- Meghan Markle
 - 76ers
 - Pro Bowl roster
+- FCC net neutrality rules
 - Notre Dame vs Georgia
 - Cybertruck explosion
 - Skattebo
-- Happy New Year
 - Rose Parade 2025
-- Ole Miss football
+- Ole Miss Football
+- Texas Longhorns
 - Jeremiah Smith
-- ASU football
-- New York shooting
 - Jocelyn Wildenstein
 - Tiger Bech
+- India vs Australia
 - Quadrantids meteor showers
 - Sara Sharif
 - Martin O'Neill
@@ -58,29 +59,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lockerbie bombing
 - Cybertruck
 - LinkedIn
+- Companies House
 - HMRC
 - Royal Mail
 - FTSE 100
 - Wayne Osmond
 - Inter Vs Atalanta
 - Kyle Walker
+- The rig
 - Dinosaur footprints Oxfordshire
 - Coventry Building Society
 - Dundee United
-- Meghan Markle
-- Neil Young
-- HelloFresh
-- India vs Australia
-- Game Changer
+- भारत बनाम ऑस्ट्रेलिया
 - China
+- Human metapneumovirus (HMPV China
 - Beau Webster
 - Box Office Collection Pushpa movie
 - Bangladesh
 - Sydney weather
-- Game Changer trailer Ram Charan
+- Bajaj Finance
 - Sarfaraz Khan
 - Gate 2025
-- Rohit Sharma
+- India vs Australia
 - New Orleans
 - Happy
 - Happy New Year 2025
