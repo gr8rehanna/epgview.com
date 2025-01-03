@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Notre Dame Football
 - Wayne Osmond
 - Carson Beck
+- Queens shooting
 - Gunner Stockton
 - Fort Bragg
 - Aetna
 - Anthony Edwards
 - Meghan Markle
+- FCC net neutrality rules
 - 76ers
 - Pro Bowl roster
-- FCC net neutrality rules
+- Plane crash California
 - Notre Dame vs Georgia
 - Cybertruck explosion
 - Skattebo
 - Rose Parade 2025
-- Ole Miss Football
-- Texas Longhorns
+- Ole Miss football
+- Celtics
 - Jeremiah Smith
-- Jocelyn Wildenstein
-- Tiger Bech
 - India vs Australia
 - Quadrantids meteor showers
 - Sara Sharif
@@ -70,17 +70,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dinosaur footprints Oxfordshire
 - Coventry Building Society
 - Dundee United
-- भारत बनाम ऑस्ट्रेलिया
+- India vs Australia
 - China
 - Human metapneumovirus (HMPV China
+- DMart share price
+- Ketan Parekh
 - Beau Webster
 - Box Office Collection Pushpa movie
 - Bangladesh
-- Sydney weather
 - Bajaj Finance
 - Sarfaraz Khan
 - Gate 2025
-- India vs Australia
+- Rohit Sharma
 - New Orleans
 - Happy
 - Happy New Year 2025
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Adani Wilmar
 - 2025 New Year
 - Manchester United
-- Bank holidays 2025
 - epgview
 - best epg
 - epg for iptv
