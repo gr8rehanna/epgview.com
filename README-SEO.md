@@ -31,11 +31,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Quadrantids meteor showers
-- Georgia Football
 - Wayne Osmond
+- Celtics
 - Tesla stock
 - Warriors
 - Carson Beck
+- Gunner Stockton
 - Plane crash California
 - Connections hint today
 - Trail Blazers vs Lakers
@@ -44,12 +45,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Victims of New Orleans attack
 - Pro Bowl roster
 - Cotton Bowl tickets
+- Sugar Bowl 2025
 - Notre Dame Football
 - Matthew Livelsberger
 - Skattebo
 - Rose Parade 2025
-- Ole Miss football
-- Celtics
 - India vs Australia
 - Sara Sharif
 - Quadrantids meteor showers
@@ -60,8 +60,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lockerbie bombing
 - Cybertruck
 - LinkedIn
-- Companies House
 - Wayne Osmond
+- Companies House
 - HMRC
 - Royal Mail
 - FTSE 100
@@ -70,19 +70,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kyle Walker
 - Coventry Building Society
 - Dinosaur footprints Oxfordshire
+- India vs Australia
 - South Africa vs Pakistan
 - HMPV
-- भारत बनाम ऑस्ट्रेलिया
 - Rishabh Pant
 - Game Changer
 - DMart share price
 - Ketan Parekh
+- Yeh Jawaani Hai Deewani
 - Bumrah
-- India vs Australia
-- Beau Webster
+- Rohit Sharma
+- Bajaj Finance
 - Box office collection Pushpa Movie
 - Bangladesh
-- Bajaj finance share
 - Hyundai Creta Electric
 - Garmin
 - Bajaj Finserv
