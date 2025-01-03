@@ -30,26 +30,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Winter Storm snow forecast
-- Carson Beck
+- Notre Dame Football
 - Wayne Osmond
+- Carson Beck
 - Gunner Stockton
 - Aetna
 - Meghan Markle
+- Anthony Edwards
+- 76ers
 - Pro Bowl roster
-- Notre Dame Football
-- Georgia vs Notre Dame
+- Notre Dame vs Georgia
 - Cybertruck explosion
 - Skattebo
 - Happy New Year
 - Rose Parade 2025
+- Ole Miss football
 - Jeremiah Smith
-- Thursday Night Football
+- ASU football
+- New York shooting
 - Jocelyn Wildenstein
-- What's open on New Year's Day
 - Tiger Bech
-- Turo
-- Texas
+- Quadrantids meteor showers
+- Sara Sharif
 - Martin O'Neill
 - Rangers vs Celtic
 - Premier League
@@ -60,27 +62,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Royal Mail
 - FTSE 100
 - Wayne Osmond
-- Tesla
-- Tommy Robinson
 - Inter Vs Atalanta
 - Kyle Walker
 - Dinosaur footprints Oxfordshire
 - Coventry Building Society
-- Evri
 - Dundee United
 - Meghan Markle
 - Neil Young
+- HelloFresh
+- India vs Australia
 - Game Changer
 - China
-- Rohit Sharma
 - Beau Webster
-- New Zealand vs Sri Lanka
+- Box Office Collection Pushpa movie
 - Bangladesh
 - Sydney weather
-- Hyundai Creta Electric
 - Game Changer trailer Ram Charan
 - Sarfaraz Khan
 - Gate 2025
+- Rohit Sharma
 - New Orleans
 - Happy
 - Happy New Year 2025
