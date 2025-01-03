@@ -31,6 +31,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Quadrantids meteor showers
+- Georgia Football
 - Wayne Osmond
 - Tesla stock
 - Warriors
@@ -42,17 +43,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FCC net neutrality rules
 - Victims of New Orleans attack
 - Pro Bowl roster
-- Notre Dame football
-- Georgia Football
+- Cotton Bowl tickets
+- Notre Dame Football
 - Matthew Livelsberger
 - Skattebo
-- Happy New Year
 - Rose Parade 2025
 - Ole Miss football
 - Celtics
 - India vs Australia
 - Sara Sharif
 - Quadrantids meteor showers
+- South Africa vs Pakistan
 - Martin O'Neill
 - Rangers vs Celtic
 - Premier League
@@ -64,32 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMRC
 - Royal Mail
 - FTSE 100
-- Premier League games
 - Inter Vs Atalanta
 - The Rig
 - Kyle Walker
 - Coventry Building Society
 - Dinosaur footprints Oxfordshire
-- India vs Australia
 - South Africa vs Pakistan
 - HMPV
+- भारत बनाम ऑस्ट्रेलिया
 - Rishabh Pant
+- Game Changer
 - DMart share price
 - Ketan Parekh
+- Bumrah
+- India vs Australia
 - Beau Webster
-- Rohit Sharma
-- Bajaj Finance
 - Box office collection Pushpa Movie
 - Bangladesh
+- Bajaj finance share
 - Hyundai Creta Electric
+- Garmin
 - Bajaj Finserv
 - Sarfaraz Khan
 - Gate 2025
 - New Orleans
 - Happy
-- Happy New Year 2025
-- New Year Wishes 2025
-- Happy New Year 2025 photo
 - epgview
 - best epg
 - epg for iptv
