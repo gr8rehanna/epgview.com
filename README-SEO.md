@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Quadrantids meteor showers
 - Notre Dame Football
 - Wayne Osmond
 - Tesla stock
@@ -40,19 +41,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Connections hint today
 - Anthony Edwards
 - Meghan Markle
+- Trail Blazers vs Lakers
 - FCC net neutrality rules
 - Victims of New Orleans attack
 - Pro Bowl roster
 - Gypsy Rose Blanchard
-- Super Bowl
 - Sugar Bowl 2025
-- Cybertruck explosion
+- Las Vegas explosion
 - Skattebo
 - Rose Parade 2025
-- Ole Miss football
 - India vs Australia
-- Quadrantids meteor showers
 - Sara Sharif
+- Quadrantids meteor showers
 - Martin O'Neill
 - Rangers vs Celtic
 - Premier League
@@ -61,26 +61,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - LinkedIn
 - Companies House
 - HMRC
-- Royal Mail
 - Wayne Osmond
+- Royal Mail
 - FTSE 100
+- Premier League games
 - Inter Vs Atalanta
-- The Rig
+- The rig
 - Kyle Walker
-- Dinosaur footprints Oxfordshire
 - Coventry Building Society
-- Dundee United
-- India vs Australia
-- China
+- Dinosaur footprints Oxfordshire
+- South Africa vs Pakistan
+- HMPV
+- भारत बनाम ऑस्ट्रेलिया
 - Game Changer
 - DMart share price
 - Ketan Parekh
+- India vs Australia
 - Beau Webster
-- Rohit Sharma
 - Bajaj Finance
 - Box office collection Pushpa Movie
 - Bangladesh
 - Hyundai Creta Electric
+- Bajaj Finserv
 - Sarfaraz Khan
 - Gate 2025
 - New Orleans
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy New Year 2025
 - New Year Wishes 2025
 - Happy New Year 2025 photo
-- Adani Wilmar
-- 2025 New Year
 - epgview
 - best epg
 - epg for iptv
