@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Quadrantids meteor showers
-- Notre Dame Football
 - Wayne Osmond
 - Tesla stock
 - Warriors
 - Carson Beck
-- Gunner Stockton
 - Plane crash California
 - Connections hint today
-- Anthony Edwards
-- Meghan Markle
 - Trail Blazers vs Lakers
+- Meghan Markle
 - FCC net neutrality rules
 - Victims of New Orleans attack
 - Pro Bowl roster
-- Gypsy Rose Blanchard
-- Sugar Bowl 2025
-- Las Vegas explosion
+- Notre Dame football
+- Georgia Football
+- Matthew Livelsberger
 - Skattebo
+- Happy New Year
 - Rose Parade 2025
+- Ole Miss football
+- Celtics
 - India vs Australia
 - Sara Sharif
 - Quadrantids meteor showers
@@ -60,24 +60,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cybertruck
 - LinkedIn
 - Companies House
-- HMRC
 - Wayne Osmond
+- HMRC
 - Royal Mail
 - FTSE 100
 - Premier League games
 - Inter Vs Atalanta
-- The rig
+- The Rig
 - Kyle Walker
 - Coventry Building Society
 - Dinosaur footprints Oxfordshire
+- India vs Australia
 - South Africa vs Pakistan
 - HMPV
-- भारत बनाम ऑस्ट्रेलिया
-- Game Changer
+- Rishabh Pant
 - DMart share price
 - Ketan Parekh
-- India vs Australia
 - Beau Webster
+- Rohit Sharma
 - Bajaj Finance
 - Box office collection Pushpa Movie
 - Bangladesh
