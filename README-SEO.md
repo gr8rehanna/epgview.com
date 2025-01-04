@@ -37,41 +37,42 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - HMPV
 - Virginia Tech football
-- Matt Gaetz
-- Surgeon General alcohol cancer risk
+- Alcohol consumption cancer risk
 - Boston Celtics
-- Apple Siri lawsuit settlement
+- Matt Gaetz
 - China
-- Clarence Thomas
 - Britt Allcroft
-- Quadrantids meteor showers
-- Illinois basketball
+- Apple Siri lawsuit settlement
+- Clarence Thomas
 - LaLiga
 - Charlie Morton
-- Penn State vs Notre Dame
-- Winter Storm snow forecast
+- Quadrantids meteor showers
+- Illinois basketball
+- Cavaliers vs Mavericks
+- AC Milan
 - China
 - Snow warning
-- Human metapneumovirus (HMPV China
 - Real Madrid
 - India vs Australia
 - Sara Sharif
 - Eurostar
 - Quadrantids meteor showers
-- South Africa vs Pakistan
+- HMPV
 - Mo Salah
 - Wayne Mardle
 - Britt Allcroft
 - Cold Weather Payment
 - Kieran Tierney
 - Nick Clegg
+- Buck
 - Martin O'Neill
 - Darts final
 - Premier League
 - Rangers
 - Cybertruck
 - Real Madrid
-- Vijay Hazare Trophy
+- Mohammed Siraj
+- LaLiga
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
@@ -83,13 +84,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - CUET PG
 - Ketan Parekh
 - Karun Nair
+- Love Reddy
+- Rohit Sharma retirement
 - Rohit Sharma
 - Bangladesh
 - Bajaj finance share
-- New Orleans
-- Happy
-- Happy New Year 2025
-- New Year Wishes 2025
+- Hyundai Creta Electric
 - epgview
 - best epg
 - epg for iptv
