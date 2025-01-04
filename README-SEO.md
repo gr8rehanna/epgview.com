@@ -30,8 +30,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Jeff Baena
 - Barcelona
 - Tottenham vs Newcastle
+- Trump sentencing
 - Winter Storm Warning
 - Speaker of the House vote
 - HMPV
@@ -43,19 +45,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - China
 - Jermaine Burton
 - Fred Kerley
-- Clarence Thomas
 - Charlie Morton
+- Britt Allcroft
+- Clarence Thomas
 - Apple Siri lawsuit settlement
 - LaLiga
-- Kirby Smart
-- AC Milan
-- Rivian stock
 - Tottenham vs Newcastle
 - Man City vs West Ham
 - Crystal Palace vs Chelsea
+- Jeff Baena
+- Aston Villa
+- Ed Pettifer
+- Hull City vs Leeds United
 - China
-- Aston Villa vs Leicester City
-- Edward Pettifer
+- Tiggy Legge-Bourke
 - Elvis Presley
 - Snow warning
 - Human metapneumovirus (HMPV China
@@ -67,16 +70,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - South Africa vs Pakistan
 - Neil Young Glastonbury
 - Wayne Mardle
-- Britt Allcroft
-- Cold Weather Payment
-- Kieran Tierney
 - Real Madrid
 - Tottenham vs Newcastle
 - Vijay hazare trophy
 - LaLiga
 - Yuzvendra Chahal
 - Bumrah injury update
-- Man City vs West Ham
+- BJP candidate list 2025 Delhi
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
@@ -86,10 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Game Changer
 - Ketan Parekh
 - Love Reddy
-- Rohit Sharma retirement
 - Rohit Sharma
 - Bangladesh
 - Bajaj finance share
+- Hyundai Creta Electric
 - epgview
 - best epg
 - epg for iptv
