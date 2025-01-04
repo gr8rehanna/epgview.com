@@ -31,54 +31,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Speaker of the House vote
-- Lakers
 - Real Madrid
+- Lakers
+- HMPV
 - Matt Gaetz
 - Boston Celtics
-- HMPV
 - Quadrantids meteor showers
 - Illinois basketball
-- Terry Crews
 - Clarence Thomas
+- Surgeon General alcohol cancer risk
+- Terry Crews
+- Britt Allcroft
 - Notre Dame football
 - Winter Storm snow forecast
 - Wayne Osmond
 - Celtics
-- Warriors
+- Tesla stock
 - Plane crash California
 - Georgia
 - Meghan Markle
-- Anthony Edwards
-- FCC net neutrality rules
 - Snow warning
-- Sara Sharif
 - Human metapneumovirus (HMPV China
+- Real Madrid
+- Sara Sharif
 - Eurostar
 - Quadrantids meteor showers
-- South Africa vs Pakistan
-- Real Madrid
-- Britt Allcroft
 - Juventus vs Milan
+- South Africa vs Pakistan
+- Wayne Mardle
+- Britt Allcroft
 - Cold Weather Payment
 - Nick Clegg
-- Martin O'Neill
 - Clam
+- Martin O'Neill
+- Salah
+- Kieran Tierney
+- Buck
+- Darts final
 - Premier League
-- Rangers vs Celtic
-- Cybertruck
-- Lockerbie
-- LinkedIn
-- Wayne Osmond
-- Neil Young
+- Rangers
+- Valencia vs Real Madrid
 - Real Madrid
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
 - Jasprit Bumrah
 - Rishabh Pant
-- Game Changer
-- CUET PG
 - DMart share price
+- CUET PG
 - Ketan Parekh
 - Karun Nair
 - Rohit Sharma
