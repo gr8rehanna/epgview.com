@@ -40,6 +40,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Alcohol consumption cancer risk
 - Matt Gaetz
 - China
+- Boston Celtics
 - Britt Allcroft
 - Clarence Thomas
 - Apple Siri lawsuit settlement
@@ -48,7 +49,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Quadrantids meteor showers
 - Knicks vs Thunder
 - Fred Kerley
-- AC Milan
 - Jermaine Burton
 - China
 - Snow warning
@@ -64,32 +64,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cold Weather Payment
 - Kieran Tierney
 - Nick Clegg
-- Buck
 - Martin O'Neill
 - Darts final
 - Premier League
 - Rangers
 - Cybertruck
+- Neil Young
 - Real Madrid
 - Mohammed Siraj
 - Vijay hazare trophy
 - LaLiga
-- Bumrah Injury Update
+- Bumrah injury update
 - India vs Australia
 - HMPV
 - South Africa vs Pakistan
 - Sam Konstas
-- Prasidh krishna
 - भारत बनाम ऑस्ट्रेलिया
 - Rishabh Pant
 - Game Changer
 - DMart share price
-- CUET PG
-- Karun Nair
 - Ketan Parekh
 - Love Reddy
 - Rohit Sharma retirement
 - Rohit Sharma
+- Bangladesh
+- Bajaj finance share
+- Hyundai Creta Electric
 - epgview
 - best epg
 - epg for iptv
