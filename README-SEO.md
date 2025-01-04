@@ -45,19 +45,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - LaLiga
 - Fred Kerley
 - Jermaine Burton
+- Kirby Smart
 - AC Milan
 - Rivian stock
-- Penn State vs Notre Dame
+- Snow squall
 - Wayne Osmond
-- Celtics
 - Tottenham vs Newcastle
 - China
 - Edward Pettifer
 - Snow warning
-- Human metapneumovirus (HMPV China
 - Real Madrid
-- India vs Australia
 - Eurostar
+- HMPV
 - Quadrantids meteor showers
 - La Liga
 - Mo Salah
@@ -66,15 +65,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Britt Allcroft
 - Cold Weather Payment
 - Kieran Tierney
-- Clam
 - Nick Clegg
 - Martin O'Neill
 - Darts final
-- Mohammed Siraj
+- Premier League
+- Rangers
+- Real Madrid
 - Vijay hazare trophy
 - LaLiga
-- Bumrah injury update
 - Yuzvendra Chahal
+- Bumrah injury update
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
