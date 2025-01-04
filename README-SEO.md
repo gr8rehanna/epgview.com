@@ -30,35 +30,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Winter storm warning
 - Speaker of the House vote
-- Real Madrid
 - HMPV
+- Real Madrid
 - Jimmy Butler
 - Lakers
 - Virginia Tech football
 - Alcohol consumption cancer risk
-- Matt Gaetz
 - China
-- Cavaliers vs Mavericks
 - Apple Siri lawsuit settlement
 - LaLiga
 - Charlie Morton
 - Quadrantids meteor showers
-- Illinois basketball
 - Fred Kerley
 - Jermaine Burton
+- Kirby Smart
 - AC Milan
 - Rivian stock
 - Penn State vs Notre Dame
+- Wayne Osmond
 - Snow warning
 - Human metapneumovirus (HMPV China
 - Real Madrid
 - India vs Australia
-- Sara Sharif
 - Eurostar
 - Quadrantids meteor showers
+- La Liga
 - South Africa vs Pakistan
 - Mo Salah
+- Wayne Mardle
 - Britt Allcroft
 - Cold Weather Payment
 - Kieran Tierney
@@ -68,13 +69,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Darts final
 - Premier League
 - Rangers
-- Cybertruck
 - Neil Young
 - Real Madrid
 - Mohammed Siraj
 - Vijay hazare trophy
 - LaLiga
 - Bumrah injury update
+- Yuzvendra Chahal
 - India vs Australia
 - HMPV
 - South Africa vs Pakistan
@@ -84,11 +85,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Game Changer
 - DMart share price
 - Ketan Parekh
-- CUET PG
 - Love Reddy
+- CUET PG
 - Rohit Sharma retirement
 - Rohit Sharma
-- Bajaj Finance
 - Bangladesh
 - epgview
 - best epg
