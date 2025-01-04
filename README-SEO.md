@@ -31,55 +31,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Jeff Baena
-- Browns
+- Browns vs Ravens
 - Steelers
+- Barbastro  Barcelona
 - Man City vs West Ham
+- Arsenal
 - Barcelona
 - Kentucky basketball
-- Tottenham vs Newcastle
-- Chelsea
-- Solo Leveling season 2
 - George Soros
-- FC Barcelona
-- Derrick Rose
-- Brighton vs Arsenal
-- UNC basketball
-- Duke basketball
-- Sonny Smart
 - Tennessee basketball
+- Tottenham vs Newcastle
+- Solo Leveling season 2
+- Chelsea
+- Derrick Rose
+- Duke basketball
+- UNC basketball
+- Sonny Smart
 - Trump sentencing
 - Winter Storm Warning
-- HMPV
-- Tottenham vs Newcastle
+- Speaker of the House vote
+- Premier League
+- TOTTENHAM VS NEWCASTLE
 - Jeff Baena
 - Man City vs West Ham
-- Brighton vs Arsenal
 - Crystal Palace vs Chelsea
 - Leeds United
 - Aston Villa vs Leicester City
 - Ed Pettifer
+- Bournemouth vs Everton
 - Elvis Presley
 - Championship
 - Weather today
-- Pl
 - Tiggy Legge-Bourke
-- Everton
+- Jimmy Carter
 - China
+- North Shore
 - Sheffield Wednesday
+- Masked Singer
 - Barcelona
 - Sheffield United
-- Blackburn Rovers
-- Masked Singer
 - Premier League
 - Real Madrid
 - Man City vs West Ham
 - Yuzvendra Chahal
-- Crystal Palace vs Chelsea
 - Vijay hazare trophy
 - Bumrah injury update
-- FC Barcelona
 - Barcelona
 - Jagdeep Singh
+- Chelsea
 - BJP candidate list 2025 Delhi
 - India vs Australia
 - South Africa vs Pakistan
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - China
 - Game Changer
 - Love Reddy
+- Rohit Sharma
 - epgview
 - best epg
 - epg for iptv
