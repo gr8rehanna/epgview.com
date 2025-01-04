@@ -30,60 +30,60 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Winter storm warning
 - Speaker of the House vote
 - Real Madrid
 - Lakers
 - HMPV
-- Matt Gaetz
 - Brenton Wood
+- Matt Gaetz
+- Virginia Tech football
 - Boston Celtics
 - Timberwolves
-- Surgeon General alcohol Cancer risk
 - Clarence Thomas
-- Quadrantids meteor showers
-- Illinois basketball
-- Terry Crews
-- Britt Allcroft
+- Surgeon General alcohol cancer risk
 - Apple Siri lawsuit settlement
+- Britt Allcroft
+- LaMelo Ball
+- China
+- Quadrantids meteor showers
+- Terry Crews
 - LaLiga
-- Notre Dame football
-- Wayne Osmond
-- Celtics
-- Sugar Bowl time
+- Charlie Morton
+- China
 - Snow warning
 - Human metapneumovirus (HMPV China
-- India vs Australia
 - Real Madrid
+- India vs Australia
 - Sara Sharif
 - Eurostar
 - Quadrantids meteor showers
 - South Africa vs Pakistan
+- Mo Salah
 - Wayne Mardle
 - Britt Allcroft
 - Cold Weather Payment
+- Kieran Tierney
 - Clam
 - Nick Clegg
 - Buck
-- Salah
-- Kieran Tierney
 - Martin O'Neill
 - Darts final
 - Premier League
-- Rangers
 - Real Madrid
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
-- भारत बनाम ऑस्ट्रेलिया
 - Jasprit Bumrah
+- भारत बनाम ऑस्ट्रेलिया
 - Rishabh Pant
 - DMart share price
 - CUET PG
 - Ketan Parekh
+- Karun Nair
 - Rohit Sharma
 - Bangladesh
 - Bajaj finance share
-- Hyundai Creta Electric
 - New Orleans
 - Happy
 - Happy New Year 2025
