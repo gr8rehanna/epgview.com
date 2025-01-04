@@ -30,55 +30,56 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Speaker of the House vote
 - Lakers
 - Real Madrid
-- Speaker of the House vote
 - Matt Gaetz
+- Boston Celtics
 - HMPV
 - Quadrantids meteor showers
 - Illinois basketball
-- Notre Dame Football
-- Wayne Osmond
+- Terry Crews
+- Clarence Thomas
+- Notre Dame football
 - Winter Storm snow forecast
+- Wayne Osmond
 - Celtics
-- Tesla stock
 - Warriors
 - Plane crash California
 - Georgia
-- UGA
 - Meghan Markle
 - Anthony Edwards
-- 2025 calendar
 - FCC net neutrality rules
+- Snow warning
 - Sara Sharif
 - Human metapneumovirus (HMPV China
 - Eurostar
-- South Africa vs Pakistan
 - Quadrantids meteor showers
+- South Africa vs Pakistan
+- Real Madrid
 - Britt Allcroft
+- Juventus vs Milan
 - Cold Weather Payment
 - Nick Clegg
 - Martin O'Neill
+- Clam
 - Premier League
 - Rangers vs Celtic
 - Cybertruck
 - Lockerbie
 - LinkedIn
 - Wayne Osmond
-- Companies House
 - Neil Young
-- HMRC
-- Royal Mail
-- FTSE 100
+- Real Madrid
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
 - Jasprit Bumrah
 - Rishabh Pant
 - Game Changer
+- CUET PG
 - DMart share price
 - Ketan Parekh
-- CUET PG
 - Karun Nair
 - Rohit Sharma
 - Bajaj Finance
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy
 - Happy New Year 2025
 - New Year Wishes 2025
-- Happy New Year 2025 photo
 - epgview
 - best epg
 - epg for iptv
