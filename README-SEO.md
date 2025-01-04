@@ -32,35 +32,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Winter storm warning
 - Speaker of the House vote
-- Real Madrid
 - HMPV
+- Real Madrid
 - Jimmy Butler
 - Lakers
-- Virginia Tech football
 - Alcohol consumption cancer risk
+- Virginia Tech football
 - China
 - Clarence Thomas
 - Apple Siri lawsuit settlement
 - Charlie Morton
+- Jermaine Burton
 - LaLiga
 - Fred Kerley
-- Jermaine Burton
+- Quadrantids meteor showers
 - Kirby Smart
 - AC Milan
 - Rivian stock
 - Snow squall
-- Wayne Osmond
 - Tottenham vs Newcastle
 - China
 - Edward Pettifer
+- Elvis Presley
 - Snow warning
+- Human metapneumovirus (HMPV China
 - Real Madrid
 - Eurostar
-- HMPV
 - Quadrantids meteor showers
 - La Liga
 - Mo Salah
 - South Africa vs Pakistan
+- Neil Young Glastonbury
 - Wayne Mardle
 - Britt Allcroft
 - Cold Weather Payment
@@ -68,10 +70,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nick Clegg
 - Martin O'Neill
 - Darts final
-- Premier League
-- Rangers
 - Real Madrid
 - Vijay hazare trophy
+- Tottenham vs Newcastle
 - LaLiga
 - Yuzvendra Chahal
 - Bumrah injury update
@@ -82,7 +83,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - भारत बनाम ऑस्ट्रेलिया
 - Rishabh Pant
 - Game Changer
-- DMart share price
 - Ketan Parekh
 - Love Reddy
 - Rohit Sharma retirement
