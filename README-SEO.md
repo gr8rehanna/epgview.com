@@ -32,51 +32,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Jeff Baena
 - Browns
-- Man City vs West Ham
 - Steelers
+- Man City vs West Ham
 - Barcelona
+- Kentucky basketball
 - Tottenham vs Newcastle
 - Chelsea
 - Solo Leveling season 2
-- Kentucky basketball
 - George Soros
+- FC Barcelona
 - Derrick Rose
-- UNC basketball
 - Brighton vs Arsenal
-- Trump sentencing
+- UNC basketball
+- Duke basketball
 - Sonny Smart
+- Tennessee basketball
+- Trump sentencing
 - Winter Storm Warning
 - HMPV
-- Speaker of the House vote
-- Real Madrid
-- Jimmy Butler
 - Tottenham vs Newcastle
-- Man City vs West Ham
 - Jeff Baena
-- Crystal Palace vs Chelsea
+- Man City vs West Ham
 - Brighton vs Arsenal
+- Crystal Palace vs Chelsea
 - Leeds United
 - Aston Villa vs Leicester City
 - Ed Pettifer
+- Elvis Presley
+- Championship
 - Weather today
+- Pl
 - Tiggy Legge-Bourke
 - Everton
-- Elvis Presley
 - China
-- Blackburn Rovers
-- Sheffield United
+- Sheffield Wednesday
 - Barcelona
-- Norwich City
-- Chelsea FC
-- Derby County
-- Solo Leveling season 2
+- Sheffield United
+- Blackburn Rovers
+- Masked Singer
+- Premier League
+- Real Madrid
 - Man City vs West Ham
 - Yuzvendra Chahal
 - Crystal Palace vs Chelsea
 - Vijay hazare trophy
-- LaLiga
 - Bumrah injury update
-- Brighton vs Arsenal
+- FC Barcelona
 - Barcelona
 - Jagdeep Singh
 - BJP candidate list 2025 Delhi
@@ -86,10 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sam Konstas
 - Rishabh Pant
 - भारत बनाम ऑस्ट्रेलिया
+- China
 - Game Changer
-- Ketan Parekh
 - Love Reddy
-- Rohit Sharma
 - epgview
 - best epg
 - epg for iptv
