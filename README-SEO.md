@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Winter storm warning
 - Speaker of the House vote
 - Real Madrid
+- Jimmy Butler
+- Brenton Wood
 - Lakers
 - HMPV
-- Brenton Wood
-- Matt Gaetz
 - Virginia Tech football
-- Boston Celtics
-- Timberwolves
-- Clarence Thomas
+- Matt Gaetz
 - Surgeon General alcohol cancer risk
+- Boston Celtics
 - Apple Siri lawsuit settlement
-- Britt Allcroft
-- LaMelo Ball
 - China
+- Clarence Thomas
+- Britt Allcroft
 - Quadrantids meteor showers
-- Terry Crews
+- Illinois basketball
 - LaLiga
 - Charlie Morton
+- Penn State vs Notre Dame
+- Winter Storm snow forecast
 - China
 - Snow warning
 - Human metapneumovirus (HMPV China
@@ -64,19 +64,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Britt Allcroft
 - Cold Weather Payment
 - Kieran Tierney
-- Clam
 - Nick Clegg
-- Buck
 - Martin O'Neill
 - Darts final
 - Premier League
+- Rangers
+- Cybertruck
 - Real Madrid
+- Vijay Hazare Trophy
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
 - Jasprit Bumrah
 - भारत बनाम ऑस्ट्रेलिया
 - Rishabh Pant
+- Game Changer
 - DMart share price
 - CUET PG
 - Ketan Parekh
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy
 - Happy New Year 2025
 - New Year Wishes 2025
-- Happy New Year 2025 photo
-- Adani Wilmar
 - epgview
 - best epg
 - epg for iptv
