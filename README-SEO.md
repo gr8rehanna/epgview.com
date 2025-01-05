@@ -34,30 +34,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kc Chiefs
 - Jeff Baena
 - Bengals vs Steelers
+- Winter storm warning
 - Browns vs Ravens
 - George Soros
 - Jimmy Carter
-- Premier League
 - Chiefs
+- Premier League
 - Derrick Rose
 - Zay Flowers
 - Lamar Jackson
 - Arsenal
 - Sonny Smart
 - Barcelona
-- Kansas City weather
 - Kawhi Leonard
+- Lions vs Vikings
 - Kentucky basketball
 - Chelsea
-- FC Barcelona
 - Fulham vs ipswich Town
 - Rangers
-- Liverpool FC
 - Joe Biden
-- Leeds Bradford Airport
-- Birmingham Airport
 - Sunderland vs Portsmouth
+- Leeds Bradford Airport
 - Robert Jenrick
+- Golden Globes 2025
 - Premier League
 - Jeff Baena
 - TOTTENHAM VS NEWCASTLE
@@ -65,11 +64,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City vs West Ham
 - Crystal Palace vs Chelsea
 - Leeds United
-- ManCity
 - Elvis Presley
-- Ed Pettifer
 - Aston Villa
+- Weather Today
 - Championship
+- Masked Singer
+- Jimmy Carter
 - Premier League
 - OYO
 - Mukesh Chandrakar
@@ -78,9 +78,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Vijay hazare trophy
 - Barcelona
 - Jagdeep Singh
-- IND बनाम AUS
+- Bumrah news
 - HMPV virus cases
-- Border-Gavaskar Trophy
+- IND बनाम AUS
 - Minimalist
 - India vs Australia
 - South Africa vs Pakistan
