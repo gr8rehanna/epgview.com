@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Jeff Baena
 - Browns vs Ravens
+- Premier League
 - Steelers
 - George Soros
 - Barbastro  Barcelona
 - Man City vs West Ham
-- Arsenal
 - Barcelona
 - Kentucky basketball
 - Tennessee basketball
+- Zay Flowers
 - Tottenham vs Newcastle
 - Solo Leveling season 2
 - Chelsea
-- Derrick Rose
 - Lamar Jackson
-- Duke basketball
+- Derrick Henry
+- Derrick Rose
 - Sonny Smart
-- UNC basketball
+- Duke Basketball
 - Jimmy Carter funeral
-- Zay Flowers
 - Premier League
 - Tottenham vs Newcastle
 - Jeff Baena
@@ -60,35 +60,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ed Pettifer
 - Elvis Presley
 - Championship
-- Weather today
-- Tiggy Legge-Bourke
 - North Shore
+- Liverpool weather
 - Everton
 - Jimmy Carter
+- Laura Hamilton
 - China
-- Sheffield Wednesday
 - Masked Singer
+- Sheffield Wednesday
 - Barcelona
-- Sheffield United
+- Blackburn Rovers
 - Premier League
 - Real Madrid
 - Man City vs West Ham
 - Yuzvendra Chahal
 - Vijay hazare trophy
 - Bumrah injury update
-- Brighton vs Arsenal
 - Barcelona
 - Jagdeep Singh
 - Chelsea
+- Ind बनाम AUS
 - BJP candidate list 2025 Delhi
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
 - Sam Konstas
 - Rishabh Pant
-- भारत बनाम ऑस्ट्रेलिया
 - China
 - Game Changer
+- China news
 - Love Reddy
 - epgview
 - best epg
