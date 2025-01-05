@@ -30,6 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Premier League
+- Mukesh Chandrakar
+- Ram Charan
+- Yuzvendra Chahal
+- Vijay hazare trophy
+- Barcelona
+- Jagdeep Singh
+- FC Barcelona
+- IND बनाम AUS
+- Border-Gavaskar Trophy
+- HMPV virus cases
+- Minimalist
+- India vs Australia
+- South Africa vs Pakistan
+- HMPV
+- Jasprit Bumrah
+- Rishabh Pant
+- Bumrah
+- China
+- Game Changer
 - epgview
 - best epg
 - epg for iptv
