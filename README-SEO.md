@@ -33,33 +33,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Golden Globes 2025
 - Kc Chiefs
 - Jeff Baena
+- Bengals vs Steelers
 - Winter storm warning
 - Browns vs Ravens
-- Steelers
-- George Soros
 - Premier League
+- George Soros
 - Chiefs
 - Jimmy Carter
 - Derrick Rose
 - Zay Flowers
-- Lamar Jackson
 - Arsenal
 - Sonny Smart
 - Barcelona
-- Kawhi Leonard
 - Lions vs Vikings
+- Kawhi Leonard
 - Kentucky basketball
 - George Pickens
+- Michael Pierce
 - Fulham vs ipswich Town
 - Rangers
 - Sunderland vs Portsmouth
 - Joe Biden
 - Fulham
 - Leeds Bradford Airport
+- Ben Godfrey
 - Golden Globes 2025
-- Robert Jenrick
+- Birmingham Airport
 - Nigel Farage
-- Premier League
+- Liverpool vs Man United
 - Jeff Baena
 - TOTTENHAM VS NEWCASTLE
 - Arsenal
@@ -67,22 +68,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Crystal Palace vs Chelsea
 - Leeds United
 - Elvis Presley
-- Aston Villa
 - Weather Today
-- Championship
+- Aston Villa
 - Premier League
+- Babar Azam
 - Mukesh Chandrakar
 - Ram Charan
 - George Soros
-- Gautam Gambhir
 - Yuzvendra Chahal
 - Vijay hazare trophy
 - Barcelona
-- Jagdeep Singh
-- Bumrah news
+- Border-Gavaskar trophy
 - HMPV virus cases
 - IND बनाम AUS
-- Minimalist
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rishabh Pant
 - Bumrah
 - China
+- Game Changer
+- All We Imagine as Light
 - epgview
 - best epg
 - epg for iptv
