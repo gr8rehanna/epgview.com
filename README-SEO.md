@@ -30,31 +30,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Jeff Baena
+- Browns vs Ravens
 - Bengals vs Steelers
-- Baltimore Ravens
+- Jeff Baena
 - Premier League
 - George Soros
 - Jimmy Carter
 - Barbastro  Barcelona
+- Derrick Henry
 - Man City vs West Ham
 - Zay Flowers
 - Barcelona
-- Kentucky basketball
 - Derrick Rose
-- Sonny Smart
 - Kansas City Chiefs
+- Sonny Smart
 - Ed Pettifer
-- Tottenham vs Newcastle
-- Chelsea
 - Russell Wilson
+- Tottenham vs Newcastle
+- Kentucky basketball
+- Chelsea
 - Tennessee basketball
-- Duke basketball
 - Liverpool weather
 - Joe Biden
-- Arsenal
-- Tottenham vs Newcastle
 - Premier League
+- Tottenham vs Newcastle
 - Jeff Baena
 - Man City vs West Ham
 - Crystal Palace vs Chelsea
@@ -62,33 +61,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs Leicester City
 - Ed Pettifer
 - Elvis Presley
+- EPL
 - Championship
 - Weather today
 - Tiggy Legge-Bourke
 - North Shore
 - Jimmy Carter
 - Everton
-- China
 - Masked Singer
+- China
 - Mukesh Chandrakar
+- Sam Konstas
 - Premier League
 - Real Madrid
 - Yuzvendra Chahal
 - Vijay hazare trophy
-- Bumrah injury update
 - Barcelona
+- Jagdeep Singh
 - Man City
+- Human metapneumovirus (HMPV virus
 - IND बनाम AUS
 - BJP candidate list 2025 Delhi
-- Border-Gavaskar Trophy
-- HMPV virus cases
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
-- Sam Konstas
+- Jasprit Bumrah
 - Rishabh Pant
-- China
 - Bumrah
+- China
 - Game Changer
 - epgview
 - best epg
