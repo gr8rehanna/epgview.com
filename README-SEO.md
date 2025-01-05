@@ -30,17 +30,57 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Golden Globes 2025
+- Kc Chiefs
+- Jeff Baena
+- Bengals vs Steelers
+- Browns vs Ravens
+- George Soros
+- Jimmy Carter
 - Premier League
+- Chiefs
+- Derrick Rose
+- Zay Flowers
+- Lamar Jackson
+- Arsenal
+- Sonny Smart
+- Barcelona
+- Kansas City weather
+- Kawhi Leonard
+- Kentucky basketball
+- Chelsea
+- FC Barcelona
+- Fulham vs ipswich Town
+- Rangers
+- Liverpool FC
+- Joe Biden
+- Leeds Bradford Airport
+- Birmingham Airport
+- Sunderland vs Portsmouth
+- Robert Jenrick
+- Premier League
+- Jeff Baena
+- TOTTENHAM VS NEWCASTLE
+- Arsenal
+- Man City vs West Ham
+- Crystal Palace vs Chelsea
+- Leeds United
+- ManCity
+- Elvis Presley
+- Ed Pettifer
+- Aston Villa
+- Championship
+- Premier League
+- OYO
 - Mukesh Chandrakar
 - Ram Charan
 - Yuzvendra Chahal
 - Vijay hazare trophy
 - Barcelona
 - Jagdeep Singh
-- FC Barcelona
 - IND बनाम AUS
-- Border-Gavaskar Trophy
 - HMPV virus cases
+- Border-Gavaskar Trophy
 - Minimalist
 - India vs Australia
 - South Africa vs Pakistan
