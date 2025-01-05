@@ -31,8 +31,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Jeff Baena
-- Bengals vs Steelers
 - Browns vs Ravens
+- Bengals vs Steelers
 - George Soros
 - Premier League
 - Jimmy Carter
@@ -62,18 +62,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs Leicester City
 - Ed Pettifer
 - Elvis Presley
+- Premier League games
 - Championship
-- Weather today
 - Tiggy Legge-Bourke
 - North Shore
 - Jimmy Carter
 - Everton
+- Laura Hamilton
 - Masked Singer
-- China
-- Premier League
 - Human metapneumovirus (HMPV virus
 - Mukesh Chandrakar
-- Sam Konstas
 - Real Madrid
 - Yuzvendra Chahal
 - Vijay hazare trophy
@@ -82,9 +80,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jagdeep Singh
 - BJP candidate list 2025 Delhi
 - HMPV virus cases
+- Minimalist
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
+- Sam Konstas
 - Jasprit Bumrah
 - Rishabh Pant
 - China
