@@ -31,50 +31,50 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Bears vs Packers
+- Patriots
 - Golden Globes 2025
 - Giants vs Eagles
-- Bills vs Patriots
 - Falcons
+- Saints vs Buccaneers
 - The Vivienne
-- Texans
-- Trey Lance
+- Atlanta Falcons
 - Joe Milton
-- Houston Texans
+- Trey Lance
+- Jaguars vs Colts
 - Tanner McKee
-- Dolphins game
-- Kansas City
-- Golden Globe nominations
-- Aubrey Plaza husband
-- Winter storm warning
+- Dolphins vs Jets
+- Chargers vs Raiders
+- Bryce Young
+- Seahawks vs Rams
+- World juniors Hockey
+- Jeff Baena
+- Winter Storm Warning
 - Browns vs Ravens
-- Steelers
-- Premier League
-- Chiefs
 - The Vivienne
 - Liverpool FC
 - Fulham vs Ipswich Town
+- James Norton
 - Manchester Airport
 - Elon Musk
 - Rangers
-- Liverpool FC
 - IPSWICH TOWN
 - Sunderland vs Portsmouth
 - Golden Globes 2025
 - Joe Biden
 - Call the Midwife
-- Leeds Bradford Airport
 - Nigel Farage
+- Leeds Bradford Airport
+- Ben Godfrey
 - John Craven
 - Birmingham Airport
 - Robert Jenrick
+- Tulip Siddiq
 - Biden
-- Liverpool vs Man United
-- Jeff Baena
 - Liverpool vs Man United
 - Babar Azam
 - Jeff Baena
 - Mukesh Chandrakar
-- Man utd
+- Man Utd
 - Ram Charan
 - George Soros
 - Yuzvendra Chahal
@@ -83,7 +83,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMPV virus cases
 - Barca
 - Chelsea
-- Border-Gavaskar trophy
+- Border-Gavaskar Trophy
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
