@@ -30,26 +30,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Browns vs Ravens
-- Bengals vs Steelers
 - Jeff Baena
-- Premier League
+- Bengals vs Steelers
+- Browns vs Ravens
 - George Soros
+- Premier League
 - Jimmy Carter
 - Barbastro  Barcelona
-- Derrick Henry
 - Man City vs West Ham
 - Zay Flowers
-- Barcelona
 - Derrick Rose
+- Barcelona
 - Kansas City Chiefs
 - Sonny Smart
 - Ed Pettifer
 - Russell Wilson
-- Tottenham vs Newcastle
 - Kentucky basketball
 - Chelsea
+- Kawhi Leonard
 - Tennessee basketball
+- Duke basketball
+- FOOTBALL RESULTS
 - Liverpool weather
 - Joe Biden
 - Premier League
@@ -61,7 +62,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs Leicester City
 - Ed Pettifer
 - Elvis Presley
-- EPL
 - Championship
 - Weather today
 - Tiggy Legge-Bourke
@@ -70,26 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Everton
 - Masked Singer
 - China
+- Premier League
+- Human metapneumovirus (HMPV virus
 - Mukesh Chandrakar
 - Sam Konstas
-- Premier League
 - Real Madrid
 - Yuzvendra Chahal
 - Vijay hazare trophy
 - Barcelona
-- Jagdeep Singh
-- Man City
-- Human metapneumovirus (HMPV virus
 - IND बनाम AUS
+- Jagdeep Singh
 - BJP candidate list 2025 Delhi
+- HMPV virus cases
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
 - Jasprit Bumrah
 - Rishabh Pant
-- Bumrah
 - China
 - Game Changer
+- All We Imagine as Light
 - epgview
 - best epg
 - epg for iptv
