@@ -31,13 +31,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Golden Globes 2025
-- Bears vs Packers
-- Texans
+- Bears
+- Giants vs Eagles
 - Bills vs Patriots
+- Texans
+- Trey Lance
 - Houston Texans
-- Jeff Baena
+- Tanner McKee
+- Joe Milton
 - Bengals vs Steelers
 - Winter storm warning
+- Jeff Baena
 - Browns vs Ravens
 - Premier League
 - Chiefs
@@ -46,31 +50,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Derrick Rose
 - Zay Flowers
-- Arsenal
-- Sonny Smart
-- Lions vs Vikings
-- Kawhi Leonard
-- Fulham vs ipswich Town
+- The Vivienne
 - Liverpool FC
+- Fulham vs Ipswich Town
+- Elon Musk
 - Rangers
+- IPSWICH TOWN
+- Joe Biden
 - Liverpool score
 - Sunderland vs Portsmouth
-- Joe Biden
-- Fulham
-- Leeds Bradford Airport
 - Golden Globes 2025
-- Ben Godfrey
+- Leeds Bradford Airport
 - Nigel Farage
+- Ben Godfrey
+- John Craven
 - Birmingham Airport
 - Robert Jenrick
+- Call the Midwife
 - Liverpool vs Man United
 - Jeff Baena
 - TOTTENHAM VS NEWCASTLE
-- Arsenal
-- Man City vs West Ham
-- Crystal Palace vs Chelsea
-- Leeds United
 - Liverpool vs Man United
+- Babar Azam
+- Jeff Baena
 - Mukesh Chandrakar
 - Ram Charan
 - George Soros
@@ -78,10 +80,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Yuzvendra Chahal
 - Barcelona
 - Vijay hazare trophy
-- Border-Gavaskar trophy
+- Border-Gavaskar Trophy
 - HMPV virus cases
 - Chelsea
-- Minimalist
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rishabh Pant
 - Bumrah
 - China
-- Game Changer
 - epgview
 - best epg
 - epg for iptv
