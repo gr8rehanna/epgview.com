@@ -36,27 +36,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Patriots
 - Commanders
 - 49ers vs Cardinals
-- Falcons
-- Seahawks
-- Liverpool vs Man United
-- The Vivienne
-- Chargers
-- Giants vs Eagles
 - The Substance
-- Tampa Bay
+- Liverpool vs Man United
+- Falcons
 - Bills vs Patriots
+- Seahawks
+- The Vivienne
+- Chargers vs Raiders
+- Giants vs Eagles
+- Tampa Bay
 - Jordan Love injury
 - Tyreek Hill
-- Texans
 - Cincinnati Bengals
+- KC Chiefs
 - Shogun
+- School closures
+- PSG
 - The Vivienne
 - James Norton
 - Liverpool FC
 - Fulham vs Ipswich Town
-- Elon Musk
 - Golden Globes 2025
+- Elon Musk
 - Rangers
+- Manchester Airport
 - Tommy Robinson
 - IPSWICH TOWN
 - Liverpool weather
@@ -64,15 +67,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joe Biden
 - Call the Midwife
 - Lily Allen
+- Leeds Bradford Airport
 - John Craven
 - Robert Jenrick
-- Birmingham Airport
-- Zendaya
-- Biden
-- Liverpool vs Man United
 - ITC Share Price
 - Vishal
 - Standard Glass Lining IPO GMP today
+- RRB Technician Grade 3 Answer Key
 - Liverpool vs Man United
 - Babar Azam
 - Guru Gobind Singh Jayanti 2025
@@ -84,7 +85,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Yuzvendra Chahal
 - Vijay hazare trophy
 - Barcelona
-- Barca
 - Border-Gavaskar Trophy
 - India vs Australia
 - South Africa vs Pakistan
