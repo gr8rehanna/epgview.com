@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Inauguration Day
 - Nikki Glaser Golden Globes
+- Epic
+- CES 2025
 - Golden Globes 2025
 - Bears vs Packers
 - Broncos
 - Patriots
-- The Substance
 - Commanders
+- The Substance
 - Liverpool vs Man United
-- Falcons
 - The Vivienne
 - Giants vs Eagles
-- 49ers
 - Tampa Bay
+- 49ers
+- Falcons
 - Tyreek Hill
-- Jordan Love injury
-- Seahawks vs Rams
 - Justin Trudeau
-- Hacks
-- Chargers
-- Atlanta Falcons
+- Jordan Love injury
+- Timothee Chalamet
+- LinkedIn
 - Teams
+- Timothee Chalamet
 - School closures
 - Zoom
 - Vivienne Westwood
 - Liver transplant bowel cancer
+- Flood warnings
 - Steven Gerrard
 - PSG
+- Blue Monday 2025
 - The Vivienne
 - Golden Globes 2025
 - James Norton
 - Liverpool FC
 - Fulham vs ipswich Town
 - Elon Musk
-- Rangers
 - Tommy Robinson
+- Rangers
 - Manchester Airport
-- Sunderland vs Portsmouth
-- Joe Biden
-- Liverpool game
-- Human metapneumovirus (HMPV virus
 - Standard Glass Lining IPO GMP
 - ITC share price
-- Vishal
 - RRB
+- Vishal
 - Why market is down Today
 - Vinay Hiremath
-- WWE Raw Netflix
-- Redmi 14C 5G
+- WWE RAW Netflix
+- Quadrant Future Tek IPO GMP
 - RRB Technician Grade 3 Answer Key
 - ITI Share Price
 - Golden Globes 2025
-- Quadrant Future Tek IPO
+- Redmi 14C 5G
 - Prashant Kishor
+- Realme 14 Pro
+- HMPV
 - Liverpool vs Man United
 - Babar Azam
 - Guru Gobind Singh Jayanti 2025
 - Mukesh Chandrakar
-- HMPV
-- Yuzvendra Chahal
-- Vijay hazare trophy
+- Human Metapneumovirus (HMPV virus
 - epgview
 - best epg
 - epg for iptv
