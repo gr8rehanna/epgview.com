@@ -33,50 +33,51 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bears vs Packers
 - Patriots
 - Golden Globes 2025
-- Giants vs Eagles
-- Bills vs Patriots
-- Drake Maye
-- The Vivienne
-- Atlanta Falcons
 - Falcons
+- Bills vs Patriots
+- Giants vs Eagles
+- The Vivienne
+- Chargers
 - Dolphins vs Jets
-- Chargers vs Raiders
-- Jaguars vs Colts
-- Trey Lance
-- Houston Texans
+- Atlanta Falcons
+- Joe Milton
+- Texans
+- 49ers vs Cardinals
+- Playoff picture NFL
 - Seahawks vs Rams
+- Trey Lance
+- Tanner McKee
 - Kansas City
-- World juniors Hockey
+- Bryce Young
 - Social Security Fairness Act
-- Jeff Baena
-- Winter Storm Warning
 - The Vivienne
 - Liverpoolfc
 - James Norton
 - Fulham vs Ipswich Town
 - Manchester Airport
-- Elon Musk
 - Rangers
+- Elon Musk
 - IPSWICH TOWN
-- Liverpool score
 - Golden Globes 2025
 - Sunderland vs Portsmouth
 - Joe Biden
 - Call the Midwife
 - Nigel Farage
 - Leeds Bradford Airport
-- Ben Godfrey
 - John Craven
+- Ben Godfrey
 - Birmingham Airport
 - Robert Jenrick
 - Tulip Siddiq
 - Liverpool vs Man United
+- Liverpool vs Man United
 - Babar Azam
 - Jeff Baena
 - Mukesh Chandrakar
+- Man utd
+- Guru Gobind Singh Jayanti 2025
 - Ram Charan
 - George Soros
-- Gautam Gambhir
 - Yuzvendra Chahal
 - Vijay hazare trophy
 - Barcelona
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMPV
 - Jasprit Bumrah
 - Rishabh Pant
-- Bumrah
 - epgview
 - best epg
 - epg for iptv
