@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Bears vs Packers
 - Golden Globes 2025
+- Bears vs Packers
 - Patriots
+- Seahawks
+- 49ers vs Cardinals
 - Falcons
 - Commanders
-- Seahawks
-- 49ers
 - Chargers
-- Bills vs Patriots
 - The Vivienne
+- Bills vs Patriots
 - Giants vs Eagles
-- Dolphins vs Jets
-- Panthers vs Falcons
-- Chiefs score
+- Atlanta Falcons
+- Washington Commanders
 - Jordan Love injury
+- Dolphins game
 - Joe Milton
 - Trey Lance
+- Houston Texans
 - Tanner McKee
 - Kansas City
-- Social Security Fairness Act
 - The Vivienne
 - James Norton
 - Liverpool FC
@@ -69,7 +69,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Robert Jenrick
 - Zendaya
 - Tulip Siddiq
-- Liverpool vs Man United
+- Biden
 - Liverpool vs Man United
 - Babar Azam
 - Jeff Baena
@@ -77,19 +77,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man utd
 - Guru Gobind Singh Jayanti 2025
 - Ram Charan
+- HMPV virus cases in India
 - George Soros
 - Gautam Gambhir
-- Barcelona
 - Yuzvendra Chahal
 - Vijay hazare trophy
-- HMPV virus cases
+- Barcelona
+- Barca
 - Border-Gavaskar Trophy
 - India vs Australia
 - South Africa vs Pakistan
 - HMPV
 - Jasprit Bumrah
 - Rishabh Pant
-- Bumrah
 - epgview
 - best epg
 - epg for iptv
