@@ -32,31 +32,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Golden Globes 2025
 - Bears vs Packers
+- Broncos
 - Patriots
+- Commanders
+- Liverpool vs Man United
 - Falcons
 - 49ers vs Cardinals
-- Commanders
 - Seahawks
-- Chargers
-- The Substance
 - The Vivienne
+- Chargers
 - Giants vs Eagles
 - Bills vs Patriots
-- Dolphins game
-- Chiefs score
-- Jordan Love injury
-- Joe Milton
+- Tampa Bay
+- The Substance
+- Cincinnati Bengals
+- Texans
+- Dolphins vs Jets
 - Tyreek Hill
-- Trey Lance
-- Houston Texans
-- Harrison Ford
+- Jordan Love injury
 - The Vivienne
 - James Norton
-- Liverpoolfc
+- Liverpool FC
 - Fulham vs Ipswich Town
 - Manchester Airport
-- Rangers
 - Elon Musk
+- Rangers
 - Golden Globes 2025
 - Tommy Robinson
 - IPSWICH TOWN
@@ -67,21 +67,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Robert Jenrick
 - Birmingham Airport
 - Zendaya
-- Tulip Siddiq
-- Biden
 - Liverpool vs Man United
+- Premier League
+- Jeff Baena
+- Vishal
 - Liverpool vs Man United
 - Babar Azam
 - Guru Gobind Singh Jayanti 2025
 - Jeff Baena
 - Mukesh Chandrakar
 - Man utd
-- Ram Charan
+- Ram charan
+- HMPV virus cases in India
 - George Soros
 - Yuzvendra Chahal
 - Vijay hazare trophy
 - Barcelona
-- Chahal
 - Barca
 - Border-Gavaskar Trophy
 - India vs Australia
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMPV
 - Jasprit Bumrah
 - Rishabh Pant
-- Bumrah
 - epgview
 - best epg
 - epg for iptv
