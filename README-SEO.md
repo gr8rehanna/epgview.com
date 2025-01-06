@@ -30,57 +30,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Rams
 - Inauguration Day
+- Rams
+- Real Madrid
 - Epic
-- When is Super Bowl 2025
 - CES 2025
-- Cavs
-- January 6th
-- Ben Johnson
-- Bad Bunny
+- Carolina Panthers
+- Seattle Seahawks
+- When is Super Bowl 2025
+- Snow emergency levels Ohio
+- Human Metapneumovirus (HMPV virus
 - Golden Globes red carpet
-- Human Metapneumovirus HMPV virus
+- Bad Bunny
+- Doug Pederson
 - Golden Globes 2025
 - NFL playoff picture
-- Broncos
 - Commanders vs Cowboys
+- Broncos
 - Bears vs Packers
-- The Substance
-- Patriots
 - Justin Trudeau
-- The Vivienne
+- The Substance
 - LinkedIn
 - Ars
 - Justin Trudeau
 - Timothee Chalamet
 - Teams
+- The Substance
 - School closures
 - Blue Monday 2025
 - Liver transplant bowel cancer
 - Zoom
-- Vivienne Westwood
 - Flood warnings
+- Vivienne Westwood
 - Steven Gerrard
 - Snake
-- PSG
 - Sebastian Stan
+- PSG
+- Adrien Brody
 - The Vivienne
 - Golden Globes 2025
 - James Norton
-- Liverpool FC
-- Fulham vs ipswich Town
 - Standard Glass Lining IPO GMP
 - ITC share price
-- RRB
+- Vishal
 - Share market today
+- RRB
+- Justin Trudeau
 - WWE RAW Netflix
 - Quadrant Future Tek IPO GMP
-- Justin Trudeau
+- Golden Globes 2025
 - RRB Technician Grade 3 Answer Key
 - ITI Share Price
 - Realme 14 Pro
-- Golden Globes 2025
 - Prashant Kishor
 - Redmi 14C 5G
 - AR Rahman
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Guru Gobind Singh Jayanti 2025
 - Loom
 - Liverpool
-- Mukesh Chandrakar
 - epgview
 - best epg
 - epg for iptv
