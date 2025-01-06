@@ -31,55 +31,53 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Inauguration Day
-- Rams
+- Jets
 - Real Madrid
+- Rams
 - Epic
-- CES 2025
+- Canvas
 - Carolina Panthers
 - Seattle Seahawks
-- When is Super Bowl 2025
-- January 6th
+- CES 2025
 - ABC
-- Ben Johnson
-- Golden Globe
+- CES
 - Human Metapneumovirus (HMPV virus
 - Doug Pederson
-- Golden Globes red carpet
-- Bad Bunny
 - Rum
+- Golden Globes red carpet
+- Fubo stock
+- Bad Bunny
+- Mlk Day
 - Golden Globes 2025
 - NFL playoff picture
-- Broncos
+- Office 365
+- Wolves vs nottm Forest
 - LinkedIn
 - Justin Trudeau
 - Ars
-- Wolves vs nottm Forest
 - Timothee Chalamet
+- West Ham
 - The Substance
 - Teams
 - UCAS
 - School closures
-- Blue Monday 2025
 - Real Madrid
+- Blue Monday 2025
 - Liver transplant bowel cancer
 - Zoom
 - Flood warnings
 - Steven Gerrard
 - Vivienne Westwood
-- Snake
 - Sebastian Stan
-- Adrien Brody
-- TOTY vote
+- Snake
 - Standard Glass Lining IPO GMP
 - ITC share price
-- Vishal
 - Share market today
 - RRB
 - Justin Trudeau
 - WWE RAW Netflix
 - Quadrant Future Tek IPO GMP
 - Golden Globes 2025
-- RRB Technician Grade 3 Answer Key
 - Realme 14 Pro
 - ITI Share Price
 - Prashant Kishor
@@ -88,8 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMPV virus kya hai
 - HMPV
 - Guru Gobind Singh Jayanti 2025
-- OYO
 - Loom
+- Liverpool
+- Mukesh Chandrakar
+- Human Metapneumovirus (HMPV virus
 - epgview
 - best epg
 - epg for iptv
