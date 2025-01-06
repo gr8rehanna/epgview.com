@@ -31,10 +31,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Golden Globes 2025
-- Broncos
 - Bears vs Packers
 - Patriots
 - Commanders
+- The Substance
 - 49ers vs Cardinals
 - Liverpool vs Man United
 - The Vivienne
@@ -42,10 +42,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Giants vs Eagles
 - Tampa Bay
 - Falcons
-- The Substance
 - Seahawks vs Rams
-- Jordan Love injury
 - Tyreek Hill
+- Jordan Love injury
+- Chiefs score
 - Chargers
 - Atlanta Falcons
 - Cincinnati Bengals
@@ -56,31 +56,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Vivienne
 - Golden Globes 2025
 - James Norton
-- Liverpool FC
-- Fulham vs Ipswich Town
+- Fulham vs ipswich Town
 - Manchester Airport
 - Elon Musk
 - Rangers
 - Tommy Robinson
-- IPSWICH TOWN
+- Liverpool FC
 - Sunderland vs Portsmouth
 - Human Metapneumovirus (HMPV Virus
 - Call the Midwife
 - Joe Biden
+- Fulham
 - Lily Allen
-- Leeds Bradford Airport
 - Zendaya
-- RRB
+- Leeds Bradford Airport
 - ITC share price
-- Vishal
+- RRB
 - Standard Glass Lining IPO GMP today
 - WWE Raw Netflix
+- Why market is down Today
 - RRB Technician Grade 3 Answer Key
 - Quadrant Future Tek IPO
+- Golden Globes 2025
 - Redmi 14C 5G
 - Liverpool vs Man United
 - Babar Azam
-- OYO
 - Guru Gobind Singh Jayanti 2025
 - Jeff Baena
 - Mukesh Chandrakar
