@@ -39,19 +39,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rams
 - HMPV virus
 - CES 2025
-- Canvas
 - WWE
+- Canvas
+- Rosca de Reyes
 - Super Bowl 2025 Date
 - NVIDIA
 - Carolina Panthers
 - Suns
+- January 6th
 - Seattle Seahawks
 - AC Milan
-- ABC
-- Fubo stock
-- Gavin Lux
-- Nvidia
+- When is Super Bowl 2025
+- NVIDIA
 - Wolves vs nottm Forest
+- Maps
 - The Substance
 - Justin Trudeau
 - Office 365
@@ -67,13 +68,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AC Milan
 - Liver transplant bowel cancer
 - Zoom
-- Golden Globes winners
 - Kath Phipps
 - QPR
-- Earthquake
 - Real Madrid
-- Copa del Rey
+- Earthquake
 - Capital Infra Trust IPO GMP
+- GATE 2025
 - Zendaya
 - AC MILAN
 - Standard Glass Lining IPO GMP
@@ -81,15 +81,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Trudeau
 - RRB
 - Stock Market
-- WWE RAW Netflix
+- Share Market today
 - Quadrant Future Tek IPO GMP
+- WWE Raw Netflix
 - Vinay Hiremath
-- Stock market today
 - HMPV Virus kya hai
+- Guru Gobind Singh
 - ITI Share Price
 - Golden Globes 2025
 - Prashant Kishor
-- Share Market Today
 - epgview
 - best epg
 - epg for iptv
