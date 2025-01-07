@@ -31,45 +31,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Sutton Foster
-- Nvidia stock
-- Arsenal
 - Gulf of America
-- Gulf of Mexico
+- Arsenal
+- Palisades Fire
+- Nvidia stock
+- RTX 5070
+- Peter Yarrow
 - Richmond water
 - Robbie Williams
-- Peter Yarrow
 - Meta
-- Palisades Fire
 - TGL
+- EFL Cup
 - Timberwolves
 - H5N1 bird flu deaths
-- Verizon administrative settlement payment
-- Girl Scout Cookies 2025
-- Vikings
-- Inauguration Day
-- NVIDIA
-- Montana State football
-- Real Madrid
+- Antonio Pierce
+- Earthquake
+- Girl Scout cookies 2025
+- Verizon Administrative settlement payment
+- Jerry Springer
+- Ruby Franke
 - Arsenal vs Newcastle
-- Love Island All Stars 2025
-- NVIDIA
+- Love Island: All Stars 2025
+- Nvidia
+- EFL Cup
 - Snow weather warnings
 - Jean-Marie Le Pen
-- EFL Cup
 - Greenland
 - Hastings Direct
 - Sutton Foster
 - FA Cup
 - Jerry Springer
 - WWE
-- Nvidia stock
 - Rare 50p coins news
+- Nvidia stock
 - Hulk Hogan
 - Tibet
+- Paddy McGuinness
 - Forest
-- HMPV
-- Maps
-- Wolves vs nottm Forest
+- Elon Musk Liverpool
+- Lewis Hamilton
 - Arsenal vs Newcastle
 - Earthquake
 - GATE 2025
@@ -80,7 +80,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NVIDIA
 - EFL Cup
 - AC Milan
-- Sana Khan
 - HMPV Virus Cases
 - Justin Trudeau
 - ITC share price
@@ -89,7 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - WWE RAW Netflix
 - Standard Glass Lining IPO GMP today
 - Quadrant Future Tek IPO
-- HMPV virus kya hai
+- Prashant Kishor
+- HMPV
 - epgview
 - best epg
 - epg for iptv
