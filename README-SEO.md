@@ -30,46 +30,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Nvidia stock
 - Sutton Foster
+- Nvidia stock
+- Gulf of America
+- Richmond water
 - Robbie Williams
-- RICHMOND, Va boil water advisory
 - Meta
 - Timberwolves
 - H5N1 bird flu deaths
+- TGL
+- Money
 - Vikings
-- When does Trump take office
+- Inauguration Day
 - Montana State football
-- HMPV virus
 - NVIDIA
 - Real Madrid
 - WWE
+- HMPV virus
 - Timothee Chalamet
 - Zoom
 - Rams
-- Greenland
-- Panthers
-- Rosca de Reyes
-- Love Island All Stars 2025
+- Love Island: All Stars 2025
 - NVIDIA
 - Jean-Marie Le Pen
-- Hastings Direct
-- Weather warnings snow
 - Carabao Cup
+- Hastings Direct
 - Greenland
-- WWE
+- Weather warnings snow
 - EFL Cup
+- WWE
 - Sutton Foster
-- Nvidia stock
 - Jerry Springer
-- Forest
+- Nvidia stock
 - Tibet
+- Forest
+- Hulk Hogan
+- HMPV
 - Maps
 - Wolves vs nottm Forest
-- The Substance
 - Justin Trudeau
 - Office 365
-- LinkedIn
 - Earthquake
 - GATE 2025
 - OnePlus 13
@@ -80,16 +80,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AC Milan
 - UGC
 - Sana Khan
+- Stock Market
 - EFL Cup
-- HMPV Virus Cases
+- HMPV Virus cases
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
-- Share market Today
-- WWE Raw Netflix
 - Standard Glass Lining IPO GMP Today
+- WWE Raw Netflix
+- Share market Today
 - Torres
-- ITI Share Price
 - epgview
 - best epg
 - epg for iptv
