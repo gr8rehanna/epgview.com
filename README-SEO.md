@@ -34,52 +34,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jets
 - Real Madrid
 - Rams
-- Epic
 - CES 2025
 - Super Bowl 2025 Date
 - Canvas
 - Rosca de Reyes
-- Carolina Panthers
+- Seattle Seahawks
 - When is Super Bowl 2025
+- Karla Sofía Gascón
 - ABC
-- Ben Johnson
+- AC MILAN
 - Human Metapneumovirus (HMPV virus
-- Trump inauguration
-- Fubo stock
-- AC Milan
+- FUBO Stock
+- Ben Johnson
+- Mike McCarthy
+- Snow Blower
 - Doug Pederson
 - Rum
-- Snow Blower
 - Wolves vs nottm Forest
+- Maps
 - The Substance
 - Office 365
-- LinkedIn
 - Justin Trudeau
+- LinkedIn
 - Timothee Chalamet
 - West Ham
 - Teams
-- UCAS
 - Real Madrid
+- UCAS
 - School closures
-- Blue Monday 2025
 - Silent Witness
+- Blue Monday 2025
+- Coronation Street
 - Liver transplant bowel cancer
 - Zoom
-- Kieran Culkin
-- Flood warnings
-- Inter Milan
-- Steven Gerrard
-- Vivienne Westwood
+- Golden Globes winners
+- AC Milan
+- QPR
 - ITC share price
 - RRB
 - Justin Trudeau
 - Standard Glass Lining IPO GMP today
-- Share market today
 - WWE RAW Netflix
-- Golden Globes 2025
 - Quadrant Future Tek IPO GMP
+- Stock market today
 - Realme 14 Pro
 - ITI Share Price
+- Golden Globes 2025
 - Prashant Kishor
 - Redmi 14C 5G
 - AR Rahman
