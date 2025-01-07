@@ -30,42 +30,42 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Nvidia stock
+- Vikings
 - Inauguration Day
-- Montana State football
 - Jets
 - Real Madrid
+- WWE
+- Montana State football
 - Timothee Chalamet
 - Zoom
 - Rams
 - HMPV virus
-- CES 2025
-- WWE
-- Canvas
 - Super Bowl 2025 Date
+- Panthers
+- Canvas
 - NVIDIA
-- Carolina Panthers
+- CES 2025
+- NFL mock draft
 - Suns
 - AC Milan
 - Seattle Seahawks
-- Greenland
-- When is Super Bowl 2025
-- FUBO Stock
 - NVIDIA
 - Wolves vs nottm Forest
 - Maps
 - The Substance
-- Justin Trudeau
 - Office 365
 - LinkedIn
+- Justin Trudeau
 - Timothee Chalamet
 - West Ham
-- Teams
 - Real Madrid
-- UCAS
 - Coronation Street
+- UCAS
 - Silent Witness
 - School closures
 - AC Milan
+- Premier League Darts
 - Liver transplant bowel cancer
 - Zoom
 - Kath Phipps
@@ -76,20 +76,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Zendaya
 - Capital Infra Trust IPO GMP
 - AC Milan
+- NVIDIA
 - Standard Glass Lining IPO GMP
-- ITC share price
 - Justin Trudeau
+- ITC share price
 - RRB
-- Stock market
-- Share Market today
+- Stock Market
 - Quadrant Future Tek IPO GMP
 - WWE RAW Netflix
+- Share Market today
 - Guru Gobind Singh
 - ITI Share Price
 - Golden Globes 2025
 - Vinay Hiremath
 - Prashant Kishor
-- HMPV Virus kya hai
 - epgview
 - best epg
 - epg for iptv
