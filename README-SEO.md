@@ -38,18 +38,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Timberwolves
 - H5N1 bird flu deaths
 - Vikings
-- Inauguration Day
+- When does Trump take office
 - Montana State football
 - HMPV virus
-- WWE
-- Real Madrid
 - NVIDIA
+- Real Madrid
+- WWE
 - Timothee Chalamet
 - Zoom
 - Rams
-- Super Bowl 2025 Date
-- Panthers
 - Greenland
+- Panthers
+- Rosca de Reyes
 - Love Island All Stars 2025
 - NVIDIA
 - Jean-Marie Le Pen
@@ -57,39 +57,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Weather warnings snow
 - Carabao Cup
 - Greenland
+- WWE
 - EFL Cup
-- Nvidia stock
 - Sutton Foster
+- Nvidia stock
+- Jerry Springer
 - Forest
 - Tibet
 - Maps
 - Wolves vs nottm Forest
+- The Substance
 - Justin Trudeau
 - Office 365
 - LinkedIn
-- ARS
-- NOTTINGHAM FOREST
-- West Ham
 - Earthquake
 - GATE 2025
 - OnePlus 13
 - Zendaya
-- Delhi Election Date 2025
+- Delhi Election date 2025
 - Capital Infra Trust IPO GMP
 - NVIDIA
+- AC Milan
+- UGC
 - Sana Khan
-- hMPV Virus cases
+- EFL Cup
+- HMPV Virus Cases
 - Justin Trudeau
-- Standard Glass Lining IPO GMP
 - ITC share price
 - Quadrant Future Tek IPO GMP
 - Share market Today
-- WWE RAW Netflix
+- WWE Raw Netflix
+- Standard Glass Lining IPO GMP Today
 - Torres
 - ITI Share Price
-- Golden Globes 2025
-- HMPV virus kya hai
-- Prashant Kishor
 - epgview
 - best epg
 - epg for iptv
