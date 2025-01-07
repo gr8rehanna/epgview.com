@@ -30,28 +30,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Real Madrid
+- Inauguration Day
 - Jets
-- When does Trump take office
+- Real Madrid
+- Minnesota Vikings
 - Epic
-- Super Bowl 2025 Date
 - Canvas
+- Super Bowl 2025 Date
 - Human metapneumovirus HMPV outbreak
-- Rosca de Reyes
-- Carolina Panthers
+- Trump inauguration
 - CES 2025
+- Carolina Panthers
 - Seattle Seahawks
 - When is Super Bowl 2025
-- ABC
-- Three Kings Day
 - AC Milan
+- ABC
+- Montana State football
+- Nvidia
+- FUBO Stock
 - CES
-- Fubo stock
-- Trump inauguration
-- Ben Johnson
 - Mike McCarthy
 - Wolves vs nottm Forest
-- Maps
 - The Substance
 - Office 365
 - Justin Trudeau
@@ -60,33 +59,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - West Ham
 - Real Madrid
 - UCAS
-- School closures
 - Silent Witness
+- School closures
 - Coronation Street
-- Blue Monday 2025
 - AC Milan
 - Liver transplant bowel cancer
 - Zoom
 - Golden Globes winners
 - QPR
 - Inter Milan
+- Kath Phipps
+- Kieran Culkin
+- Real Madrid
+- Share Market
 - ITC share price
 - RRB
 - Justin Trudeau
 - Standard Glass Lining IPO GMP today
 - WWE Raw Netflix
-- Stock market today
+- Vinay Hiremath
 - Realme 14 Pro
 - ITI Share Price
 - Golden Globes 2025
 - Prashant Kishor
-- Redmi 14C 5G
 - AR Rahman
 - Quadrant Future Tek IPO
 - HMPV virus kya hai
 - HMPV
 - Guru Gobind Singh Jayanti 2025
-- Loom
 - Mukesh Chandrakar
 - Human Metapneumovirus (HMPV virus
 - Yuzvendra Chahal
