@@ -30,51 +30,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Real Madrid
 - Inauguration Day
 - Jets
-- Real Madrid
 - Minnesota Vikings
+- Zoom
 - Epic
+- CES 2025
 - Canvas
 - Super Bowl 2025 Date
 - Human metapneumovirus HMPV outbreak
-- Trump inauguration
-- CES 2025
+- Montana State football
 - Carolina Panthers
 - Seattle Seahawks
 - When is Super Bowl 2025
 - AC Milan
 - ABC
-- Montana State football
 - Nvidia
 - FUBO Stock
-- CES
-- Mike McCarthy
+- Gavin Lux
+- Snow Blower
 - Wolves vs nottm Forest
+- Maps
 - The Substance
-- Office 365
 - Justin Trudeau
+- Office 365
 - LinkedIn
 - Timothee Chalamet
 - West Ham
 - Real Madrid
 - UCAS
+- Coronation Street
 - Silent Witness
 - School closures
-- Coronation Street
 - AC Milan
 - Liver transplant bowel cancer
 - Zoom
 - Golden Globes winners
 - QPR
-- Inter Milan
 - Kath Phipps
-- Kieran Culkin
+- Inter Milan
 - Real Madrid
-- Share Market
+- Earthquake
 - ITC share price
 - RRB
 - Justin Trudeau
+- Share Market
 - Standard Glass Lining IPO GMP today
 - WWE Raw Netflix
 - Vinay Hiremath
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Guru Gobind Singh Jayanti 2025
 - Mukesh Chandrakar
 - Human Metapneumovirus (HMPV virus
-- Yuzvendra Chahal
 - epgview
 - best epg
 - epg for iptv
