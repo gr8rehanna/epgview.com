@@ -44,39 +44,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Zoom
 - Rams
 - Super Bowl 2025 Date
-- CES 2025
 - NVIDIA
+- CES 2025
 - Panthers
 - Canvas
 - Rosca de Reyes
 - Greenland
 - Love Island All Stars 2025
+- Hastings Direct
 - NVIDIA
-- WWE
+- Weather warnings snow
 - Jean-Marie Le Pen
+- WWE
 - Carabao Cup
-- Forest
 - Greenland
+- Forest
+- Nvidia stock
 - Wolves vs nottm Forest
 - Maps
 - The Substance
-- Office 365
 - Justin Trudeau
+- Office 365
 - LinkedIn
-- West Ham
 - Timothee Chalamet
 - Coronation Street
+- West Ham
 - Teams
-- Real Madrid
-- UCAS
-- Silent Witness
 - Earthquake
 - GATE 2025
-- Real Madrid
 - Zendaya
-- Delhi Election date 2025
+- Delhi Election Date 2025
 - Capital Infra Trust IPO GMP
 - NVIDIA
+- UGC
 - HMPV Virus Cases
 - Justin Trudeau
 - Standard Glass Lining IPO GMP
@@ -85,11 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Share market Today
 - WWE Raw Netflix
 - Torres
-- Realme 14 Pro
 - Golden Globes 2025
 - Prashant Kishor
 - HMPV virus kya hai
 - Parmeshwar Metal IPO GMP
+- HMPV
 - epgview
 - best epg
 - epg for iptv
