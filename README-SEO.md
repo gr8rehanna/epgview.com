@@ -33,59 +33,59 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Palisades Fire
 - Arsenal vs Newcastle
 - Sutton Foster
-- Nvidia stock
 - Peter Yarrow
+- Nvidia stock
 - Gulf of Mexico
-- Meta
+- RTX 5070
 - TGL
+- Meta
+- Girl Scout cookies retired
 - Richmond water
 - Robbie Williams
-- Jimmy Carter children
 - EFL Cup
 - Antonio Pierce
-- Dana White
-- Girl Scout cookies 2025
 - Jerry Springer
+- Dana White
+- Earthquake
 - Timberwolves
 - H5N1 bird flu deaths
-- Money
 - Verizon administrative settlement payment
 - Woolwich
 - Arsenal vs Newcastle
+- Arsenal
 - Love Island All Stars 2025
 - NVIDIA
 - Greenland
-- Snow weather warnings
+- EFL Cup
 - Jean-Marie Le Pen
-- Hastings Direct
+- Snow weather warnings
 - Sutton Foster
-- FA Cup
+- Hastings Direct
 - Jerry Springer
+- FA Cup
 - ITV
 - WWE
 - Hulk Hogan
 - Nvidia stock
-- Rare 50p coins news
-- Tibet
 - Gulf of Mexico
+- Tibet
 - Paddy McGuinness
-- Elon Musk Liverpool
 - Arsenal vs Newcastle
 - Earthquake
 - GATE 2025
 - OnePlus 13
-- GATE 2025 Admit Card
 - Zendaya
 - Delhi Election date 2025
 - Capital Infra Trust IPO GMP
+- GATE 2025 Admit Card
 - EFL Cup
 - NVIDIA
 - AC Milan
 - HMPV Virus Cases
 - Justin Trudeau
 - ITC share price
-- Share market Today
-- WWE Raw Netflix
+- Share Market Today
+- WWE RAW Netflix
 - Standard Glass Lining IPO GMP today
 - Quadrant Future Tek IPO
 - Prashant Kishor
