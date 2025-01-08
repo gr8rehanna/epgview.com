@@ -30,8 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Lincoln
+- Athletic Club vs Barcelona
 - Elvis Presley
+- Lincoln
 - Cooper Flagg
 - Florida basketball
 - Trump Canada
@@ -41,15 +42,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - TGL
 - Girl Scout cookies retired
 - Brian Matusz
-- Celtics vs Nuggets
+- Peter Yarrow
 - Steve Guttenberg
 - The Rookie
 - Zion Williamson
-- Jerry Springer
 - Tennessee basketball
 - Hugh Jackman
+- Nuggets
 - Jimmy Carter children
-- Antonio Pierce
+- Polytrauma
 - Los Angeles
 - Regent Street
 - Kobbie Mainoo
@@ -60,33 +61,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Glucose Goddess
 - Carabao Cup Final 2025
 - John George
+- Athletic Club vs Barcelona
+- Spurs
+- Steve Guttenberg
+- Jai Opetaia
+- Sam Altman
 - Arsenal vs Newcastle
 - Greenland
 - EFL Cup
 - Love Island: All Stars 2025
-- Jean-Marie Le Pen
-- NVIDIA
-- Sutton Foster
-- Car tax
-- Jerry Springer
-- Snow weather warnings
 - New Zealand vs Sri Lanka
 - Arsenal
+- Human metapneumovirus HMPV virus cases
 - SNAP Result 2024
-- Human Metapneumovirus HMPV Virus cases
 - Yash
 - Mahindra XEV 9e
 - Greenland
-- Anita Anand
 - V Narayanan ISRO chairman
+- Anita Anand
 - Aashiqui 3
+- SA20
 - Sam Altman
 - Earthquake
 - OnePlus 13
 - EFL Cup
 - Delhi Election date 2025
 - Nvidia
-- AC Milan
 - HMPV virus cases
 - Justin Trudeau
 - ITC share price
