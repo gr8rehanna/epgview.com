@@ -31,50 +31,49 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Sam Altman
+- Cooper Flagg
+- Elvis Presley
 - Palisades Fire
-- Arsenal vs Newcastle
-- TGL
-- Girl Scout cookies retired
 - Gulf of America
+- TGL
+- Arsenal vs Newcastle
+- Girl Scout cookies retired
 - Mark Zuckerberg
 - Peter Yarrow
 - Brian Matusz
+- Celtics vs Nuggets
 - The Rookie
 - Zion Williamson
 - Jerry Springer
 - Hugh Jackman
 - Tennessee basketball
-- Nuggets
-- California
-- Robbie Williams
+- Richmond water
 - Antonio Pierce
 - Kentucky basketball
-- RTX 5090
+- Polytrauma
 - Pacific Palisades
+- Trump
 - Kobbie Mainoo
-- Mark Zuckerberg
 - Lincoln
 - Elvis Presley
+- Mark Zuckerberg
 - Woolwich
+- Regent Street
 - Glucose Goddess
 - John George
 - Arsenal vs Newcastle
 - Greenland
-- Love Island All Stars 2025
 - EFL Cup
+- Love Island All Stars 2025
 - Jean-Marie Le Pen
-- NVIDIA
+- Nvidia
 - Sutton Foster
-- FA Cup
 - Jerry Springer
 - Snow weather warnings
-- ITV
-- Gulf of Mexico
 - New Zealand vs Sri Lanka
 - Arsenal
 - SNAP Result 2024
-- Human Metapneumovirus (HMPV virus cases
-- Mahindra XEV 9e
+- Human Metapneumovirus HMPV Virus cases
 - Greenland
 - Anita Anand
 - V Narayanan ISRO chairman
@@ -84,7 +83,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - EFL Cup
 - Delhi Election date 2025
 - Nvidia
-- Share Market
+- AC Milan
+- Delhi Election 2025 Date
 - HMPV virus cases
 - Justin Trudeau
 - ITC share price
