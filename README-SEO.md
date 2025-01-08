@@ -30,26 +30,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Palisades Fire
 - Arsenal vs Newcastle
-- Palisades fire
 - Sutton Foster
 - Nvidia stock
-- Gulf of America
-- RTX 5070
 - Peter Yarrow
 - Gulf of Mexico
 - Meta
 - TGL
 - Richmond water
 - Robbie Williams
+- Jimmy Carter children
+- EFL Cup
 - Antonio Pierce
-- Timberwolves
+- Dana White
 - Girl Scout cookies 2025
-- H5N1 bird flu deaths
 - Jerry Springer
+- Timberwolves
+- H5N1 bird flu deaths
+- Money
 - Verizon administrative settlement payment
-- Ruby Franke
-- Vikings
+- Woolwich
 - Arsenal vs Newcastle
 - Love Island All Stars 2025
 - NVIDIA
@@ -66,30 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nvidia stock
 - Rare 50p coins news
 - Tibet
-- Paddy McGuinness
-- Panama Canal
 - Gulf of Mexico
+- Paddy McGuinness
 - Elon Musk Liverpool
 - Arsenal vs Newcastle
 - Earthquake
 - GATE 2025
-- Real Madrid
 - OnePlus 13
+- GATE 2025 Admit Card
 - Zendaya
 - Delhi Election date 2025
 - Capital Infra Trust IPO GMP
-- GATE
 - EFL Cup
 - NVIDIA
 - AC Milan
-- Sana Khan
 - HMPV Virus Cases
 - Justin Trudeau
 - ITC share price
 - Share market Today
-- Quadrant Future Tek IPO GMP
 - WWE Raw Netflix
 - Standard Glass Lining IPO GMP today
+- Quadrant Future Tek IPO
+- Prashant Kishor
+- HMPV
 - epgview
 - best epg
 - epg for iptv
