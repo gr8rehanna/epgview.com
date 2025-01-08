@@ -32,17 +32,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Palisades Fire
 - Arsenal vs Newcastle
+- Sutton Foster
 - TGL
+- Peter Yarrow
 - Girl Scout cookies retired
 - Gulf of America
-- Peter Yarrow
 - Mark Zuckerberg
 - Brian Matusz
 - The Rookie
-- Hugh Jackman
 - Jerry Springer
-- Zion Williamson
 - Lakers vs Mavericks
+- Zion Williamson
 - Tennessee basketball
 - Nuggets
 - Richmond water
@@ -54,42 +54,42 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mark Zuckerberg
 - Woolwich
 - Glucose Goddess
+- Kobbie Mainoo
 - Arsenal vs Newcastle
 - Greenland
 - Love Island All Stars 2025
+- EFL Cup
 - Jean-Marie Le Pen
 - NVIDIA
+- Snow weather warnings
 - Sutton Foster
 - Hastings Direct
 - FA Cup
 - Jerry Springer
-- Snow weather warnings
 - ITV
 - Gulf of Mexico
 - Hulk Hogan
 - WWE
-- Elon Musk Liverpool
-- Tibet
 - New Zealand vs Sri Lanka
 - Arsenal
 - SNAP Result 2024
+- Yash
 - Mahindra XEV 9e
+- Anita Anand
 - Greenland
 - Earthquake
 - OnePlus 13
 - Delhi Election date 2025
-- Capital Infra Trust IPO GMP
+- EFL Cup
 - NVIDIA
 - AC Milan
+- Stock Market
 - Share Market
-- HMPV Virus Cases
+- HMPV virus cases
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
-- Stock Market
 - WWE Raw Netflix
-- Standard Glass Lining IPO GMP today
-- Prashant Kishor
 - epgview
 - best epg
 - epg for iptv
