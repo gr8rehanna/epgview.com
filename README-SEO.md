@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Palisades Fire
 - Arsenal vs Newcastle
-- Gulf of America
+- Sutton Foster
+- TGL
+- Gulf of Mexico
 - RTX 5070
 - Peter Yarrow
-- TGL
 - Meta
 - Girl Scout cookies retired
-- Hugh Jackman
+- Tennessee basketball
 - Richmond water
 - Robbie Williams
 - Jerry Springer
 - Walker Kessler
 - Antonio Pierce
-- Tennessee basketball
-- Dana White
+- Brian Matusz
+- Justin Verlander
+- Earthquake
 - Timberwolves
 - H5N1 bird flu deaths
-- Money
-- Justin Verlander
 - Woolwich
 - Arsenal vs Newcastle
-- Arsenal
 - Love Island All Stars 2025
 - Greenland
-- EFL Cup
 - Jean-Marie Le Pen
 - NVIDIA
-- RTX 5070
 - Snow weather warnings
 - Sutton Foster
 - Hastings Direct
 - Jerry Springer
 - FA Cup
+- Nvidia GeForce RTX 5070
 - ITV
 - Hulk Hogan
 - WWE
 - Gulf of Mexico
 - Tibet
 - Paddy McGuinness
-- Arsenal vs Newcastle
+- Elon Musk Liverpool
+- Forest
+- New Zealand vs Sri Lanka
+- Arsenal
+- Ajith Kumar
 - Earthquake
 - OnePlus 13
-- GATE 2025
 - Zendaya
-- Delhi Election date 2025
+- Delhi Election Date 2025
 - Capital Infra Trust IPO GMP
 - GATE 2025 Admit Card
 - EFL Cup
 - NVIDIA
 - AC Milan
 - Stock Market
-- HMPV Virus Cases
+- Share Market
+- HMPV Virus cases
 - Justin Trudeau
 - ITC share price
 - WWE Raw Netflix
-- Share Market Today
 - Standard Glass Lining IPO GMP today
-- Quadrant Future Tek IPO
-- Prashant Kishor
+- Share market Today
 - epgview
 - best epg
 - epg for iptv
