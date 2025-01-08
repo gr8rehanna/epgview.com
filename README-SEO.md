@@ -32,15 +32,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Palisades Fire
 - Arsenal vs Newcastle
-- Sutton Foster
 - TGL
-- Peter Yarrow
 - Girl Scout cookies retired
 - Gulf of America
 - Mark Zuckerberg
+- Peter Yarrow
 - Brian Matusz
 - The Rookie
 - Jerry Springer
+- Hugh Jackman
 - Lakers vs Mavericks
 - Zion Williamson
 - Tennessee basketball
@@ -48,13 +48,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Richmond water
 - Robbie Williams
 - Kentucky basketball
-- RTX 5090
 - Antonio Pierce
+- RTX 5090
 - Pacific Palisades
 - Mark Zuckerberg
 - Woolwich
 - Glucose Goddess
 - Kobbie Mainoo
+- John George
+- The g
 - Arsenal vs Newcastle
 - Greenland
 - Love Island All Stars 2025
@@ -68,8 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jerry Springer
 - ITV
 - Gulf of Mexico
-- Hulk Hogan
-- WWE
 - New Zealand vs Sri Lanka
 - Arsenal
 - SNAP Result 2024
@@ -81,15 +81,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - OnePlus 13
 - Delhi Election date 2025
 - EFL Cup
+- Capital Infra Trust IPO GMP
 - NVIDIA
-- AC Milan
-- Stock Market
 - Share Market
 - HMPV virus cases
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
 - WWE Raw Netflix
+- Standard Glass Lining IPO GMP today
 - epgview
 - best epg
 - epg for iptv
