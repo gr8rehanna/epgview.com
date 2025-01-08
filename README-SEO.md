@@ -31,51 +31,53 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Sam Altman
+- Lincoln
 - Cooper Flagg
 - Elvis Presley
 - Palisades Fire
 - Gulf of America
-- TGL
 - Arsenal vs Newcastle
+- TGL
+- Sutton Foster
 - Girl Scout cookies retired
 - Mark Zuckerberg
-- Peter Yarrow
 - Brian Matusz
 - Celtics vs Nuggets
+- Steve Guttenberg
 - The Rookie
 - Zion Williamson
+- California
 - Jerry Springer
-- Hugh Jackman
 - Tennessee basketball
 - Richmond water
-- Antonio Pierce
-- Kentucky basketball
-- Polytrauma
 - Pacific Palisades
-- Trump
+- Regent Street
 - Kobbie Mainoo
 - Lincoln
 - Elvis Presley
 - Mark Zuckerberg
 - Woolwich
-- Regent Street
 - Glucose Goddess
+- Carabao Cup Final 2025
 - John George
 - Arsenal vs Newcastle
 - Greenland
 - EFL Cup
 - Love Island All Stars 2025
 - Jean-Marie Le Pen
-- Nvidia
+- NVIDIA
 - Sutton Foster
 - Jerry Springer
 - Snow weather warnings
+- ITV
 - New Zealand vs Sri Lanka
 - Arsenal
 - SNAP Result 2024
+- Yash
 - Human Metapneumovirus HMPV Virus cases
 - Greenland
 - Anita Anand
+- Aashiqui 3
 - V Narayanan ISRO chairman
 - Sam Altman
 - Earthquake
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMPV virus cases
 - Justin Trudeau
 - ITC share price
-- Quadrant Future Tek IPO GMP
-- WWE Raw Netflix
 - epgview
 - best epg
 - epg for iptv
