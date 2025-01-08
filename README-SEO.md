@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Athletic Club vs Barcelona
+- Barcelona
+- Liverpool
 - Elvis Presley
+- FC Barcelona
 - Lincoln
+- Sam Altman
 - Cooper Flagg
-- Florida basketball
-- Trump Canada
+- Spencer Pratt
+- Sunny Hostin husband
 - Palisades Fire
 - Gulf of America
 - Arsenal vs Newcastle
 - TGL
 - Girl Scout cookies retired
 - Brian Matusz
-- Peter Yarrow
 - Steve Guttenberg
+- Antonio Pierce
 - The Rookie
 - Zion Williamson
-- Tennessee basketball
-- Hugh Jackman
-- Nuggets
-- Jimmy Carter children
+- Lakers vs Mavericks
+- Tottenham vs Liverpool
 - Polytrauma
 - Los Angeles
 - Regent Street
+- Athletic Club vs Barcelona
 - Kobbie Mainoo
 - Lincoln
 - Elvis Presley
 - Mark Zuckerberg
+- Liverpool FC
 - Woolwich
 - Glucose Goddess
-- Carabao Cup Final 2025
-- John George
-- Athletic Club vs Barcelona
 - Spurs
+- Carabao Cup Final 2025
+- Barcelona
+- John George
+- David Bowie
 - Steve Guttenberg
 - Jai Opetaia
 - Sam Altman
-- Arsenal vs Newcastle
-- Greenland
-- EFL Cup
-- Love Island: All Stars 2025
+- Athletic Club vs Barcelona
+- Barcelona
+- Tottenham vs Liverpool
+- FC Barcelona
+- Tirupati
 - New Zealand vs Sri Lanka
 - Arsenal
-- Human metapneumovirus HMPV virus cases
-- SNAP Result 2024
+- Human Metapneumovirus HMPV Virus cases
 - Yash
 - Mahindra XEV 9e
 - Greenland
 - V Narayanan ISRO chairman
 - Anita Anand
 - Aashiqui 3
-- SA20
 - Sam Altman
 - Earthquake
 - OnePlus 13
 - EFL Cup
 - Delhi Election date 2025
 - Nvidia
-- HMPV virus cases
-- Justin Trudeau
-- ITC share price
 - epgview
 - best epg
 - epg for iptv
