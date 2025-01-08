@@ -36,20 +36,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Gulf of America
 - Girl Scout cookies retired
 - Peter Yarrow
-- RTX 5070
 - Mark Zuckerberg
 - Brian Matusz
+- Nuggets
+- The Rookie
 - Hugh Jackman
 - Jerry Springer
 - Tennessee basketball
 - Zion Williamson
-- Nuggets
+- Warriors
 - Richmond water
 - Robbie Williams
 - Kentucky basketball
+- RTX 5090
 - Antonio Pierce
-- Walker Kessler
-- LaMelo Ball
 - Woolwich
 - Mark Zuckerberg
 - Arsenal vs Newcastle
@@ -72,23 +72,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lewis Hamilton
 - New Zealand vs Sri Lanka
 - Arsenal
+- Yash
 - Ajith Kumar
 - Mahindra XEV 9e
-- Bharatpol
 - Earthquake
 - OnePlus 13
-- Zendaya
 - Delhi Election Date 2025
+- Zendaya
 - EFL Cup
 - Capital Infra Trust IPO GMP
-- GATE 2025 Admit Card
 - NVIDIA
 - AC Milan
+- HMPV Virus Cases
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
-- Share market today
 - WWE Raw Netflix
+- Share Market today
 - Standard Glass Lining IPO GMP today
 - epgview
 - best epg
