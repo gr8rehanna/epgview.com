@@ -30,17 +30,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Sylmar fire
 - Palisades Fire
 - Arsenal vs Newcastle
-- Sutton Foster
 - TGL
-- Peter Yarrow
 - Girl Scout cookies retired
 - Gulf of America
+- Peter Yarrow
 - Mark Zuckerberg
 - Brian Matusz
 - The Rookie
+- Hugh Jackman
 - Jerry Springer
 - Zion Williamson
 - Lakers vs Mavericks
@@ -50,45 +49,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Robbie Williams
 - Kentucky basketball
 - RTX 5090
+- Antonio Pierce
+- Pacific Palisades
 - Mark Zuckerberg
 - Woolwich
-- Pacific Palisades
 - Glucose Goddess
-- The g
 - Arsenal vs Newcastle
-- Love Island All Stars 2025
 - Greenland
+- Love Island All Stars 2025
 - Jean-Marie Le Pen
 - NVIDIA
 - Sutton Foster
 - Hastings Direct
-- Jerry Springer
 - FA Cup
-- Weather warnings snow
+- Jerry Springer
+- Snow weather warnings
 - ITV
-- Hulk Hogan
 - Gulf of Mexico
+- Hulk Hogan
 - WWE
+- Elon Musk Liverpool
 - Tibet
 - New Zealand vs Sri Lanka
 - Arsenal
 - SNAP Result 2024
 - Mahindra XEV 9e
+- Greenland
 - Earthquake
 - OnePlus 13
 - Delhi Election date 2025
 - Capital Infra Trust IPO GMP
 - NVIDIA
 - AC Milan
-- HMPV Virus cases
+- Share Market
+- HMPV Virus Cases
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
 - Stock Market
 - WWE Raw Netflix
 - Standard Glass Lining IPO GMP today
-- Torres
-- Share Market
 - Prashant Kishor
 - epgview
 - best epg
