@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Sam Altman
 - Palisades Fire
 - Arsenal vs Newcastle
 - TGL
+- Sutton Foster
 - Girl Scout cookies retired
 - Gulf of America
 - Mark Zuckerberg
 - Peter Yarrow
 - Brian Matusz
-- The Rookie
+- Celtics vs Nuggets
 - Jerry Springer
-- Hugh Jackman
-- Lakers vs Mavericks
 - Zion Williamson
+- Lakers vs Mavericks
 - Tennessee basketball
-- Nuggets
 - Richmond water
+- California
 - Robbie Williams
+- The Rookie
 - Kentucky basketball
-- Antonio Pierce
-- RTX 5090
 - Pacific Palisades
 - Mark Zuckerberg
+- Lincoln
+- ELVIS PRESLEY
 - Woolwich
 - Glucose Goddess
 - Kobbie Mainoo
 - John George
-- The g
 - Arsenal vs Newcastle
 - Greenland
-- Love Island All Stars 2025
 - EFL Cup
+- Love Island All Stars 2025
 - Jean-Marie Le Pen
 - NVIDIA
 - Snow weather warnings
 - Sutton Foster
-- Hastings Direct
-- FA Cup
 - Jerry Springer
 - ITV
 - Gulf of Mexico
+- Hulk Hogan
 - New Zealand vs Sri Lanka
 - Arsenal
 - SNAP Result 2024
 - Yash
+- Human Metapneumovirus (HMPV virus cases
 - Mahindra XEV 9e
-- Anita Anand
 - Greenland
+- Anita Anand
+- Sam Altman
+- V Narayanan ISRO chairman
 - Earthquake
 - OnePlus 13
-- Delhi Election date 2025
 - EFL Cup
-- Capital Infra Trust IPO GMP
+- Delhi Election date 2025
 - NVIDIA
 - Share Market
 - HMPV virus cases
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
-- WWE Raw Netflix
-- Standard Glass Lining IPO GMP today
 - epgview
 - best epg
 - epg for iptv
