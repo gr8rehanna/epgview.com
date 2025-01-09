@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Winter Storm Warning
 - Cavs
 - James Woods
 - Wildfires California
 - Barcelona
 - Elvis Presley
-- LAUSD
-- Raiders
-- FC Barcelona
+- Bucks
 - Lincoln
+- FC Barcelona
+- Shifting Gears
 - Abbott Elementary
-- Bruins
-- David Bowie
+- Raiders
+- LAUSD school closure
 - Gavin Newsom
+- David Bowie
 - Screen Actors Guild Awards nominations
+- Bruins
 - Golden State Warriors
-- Bonnaroo 2025 lineup
-- California fires
-- Liverpool
-- Gulf of America
-- TGL
+- UCLA
+- Air quality Los Angeles
 - Tottenham vs Liverpool
 - La fires
 - Polytrauma
@@ -75,10 +75,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FC Barcelona
 - Tirupati
 - Los Angeles
+- IPO allotment status
 - Arsenal
 - Mahindra XEV 9e
 - Greenland
 - V Narayanan ISRO chairman
+- SA20
 - Sam Altman
 - Earthquake
 - OnePlus 13
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
-- WWE Raw Netflix
-- Standard Glass Lining IPO GMP today
 - epgview
 - best epg
 - epg for iptv
