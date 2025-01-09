@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Penn State vs Notre Dame
-- La wildfires
-- Cavs
 - James Woods
+- Cavs
 - Barcelona
 - Elvis Presley
 - Shifting Gears
 - LAUSD
-- Studio City fire
 - Bucks
 - Lincoln
 - FC Barcelona
+- Studio City fire
 - Abbott Elementary
-- Sam Altman
 - Gavin Newsom
 - Raiders
 - Cooper Flagg
 - Screen Actors Guild Awards nominations
 - David Bowie
 - Bruins
+- Illinois basketball
+- Air quality Los Angeles
 - Lynx
 - Tottenham vs Liverpool
 - La fires
@@ -76,6 +76,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Los Angeles
 - FC Barcelona
 - IPO allotment status
+- Los Angeles fire
+- CTET Result
+- Stampede
 - Arsenal
 - Mahindra XEV 9e
 - Greenland
@@ -84,12 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sam Altman
 - Earthquake
 - OnePlus 13
-- EFL Cup
 - Nvidia
 - HMPV virus cases
 - Justin Trudeau
-- ITC share price
-- Quadrant Future Tek IPO GMP
 - epgview
 - best epg
 - epg for iptv
