@@ -30,46 +30,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Athletic Club vs Barcelona
 - Liverpool
+- Athletic Club vs Barcelona
 - Barcelona
 - James Woods
-- Spencer Pratt
 - Elvis Presley
 - Lincoln
 - David Dobrik
 - Cooper Flagg
 - Bruins
-- Sunny Hostin husband
-- Trae Young
 - David Bowie
+- Trae Young
 - IonQ stock
+- Trump Canada
 - Palisades Fire
+- Gulf of America
 - TGL
 - Girl Scout cookies retired
-- Gulf of America
 - Arsenal vs Newcastle
 - Brian Matusz
+- Celtics
 - Tottenham vs Liverpool
 - Los Angeles
 - Polytrauma
-- London Regent Street bomb threat
 - Bentancur
+- London Regent Street bomb threat
 - Liverpool FC
-- Athletic Club vs Barcelona
 - Spurs
+- Athletic Club vs Barcelona
 - Celtic
 - Elvis Presley
 - Lfc
-- Celtic FC
 - Adanola
+- Regent Street
 - Lincoln
 - Kobbie Mainoo
 - Barcelona
 - Mark Zuckerberg
+- Patience Channel 4
 - Woolwich
 - Glucose Goddess
-- Carabao Cup Final 2025
 - Athletic Club vs Barcelona
 - Tottenham vs Liverpool
 - Barcelona
@@ -81,7 +81,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mahindra XEV 9e
 - Greenland
 - V Narayanan ISRO chairman
-- Carabao Cup
 - Anita Anand
 - Sam Altman
 - Earthquake
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi Election date 2025
 - Nvidia
 - HMPV virus cases
+- Justin Trudeau
 - epgview
 - best epg
 - epg for iptv
