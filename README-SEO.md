@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Real Madrid
 - Penn State vs Notre Dame
 - Carson Beck
 - American Primeval
-- National day of mourning
+- Hollywood
+- FA Cup
 - Michelle Obama
-- Will Rogers
+- National day of mourning
 - Garth Brooks
-- James Woods
+- Will Rogers
+- Venezuela
+- Real Madrid
 - Liverpool
+- Spencer Pratt
 - Cavs
-- Barcelona
-- Hurst Fire Sylmar
-- Cash Warren
 - FC Barcelona
+- Cameron Mathison
 - Bucks
 - Studio City fire
 - Shifting Gears
-- Abbott Elementary
-- Sam Altman
+- Pasadena
 - Everton
 - Everton vs Peterborough
 - FA Cup
 - Real Madrid vs Mallorca
-- Jimmy Carter
 - Tyler Young
-- Richard Hammond
-- Manchester Airport
-- FA Cup fixtures
 - Sheffield United vs Cardiff City
+- Jimmy Carter
+- Richard Hammond
+- FA Cup fixtures
+- Manchester Airport
 - Graham Potter
 - Lynx
 - American Primeval
-- Stuart Hogg
 - Joe Wicks
-- Ringo Starr
+- Stuart Hogg
 - Cold Weather Payments DWP
-- Tottenham vs Liverpool
-- LA fires
-- Polytrauma
+- Peterborough fc
+- Kvaratskhelia
+- Mick Lynch retirement
+- Sandi Toksvig
 - Real Madrid vs Mallorca
+- FA Cup
 - Saudi Pro League
 - CTET
 - Los Angeles
-- IPO allotment status
 - Barcelona
+- IPO allotment status
 - Tirupati
 - P Jayachandran
 - Vijay Hazare Trophy
 - TCS Q3 results
-- FC Barcelona
 - TCS Share Price
 - SA 20
-- Jimmy Carter
 - Leah Tata
 - L&T chairman
 - AIIMS
 - Oppo Reno 13 price
-- American Primeval
 - Poco X7
+- Arsenal
+- Greenland
 - epgview
 - best epg
 - epg for iptv
