@@ -36,20 +36,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Elvis Presley
 - Shifting Gears
+- LAUSD
 - Bucks
-- Raiders
 - Lincoln
 - FC Barcelona
-- Bonnaroo 2025 lineup
+- Studio City fire
 - Abbott Elementary
-- LAUSD school closure
-- Cooper Flagg
+- Sam Altman
+- Raiders
+- Bow
 - Gavin Newsom
+- Cooper Flagg
 - Screen Actors Guild Awards nominations
 - David Bowie
 - Bruins
-- Studio City fire
-- Golden State Warriors
+- Lynx
 - Tottenham vs Liverpool
 - La fires
 - Polytrauma
@@ -69,19 +70,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Carabao Cup Final 2025
 - Steve Guttenberg
 - David Bowie
-- John George
 - Barcelona
 - Liverpool
-- FC Barcelona
 - Tirupati
 - Los Angeles
+- FC Barcelona
 - IPO allotment status
-- Tirupati Stampede
 - Arsenal
 - Mahindra XEV 9e
 - Greenland
-- V Narayanan ISRO chairman
 - SA20
+- Poco X7
 - Sam Altman
 - Earthquake
 - OnePlus 13
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMPV virus cases
 - Justin Trudeau
 - ITC share price
+- Quadrant Future Tek IPO GMP
 - epgview
 - best epg
 - epg for iptv
