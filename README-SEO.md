@@ -30,22 +30,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Penn State vs Notre Dame
 - La wildfires
-- James Woods
 - Cavs
+- James Woods
 - Barcelona
 - Elvis Presley
 - Shifting Gears
 - LAUSD
+- Studio City fire
 - Bucks
 - Lincoln
 - FC Barcelona
-- Studio City fire
 - Abbott Elementary
 - Sam Altman
-- Raiders
-- Bow
 - Gavin Newsom
+- Raiders
 - Cooper Flagg
 - Screen Actors Guild Awards nominations
 - David Bowie
@@ -56,9 +56,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Polytrauma
 - Bentancur
 - London Regent Street bomb threat
-- Athletic Club vs Barcelona
 - Celtic
 - Adanola
+- Regent Street
 - Lincoln
 - Barcelona
 - Elvis Presley
