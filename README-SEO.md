@@ -32,44 +32,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Real Madrid
 - Penn State vs Notre Dame
+- Carson Beck
 - American Primeval
 - National day of mourning
 - Michelle Obama
-- UConn basketball
 - Will Rogers
 - Garth Brooks
-- Alabama basketball
 - James Woods
 - Liverpool
 - Cavs
 - Barcelona
 - Hurst Fire Sylmar
+- Cash Warren
 - FC Barcelona
 - Bucks
 - Studio City fire
 - Shifting Gears
-- Bonnaroo
 - Abbott Elementary
+- Sam Altman
 - Everton
 - Everton vs Peterborough
+- FA Cup
 - Real Madrid vs Mallorca
 - Jimmy Carter
 - Tyler Young
-- Manchester Airport
 - Richard Hammond
-- Graham Potter
+- Manchester Airport
+- FA Cup fixtures
 - Sheffield United vs Cardiff City
+- Graham Potter
 - Lynx
-- Stuart Hogg
 - American Primeval
+- Stuart Hogg
+- Joe Wicks
+- Ringo Starr
+- Cold Weather Payments DWP
 - Tottenham vs Liverpool
-- Los Angeles
+- LA fires
 - Polytrauma
-- Bentancur
-- Liverpool FC
-- James Woods
-- Celtic
-- Regent Street London bomb threat
 - Real Madrid vs Mallorca
 - Saudi Pro League
 - CTET
@@ -79,17 +79,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tirupati
 - P Jayachandran
 - Vijay Hazare Trophy
-- TCS Q3 Results
+- TCS Q3 results
 - FC Barcelona
 - TCS Share Price
 - SA 20
-- Barca
 - Jimmy Carter
 - Leah Tata
 - L&T chairman
 - AIIMS
 - Oppo Reno 13 price
 - American Primeval
+- Poco X7
 - epgview
 - best epg
 - epg for iptv
