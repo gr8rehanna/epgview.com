@@ -31,30 +31,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Penn State vs Notre Dame
-- La wildfires
+- National day of mourning
+- Winter storm warning
 - James Woods
 - Cavs
 - Barcelona
 - Elvis Presley
 - Shifting Gears
 - Bucks
-- Lincoln
+- LAUSD
+- Getty museum
 - Studio City fire
+- Lincoln
 - Bonnaroo: 2025 lineup
 - Abbott Elementary
+- Gavin Newsom
 - Raiders
-- LAUSD School closure
 - Screen Actors Guild Awards nominations
+- Marvel Rivals patch notes
 - Bruins
-- Illinois basketball
-- Bill Belichick
-- Trump Canada
-- California fires
 - Manchester Airport
 - Graham Potter
 - Lynx
 - Tottenham vs Liverpool
-- LA fires
+- La fires
 - Polytrauma
 - Bentancur
 - Liverpool FC
@@ -66,25 +66,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Regent Street
 - Adanola
 - Lincoln
-- Barcelona
 - Kobbie Mainoo
 - Mark Zuckerberg
 - Patience Channel 4
+- Woolwich
 - CTET
 - Los Angeles
 - Barcelona
 - Tirupati
 - Liverpool
 - Vijay Hazare Trophy
+- IPO allotment status
 - TCS Results
 - Rekhachithram
-- Human Metapneumovirus (HMPV) cases
+- Delta Autocorp IPO GMP
 - AIIMS
 - L&T Chairman
+- Oppo Reno 13 price
 - Arsenal
-- Human metapneumovirus (hMPV Virus Cases
-- SA20
-- Mahindra XEV 9e
+- Human metapneumovirus (HMPV virus cases
 - Greenland
 - Poco X7
 - Sam Altman
