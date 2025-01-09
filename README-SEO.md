@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Winter Storm Warning
-- Cavs
+- La wildfires
 - James Woods
-- Wildfires California
+- Cavs
 - Barcelona
 - Elvis Presley
+- Shifting Gears
 - Bucks
+- Raiders
 - Lincoln
 - FC Barcelona
-- Shifting Gears
+- Bonnaroo 2025 lineup
 - Abbott Elementary
-- Raiders
 - LAUSD school closure
+- Cooper Flagg
 - Gavin Newsom
-- David Bowie
 - Screen Actors Guild Awards nominations
+- David Bowie
 - Bruins
+- Studio City fire
 - Golden State Warriors
-- UCLA
-- Air quality Los Angeles
 - Tottenham vs Liverpool
 - La fires
 - Polytrauma
@@ -76,6 +76,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tirupati
 - Los Angeles
 - IPO allotment status
+- Tirupati Stampede
 - Arsenal
 - Mahindra XEV 9e
 - Greenland
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - HMPV virus cases
 - Justin Trudeau
 - ITC share price
-- Quadrant Future Tek IPO GMP
 - epgview
 - best epg
 - epg for iptv
