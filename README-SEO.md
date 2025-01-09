@@ -32,6 +32,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Penn State vs Notre Dame
 - National day of mourning
+- UConn basketball
+- Alabama basketball
 - James Woods
 - Cavs
 - Liverpool
@@ -42,20 +44,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Studio City fire
 - Shifting Gears
 - Bonnaroo
-- Gavin Newsom
 - Abbott Elementary
-- LAUSD
 - Raiders
 - Screen Actors Guild Awards nominations
-- Marvel Rivals patch notes
 - David Bowie
-- Bruins
+- Bill Belichick
+- Illinois basketball
 - Everton
-- Manchester Airport
 - Jimmy Carter
+- Manchester Airport
+- Tyler Young
 - Graham Potter
-- Lynx
 - Richard Hammond
+- Lynx
 - Stuart Hogg
 - Tottenham vs Liverpool
 - LA fires
@@ -63,33 +64,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bentancur
 - Liverpool FC
 - London Regent Street bomb threat
-- Athletic Club vs Barcelona
-- Celtic
 - James Woods
-- Elvis Presley
+- Celtic
 - Regent Street
 - Adanola
 - Lincoln
+- Kobbie Mainoo
 - CTET
 - Los Angeles
 - Barcelona
 - Tirupati
-- Vijay Hazare Trophy
-- IPO allotment status
 - P Jayachandran
-- TCS Q3 results
-- Rekhachithram
-- Jayachandran
+- Vijay Hazare Trophy
+- TCS Q3 Results
+- FC Barcelona
+- TCS Share Price
+- SA 20
 - Hero xtreme 250r
 - Jimmy Carter
-- L&T chairman
+- Leah Tata
+- L&T Chairman
 - AIIMS
-- Delta Autocorp IPO GMP
 - Oppo Reno 13 price
-- Mohammed Shami
-- Arsenal
+- Delta Autocorp IPO GMP
+- American Primeval
 - Poco X7
-- Greenland
+- Arsenal
 - epgview
 - best epg
 - epg for iptv
