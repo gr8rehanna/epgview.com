@@ -31,30 +31,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Penn State vs Notre Dame
+- Alabama basketball
+- La wildfires
 - Cavs
-- Fire in California
+- James Woods
 - Barcelona
 - Elvis Presley
 - Shifting Gears
 - LAUSD
 - Bucks
+- Getty museum
 - Lincoln
-- FC Barcelona
 - Studio City fire
-- Spencer Pratt
+- Bonnaroo: 2025 lineup
 - Abbott Elementary
 - Sam Altman
 - Gavin Newsom
 - Raiders
 - Screen Actors Guild Awards nominations
 - David Bowie
-- Marvel Rivals patch notes
-- UCLA
+- Manchester Airport
+- Graham Potter
 - Lynx
 - Tottenham vs Liverpool
-- La fires
+- LA fires
 - Polytrauma
 - Bentancur
+- Liverpool FC
 - London Regent Street bomb threat
 - Celtic
 - Regent Street
@@ -64,32 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Elvis Presley
 - Kobbie Mainoo
 - Mark Zuckerberg
-- Patience Channel 4
 - James Woods
+- Patience Channel 4
 - Woolwich
-- Glucose Goddess
-- Carabao Cup Final 2025
-- Steve Guttenberg
 - CTET
 - Barcelona
 - Los Angeles
-- Liverpool
 - Tirupati
-- FC Barcelona
+- Liverpool
 - IPO allotment status
-- Hero xtreme 250r
-- Stampede
+- AIIMS
+- TCS results
+- Human Metapneumovirus (HMPV virus cases
 - Arsenal
 - SA20
 - Mahindra XEV 9e
 - Greenland
 - Poco X7
 - Sam Altman
+- Boby Chemmanur
 - Earthquake
 - OnePlus 13
 - EFL Cup
 - Nvidia
-- HMPV virus cases
 - epgview
 - best epg
 - epg for iptv
