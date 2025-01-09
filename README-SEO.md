@@ -30,34 +30,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Liverpool
 - FC Barcelona
-- James Woods
 - Barcelona
+- James Woods
 - Elvis Presley
-- Sunny Hostin husband
 - Lincoln
-- David Dobrik
+- Ca fires
+- Sam Altman
 - Raiders
 - Cooper Flagg
 - Bruins
+- LAUSD school closure
 - David Bowie
-- Trae Young
+- OKC Thunder
+- Screen Actors Guild Awards nominations
 - IonQ stock
 - Bonnaroo 2025 lineup
-- Trump Canada
-- Palisades fire
-- Gulf of America
+- Palisades Fire
+- Liverpool
 - TGL
-- Mark Zuckerberg
+- Gulf of Mexico
 - Tottenham vs Liverpool
 - La fires
 - Polytrauma
 - Bentancur
-- Liverpool FC
 - London Regent Street bomb threat
 - Athletic Club vs Barcelona
 - Celtic
+- Adanola
 - Regent Street
 - Lincoln
 - Barcelona
@@ -79,7 +79,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mahindra XEV 9e
 - Greenland
 - V Narayanan ISRO chairman
-- Anita Anand
 - Sam Altman
 - Earthquake
 - OnePlus 13
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Trudeau
 - ITC share price
 - Quadrant Future Tek IPO GMP
+- WWE Raw Netflix
 - epgview
 - best epg
 - epg for iptv
