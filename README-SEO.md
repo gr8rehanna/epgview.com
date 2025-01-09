@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Real Madrid
 - Penn State vs Notre Dame
 - National day of mourning
+- American Primeval
+- Michelle Obama
 - UConn basketball
+- Will Rogers
 - Alabama basketball
-- James Woods
 - Cavs
 - Liverpool
+- Spencer Pratt
 - Barcelona
-- Ca fires
-- Elvis Presley
-- Bucks
-- Studio City fire
 - Shifting Gears
-- Bonnaroo
+- Bucks
+- Cameron Mathison
+- Studio City fire
 - Abbott Elementary
 - Raiders
 - Screen Actors Guild Awards nominations
-- David Bowie
-- Bill Belichick
-- Illinois basketball
+- Elvis
 - Everton
 - Jimmy Carter
 - Manchester Airport
@@ -57,7 +57,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Graham Potter
 - Richard Hammond
 - Lynx
+- Real Madrid vs Mallorca
 - Stuart Hogg
+- Sheffield United vs Cardiff City
+- American Primeval
 - Tottenham vs Liverpool
 - LA fires
 - Polytrauma
@@ -67,26 +70,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - James Woods
 - Celtic
 - Regent Street
-- Adanola
-- Lincoln
-- Kobbie Mainoo
+- Real Madrid vs Mallorca
 - CTET
 - Los Angeles
 - Barcelona
 - Tirupati
 - P Jayachandran
-- Vijay Hazare Trophy
+- Liverpool
 - TCS Q3 Results
+- Standard Glass Lining IPO allotment status
 - FC Barcelona
 - TCS Share Price
 - SA 20
-- Hero xtreme 250r
 - Jimmy Carter
 - Leah Tata
 - L&T Chairman
 - AIIMS
 - Oppo Reno 13 price
-- Delta Autocorp IPO GMP
 - American Primeval
 - Poco X7
 - Arsenal
