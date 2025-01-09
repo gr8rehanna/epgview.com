@@ -31,12 +31,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Penn State vs Notre Dame
-- James Woods
 - Cavs
 - Barcelona
 - Elvis Presley
 - Shifting Gears
-- LAUSD
+- Spencer Pratt
 - Bucks
 - Lincoln
 - FC Barcelona
@@ -44,12 +43,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Abbott Elementary
 - Gavin Newsom
 - Raiders
-- Cooper Flagg
+- LAUSD School closure
 - Screen Actors Guild Awards nominations
 - David Bowie
 - Bruins
 - Illinois basketball
-- Air quality Los Angeles
+- Bill Belichick
+- Bonnaroo
 - Lynx
 - Tottenham vs Liverpool
 - La fires
@@ -58,7 +58,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - London Regent Street bomb threat
 - Celtic
 - Adanola
-- Regent Street
 - Lincoln
 - Barcelona
 - Elvis Presley
@@ -67,17 +66,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Patience Channel 4
 - Woolwich
 - Glucose Goddess
+- James Woods
 - Carabao Cup Final 2025
 - Steve Guttenberg
 - David Bowie
 - Barcelona
-- Liverpool
-- Tirupati
 - Los Angeles
+- Liverpool
+- CTET Result December 2024
+- Tirupati
 - FC Barcelona
 - IPO allotment status
-- Los Angeles fire
-- CTET Result
 - Stampede
 - Arsenal
 - Mahindra XEV 9e
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nvidia
 - HMPV virus cases
 - Justin Trudeau
+- ITC share price
 - epgview
 - best epg
 - epg for iptv
