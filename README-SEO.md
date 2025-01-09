@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Real Madrid
 - Penn State vs Notre Dame
-- National day of mourning
 - American Primeval
+- National day of mourning
 - Michelle Obama
 - UConn basketball
 - Will Rogers
+- Garth Brooks
 - Alabama basketball
-- Cavs
+- James Woods
 - Liverpool
-- Spencer Pratt
+- Cavs
 - Barcelona
-- Shifting Gears
+- Hurst Fire Sylmar
+- FC Barcelona
 - Bucks
-- Cameron Mathison
 - Studio City fire
+- Shifting Gears
+- Bonnaroo
 - Abbott Elementary
-- Raiders
-- Screen Actors Guild Awards nominations
-- Elvis
 - Everton
-- Jimmy Carter
-- Manchester Airport
-- Tyler Young
-- Graham Potter
-- Richard Hammond
-- Lynx
+- Everton vs Peterborough
 - Real Madrid vs Mallorca
-- Stuart Hogg
+- Jimmy Carter
+- Tyler Young
+- Manchester Airport
+- Richard Hammond
+- Graham Potter
 - Sheffield United vs Cardiff City
+- Lynx
+- Stuart Hogg
 - American Primeval
 - Tottenham vs Liverpool
-- LA fires
+- Los Angeles
 - Polytrauma
 - Bentancur
 - Liverpool FC
-- London Regent Street bomb threat
 - James Woods
 - Celtic
-- Regent Street
+- Regent Street London bomb threat
 - Real Madrid vs Mallorca
+- Saudi Pro League
 - CTET
 - Los Angeles
+- IPO allotment status
 - Barcelona
 - Tirupati
 - P Jayachandran
-- Liverpool
+- Vijay Hazare Trophy
 - TCS Q3 Results
-- Standard Glass Lining IPO allotment status
 - FC Barcelona
 - TCS Share Price
 - SA 20
+- Barca
 - Jimmy Carter
 - Leah Tata
-- L&T Chairman
+- L&T chairman
 - AIIMS
 - Oppo Reno 13 price
 - American Primeval
-- Poco X7
-- Arsenal
 - epgview
 - best epg
 - epg for iptv
