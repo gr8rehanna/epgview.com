@@ -37,29 +37,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michelle Obama
 - Anita Bryant
 - Carson Beck
-- Real Madrid  RCD Mallorca
 - American Primeval
-- Wordle hint
 - Ohio State vs Texas
 - Den of Thieves 2
 - Venezuela
-- Abdul Carter
 - Trump sentencing
 - FA Cup
 - Traitors Season 3
 - Mel Gibson
 - Garth Brooks
 - The Pitt
+- National day of mourning
+- Rodeo lineup 2025
+- Obama
 - Liz Truss
-- Fulham
 - Everton
-- Everton vs Peterborough
 - FA Cup
+- Everton vs Peterborough
 - Tyler Young
 - Richard Hammond
 - Jimmy Carter
-- La fire Map
-- FA Cup fixtures
+- La fire map
 - Manchester Airport
 - Cold Weather Payments DWP
 - Graham Potter
@@ -68,8 +66,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield United
 - Lynx
 - Stuart Hogg
-- Joe Wicks
 - Kvaratskhelia
+- Joe Wicks
+- Mick Lynch retirement
+- Wordle hint
 - Ireland Women vs India Women
 - Real Madrid
 - Vaikuntha Ekadashi
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hindi Diwas 2025
 - Game Changer
 - Los Angeles
-- CTET
 - Barcelona
-- TCS share price
+- CTET
 - Vaikunta Ekadasi 2025
 - P Jayachandran
-- IPO allotment status
-- Jayachandran
-- Poco X7 Pro
 - Tirupati
-- L&T Chairman
+- IPO allotment status
+- Vijay Hazare Trophy
+- Jayachandran
+- TCS Q3 results
+- Poco X7 Pro
 - Fateh
-- Jimmy Carter
+- L&T chairman
 - epgview
 - best epg
 - epg for iptv
