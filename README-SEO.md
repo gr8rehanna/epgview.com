@@ -35,29 +35,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deshaun Watson
 - Milo Ventimiglia
 - Marvel Rivals Season 1
+- On call
 - Suns
 - Notre Dame vs Penn State
 - Kenneth Fire West Hills
 - TikTok
-- Trump sentencing
 - Ohio State Football
+- Trump sentencing
 - Anita Bryant
 - Carson Beck
 - Celebrity homes lost in fire
 - Michelle Obama
 - American Primeval
-- Houston Rodeo lineup 2025
 - Den of Thieves 2
+- Houston Rodeo lineup 2025
 - Macy stores closing
-- Abdul Carter
+- Aston Villa vs West Ham
 - Rangers
 - Sainsbury's Nectar card warning
 - Bank of Dave
-- Chappell Roan
 - Anita Bryant
+- Chappell Roan
 - Mel Gibson
+- Warwick Davis
 - Rod Stewart
 - Liz Truss
+- Lloyds Banking Group
+- Fulham
 - Everton
 - FA Cup
 - Everton vs Peterborough
@@ -65,22 +69,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Darren Ferguson
 - Richard Hammond
 - Jimmy Carter
-- La Fire Map
-- Manchester Airport
-- Cold Weather Payments DWP
-- Joe Wicks
-- Graham Potter
-- Premanand Ji Maharaj
+- La fire Map
 - Kane williamson
-- Ireland Women vs India Women
+- Premanand Ji Maharaj
+- IND-W vs IRE-W
 - Game Changer Collection
 - Saudi Pro League
 - Vaikuntha Ekadashi
 - JEE Main
 - Ram Charan Game Changer movie review
+- Black Warrant
 - Vanangaan
 - Smriti Mandhana
-- Black Warrant
 - Hindi Diwas 2025
 - Tata Elxsi share price
 - Toyota Innova
