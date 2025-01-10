@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Penn State Football
+- Kenneth Fire
 - Carson Beck
 - TikTok ban
-- Stock market Today
+- George W. Bush
+- Stock market TODAY
 - American Primeval
-- Houston Rodeo lineup 2025
-- Venezuela
 - Anita Bryant
+- Houston Rodeo lineup 2025
+- Den of Thieves 2
+- Venezuela
 - Michelle Obama
+- Hollywood
 - FA Cup
+- Abdul Carter
 - Drew Allar
 - Traitors Season 3
-- Abdul Carter
 - Garth Brooks
-- George Bush
 - Ohio State vs Texas
-- DEI
 - Mel Gibson
-- David Muir
-- The Pitt
 - Liz Truss
 - Fulham
 - Everton
@@ -67,29 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cold Weather Payments DWP
 - American Primeval
 - Lynx
-- Joe Wicks
 - Stuart Hogg
-- Mick Lynch retirement
+- Joe Wicks
+- Kvaratskhelia
 - Real Madrid vs Mallorca
+- Standard Glass Lining IPO
 - Saudi Pro League
 - CTET
+- Game Changer
 - Los Angeles
 - Barcelona
-- Game Changer
+- P Jayachandran
 - Tirupati
 - Vijay Hazare Trophy
-- P Jayachandran
 - TCS Q3 results
-- Standard Glass Lining IPO Allotment Status
-- Jayachandran
 - Jimmy Carter
 - L&T chairman
+- Oppo Reno 13 Price
+- SA20
 - Poco X7
 - Arsenal
 - Greenland
+- Boby Chemmanur
 - Earthquake
-- OnePlus 13
-- EFL Cup
 - epgview
 - best epg
 - epg for iptv
