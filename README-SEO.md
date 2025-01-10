@@ -35,23 +35,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - TikTok ban
 - Celebrity homes lost in fire
 - Anita Bryant
-- Michelle Obama
 - Carson Beck
+- Michelle Obama
 - American Primeval
 - Ohio State vs Texas
 - Den of Thieves 2
-- Kenneth Fire West Hills
-- Venezuela
-- Abdul Carter
+- Obama
 - Trump sentencing
 - FA Cup
 - Mel Gibson
 - Traitors Season 3
+- Venezuela
 - Garth Brooks
 - The Pitt
-- National day of mourning
+- Macy stores closing
+- Rodeo lineup 2025
 - Hyperoptic
 - Liz Truss
+- Mel Gibson
+- Bank of Dave
 - Everton
 - FA Cup
 - Everton vs Peterborough
@@ -67,15 +69,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield United
 - Lynx
 - Kvaratskhelia
-- Stuart Hogg
 - Joe Wicks
-- Mick Lynch retirement
 - Ireland Women vs India Women
 - Real Madrid
+- Pratika rawal
+- Game Changer Rating
 - Vaikuntha Ekadashi
-- FA Cup
 - Hrithik Roshan
-- Vanangaan
+- Smriti Mandhana
 - Fateh Movie
 - Hindi Diwas 2025
 - Tata Elxsi share price
@@ -83,7 +84,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Los Angeles
 - Barcelona
 - P Jayachandran
-- Tirupati
 - Vaikunta Ekadasi 2025
 - Jayachandran
 - TCS Q3 results
