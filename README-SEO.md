@@ -32,15 +32,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Earthquake
 - Milo Ventimiglia
+- Marvel Rivals Season 1
 - Tesla Model Y
+- Ivermectin
 - Suns
 - Notre Dame vs Penn State
 - Kenneth Fire
 - Ohio State Football
-- TikTok ban
-- Celebrity homes lost in fire
-- Anita Bryant
 - Trump sentencing
+- TikTok ban
+- Anita Bryant
+- Celebrity homes lost in fire
 - Carson Beck
 - Michelle Obama
 - American Primeval
@@ -48,18 +50,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Houston Rodeo lineup 2025
 - Den of Thieves 2
 - Abdul Carter
-- Obama
-- Macy stores closing
 - Sainsbury's Nectar card warning
+- Chappell Roan
 - Anita Bryant
 - Mel Gibson
 - Bank of Dave
 - Hyperoptic
 - Liz Truss
+- Ivermectin
 - Everton
 - FA Cup
-- Everton vs Peterborough
 - Tyler Young
+- Everton vs Peterborough
+- Real Madrid vs Mallorca
 - Richard Hammond
 - Jimmy Carter
 - La fire map
@@ -67,29 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cold Weather Payments DWP
 - Joe Wicks
 - Graham Potter
-- Hollywood sign
-- American Primeval
-- Sheffield United
 - Ireland Women vs India Women
+- Game Changer rating
 - Saudi Pro League
 - Vaikuntha Ekadashi
-- Ram Charan Game Changer movie review
 - JEE Main
+- FA Cup
 - Smriti Mandhana
-- Hrithik Roshan
+- Vanangaan
 - Fateh Movie
 - Black Warrant
 - Hindi Diwas 2025
 - Tata Elxsi share price
-- Vishnu Sahasranamam
 - Game Changer
 - Los Angeles
 - Real Madrid
 - P Jayachandran
 - Tirupati
-- Vaikunta Ekadasi 2025
 - Fateh
 - Jayachandran
+- FC Barcelona
 - epgview
 - best epg
 - epg for iptv
