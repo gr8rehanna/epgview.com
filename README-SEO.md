@@ -30,17 +30,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Suns
 - Notre Dame vs Penn State
 - TikTok ban
 - Celebrity homes lost in fire
-- Carson Beck
-- Anita Bryant
 - Michelle Obama
+- Anita Bryant
+- Carson Beck
 - American Primeval
+- Wordle hint
 - Ohio State vs Texas
 - Den of Thieves 2
 - Venezuela
-- James Franklin
 - Abdul Carter
 - FA Cup
 - Trump sentencing
@@ -49,7 +50,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Garth Brooks
 - The Pitt
 - National day of mourning
-- Rodeo lineup 2025
 - Liz Truss
 - Fulham
 - Everton
@@ -64,32 +64,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cold Weather Payments DWP
 - Graham Potter
 - American Primeval
-- Hollywood sign
 - Lynx
 - Joe Wicks
 - Stuart Hogg
 - Kvaratskhelia
 - Mick Lynch retirement
+- Peterborough fc
 - Ireland Women vs India Women
 - Real Madrid
 - Saudi Pro League
-- Game Changer rating
-- Hrithik Roshan
 - Vaikuntha Ekadashi
 - Tata Elxsi share price
+- Hindi Diwas 2025
 - Game Changer
 - CTET
 - Los Angeles
 - Barcelona
+- TCS share price
 - P Jayachandran
 - Vijay Hazare Trophy
-- TCS Q3 results
 - Jayachandran
 - Poco X7 Pro
 - Tirupati
 - Standard Glass Lining IPO Allotment Status
-- L&T) chairman
+- L&T chairman
 - Jimmy Carter
+- Tirupati Stampede
 - epgview
 - best epg
 - epg for iptv
