@@ -32,25 +32,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Penn State Football
 - Carson Beck
+- Stock market Today
+- TikTok ban
 - American Primeval
+- Venezuela
 - Michelle Obama
 - FA Cup
-- National day of mourning
-- Kenneth Fire
+- Traitors Season 3
 - Garth Brooks
-- Venezuela
+- Drew Allar
 - DEI
+- George Bush
+- Anita Bryant
+- UConn basketball
 - Ronald Reagan
+- Mel Gibson
+- Bunny Museum
+- Alabama basketball
 - Real Madrid
-- Adam Brody
-- Liverpool
-- Cavs
-- Hurst Fire Sylmar
-- Cameron Mathison
-- Bucks
-- Studio City fire
-- Shifting Gears
 - Liz Truss
+- Fulham
 - Everton
 - Everton vs Peterborough
 - FA Cup
@@ -62,25 +63,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FA Cup fixtures
 - Manchester Airport
 - Graham Potter
+- Cold Weather Payments DWP
 - American Primeval
 - Lynx
-- Joe Wicks
 - Stuart Hogg
+- Joe Wicks
 - Mick Lynch retirement
 - Kvaratskhelia
-- Cold Weather Payments DWP
-- Human metapneumovirus HMPV virus
 - Real Madrid vs Mallorca
 - Saudi Pro League
 - CTET
 - Los Angeles
 - Barcelona
-- P Jayachandran
+- IPO allotment status
 - Tirupati
-- Standard Glass Lining IPO allotment status
+- Vijay Hazare Trophy
+- P Jayachandran
 - TCS Q3 results
 - Game Changer Review
 - TCS Share Price
+- Jayachandran
 - SA 20
 - Leah Tata
 - L&T chairman
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Human metapneumovirus HMPV virus cases
 - Greenland
-- Earthquake
-- OnePlus 13
 - epgview
 - best epg
 - epg for iptv
