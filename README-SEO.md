@@ -31,19 +31,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
-- Milo Ventimiglia
-- Deshaun Watson
-- Marvel Rivals Season 1
 - Tesla Model Y
+- Deshaun Watson
+- Milo Ventimiglia
+- Marvel Rivals Season 1
 - Suns
 - Notre Dame vs Penn State
 - Kenneth Fire West Hills
+- TikTok
 - Trump sentencing
 - Ohio State Football
-- TikTok ban
 - Anita Bryant
-- Celebrity homes lost in fire
 - Carson Beck
+- Celebrity homes lost in fire
 - Michelle Obama
 - American Primeval
 - Houston Rodeo lineup 2025
@@ -52,33 +52,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Abdul Carter
 - Rangers
 - Sainsbury's Nectar card warning
-- Chappell Roan
-- Mel Gibson
-- Anita Bryant
 - Bank of Dave
-- Liz Truss
+- Chappell Roan
+- Anita Bryant
+- Mel Gibson
 - Rod Stewart
+- Liz Truss
 - Everton
 - FA Cup
-- Darren Ferguson
 - Everton vs Peterborough
 - Real Madrid vs Mallorca
+- Darren Ferguson
 - Richard Hammond
 - Jimmy Carter
-- La fire Map
+- La Fire Map
 - Manchester Airport
 - Cold Weather Payments DWP
 - Joe Wicks
 - Graham Potter
+- Premanand Ji Maharaj
+- Kane williamson
 - Ireland Women vs India Women
-- Ram Charan Game Changer movie review
+- Game Changer Collection
 - Saudi Pro League
 - Vaikuntha Ekadashi
 - JEE Main
-- FA Cup
-- Game Changer Collection
-- Smriti Mandhana
+- Ram Charan Game Changer movie review
 - Vanangaan
+- Smriti Mandhana
 - Black Warrant
 - Hindi Diwas 2025
 - Tata Elxsi share price
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - P Jayachandran
 - Tirupati
 - Fateh
-- Jayachandran
 - epgview
 - best epg
 - epg for iptv
