@@ -30,31 +30,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Milo Ventimiglia
 - Suns
+- Tesla Model Y
 - Notre Dame vs Penn State
+- Kenneth Fire
+- Ohio State Football
 - TikTok ban
 - Celebrity homes lost in fire
 - Anita Bryant
 - Michelle Obama
 - Carson Beck
-- Ohio State vs Texas
 - American Primeval
 - Den of Thieves 2
-- Kenneth Fire West Hills
+- Venezuela
+- Trump sentencing
 - Abdul Carter
 - Obama
-- Trump sentencing
-- Evacuation warning
 - Mel Gibson
-- FA Cup
-- Traitors Season 3
 - Macy stores closing
-- Venezuela
-- Chappell Roan
+- Traitors Season 3
+- Sainsbury's Nectar card warning
 - Anita Bryant
 - Mel Gibson
-- Hyperoptic
 - Bank of Dave
+- Hyperoptic
 - Liz Truss
 - Everton
 - FA Cup
@@ -71,7 +71,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - American Primeval
 - Sheffield United
 - Ireland Women vs India Women
-- Real Madrid
 - Game Changer rating
 - Vaikuntha Ekadashi
 - JEE Main
@@ -83,13 +82,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Black Warrant
 - Game Changer
 - Los Angeles
-- Barcelona
+- Real Madrid
 - P Jayachandran
 - Tirupati
-- IPO allotment status
+- Vaikunta Ekadasi 2025
 - Jayachandran
 - Poco X7 Pro
-- TCS Q3 results
+- Fateh
+- FC Barcelona
 - epgview
 - best epg
 - epg for iptv
