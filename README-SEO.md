@@ -34,15 +34,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deshaun Watson
 - Tesla Model Y
 - Milo Ventimiglia
-- Marvel Rivals Season 1
 - Archer Fire
-- On call
-- Suns
+- Marvel Rivals Season 1
 - Arson
+- Suns
 - Notre Dame vs Penn State
 - Ohio State Football
 - TikTok
-- Kenneth Fire West Hills
 - Trump sentencing
 - Anita Bryant
 - Carson Beck
@@ -50,30 +48,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michelle Obama
 - Gerald Ford
 - American Primeval
+- Den of Thieves 2
+- Houston Rodeo lineup 2025
 - Aston Villa vs West Ham
 - Rangers
-- Sainsbury's Nectar card warning
 - Bank of Dave
 - Anita Bryant
 - Chappell Roan
 - Mel Gibson
 - Warwick Davis
+- Sainsbury's Nectar card
 - Lloyds Banking Group
 - Rod Stewart
 - Liz Truss
 - Fulham
+- Stacey Solomon
+- Bundesliga
+- Milo Ventimiglia
+- Accrington Stanley
 - Everton
 - FA Cup
 - Everton vs Peterborough
 - Real Madrid vs Mallorca
-- Darren Ferguson
-- Richard Hammond
-- Jimmy Carter
-- La fire map
 - Kane williamson
-- Premanand Ji Maharaj
 - IND-W vs IRE-W
-- Game Changer Collection
 - Saudi Pro League
 - Vaikuntha Ekadashi
 - JEE Main
@@ -82,6 +80,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Smriti Mandhana
 - Hindi Diwas 2025
 - Tata Elxsi share price
+- Game Changer Box Office Collection
 - Toyota Innova
 - Game Changer
 - Los Angeles
@@ -89,7 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - P Jayachandran
 - Fateh
 - Tirupati
-- IPO allotment status
+- FC Barcelona
+- TCS Q3 results
 - epgview
 - best epg
 - epg for iptv
