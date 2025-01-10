@@ -30,7 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Penn State vs Notre Dame
+- Penn State Football
 - Carson Beck
 - American Primeval
 - Hollywood
@@ -38,58 +38,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michelle Obama
 - National day of mourning
 - Garth Brooks
-- Will Rogers
 - Venezuela
+- DEI
+- UConn basketball
+- Ronald Reagan
 - Real Madrid
+- Adam Brody
 - Liverpool
-- Spencer Pratt
 - Cavs
-- FC Barcelona
 - Cameron Mathison
 - Bucks
+- LAUSD
 - Studio City fire
-- Shifting Gears
-- Pasadena
 - Everton
 - Everton vs Peterborough
 - FA Cup
 - Real Madrid vs Mallorca
 - Tyler Young
-- Sheffield United vs Cardiff City
 - Jimmy Carter
+- Sheffield United vs Cardiff City
 - Richard Hammond
 - FA Cup fixtures
 - Manchester Airport
 - Graham Potter
-- Lynx
 - American Primeval
+- Lynx
 - Joe Wicks
 - Stuart Hogg
-- Cold Weather Payments DWP
-- Peterborough fc
-- Kvaratskhelia
 - Mick Lynch retirement
+- Cold Weather Payments DWP
+- Kvaratskhelia
+- Peterborough fc
 - Sandi Toksvig
-- Real Madrid vs Mallorca
-- FA Cup
 - Saudi Pro League
+- Real Madrid vs Mallorca
 - CTET
 - Los Angeles
-- Barcelona
-- IPO allotment status
 - Tirupati
 - P Jayachandran
-- Vijay Hazare Trophy
+- FC Barcelona
 - TCS Q3 results
+- Standard Glass Lining IPO allotment status
 - TCS Share Price
+- Game Changer Review
 - SA 20
 - Leah Tata
 - L&T chairman
-- AIIMS
 - Oppo Reno 13 price
 - Poco X7
 - Arsenal
 - Greenland
+- Earthquake
+- OnePlus 13
 - epgview
 - best epg
 - epg for iptv
