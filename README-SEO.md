@@ -31,19 +31,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Notre Dame vs Penn State
-- Celebrity homes lost in fire
 - TikTok ban
+- Celebrity homes lost in fire
 - Carson Beck
 - Anita Bryant
+- Michelle Obama
 - American Primeval
 - Ohio State vs Texas
 - Den of Thieves 2
 - Venezuela
 - James Franklin
-- Michelle Obama
 - Abdul Carter
 - FA Cup
-- CFP schedule
+- Trump sentencing
 - Traitors Season 3
 - Mel Gibson
 - Garth Brooks
@@ -59,37 +59,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jimmy Carter
 - Sheffield United vs Cardiff City
 - Richard Hammond
-- Adam Brody
 - FA Cup fixtures
 - Manchester Airport
-- Graham Potter
 - Cold Weather Payments DWP
+- Graham Potter
 - American Primeval
 - Hollywood sign
 - Lynx
-- Stuart Hogg
 - Joe Wicks
+- Stuart Hogg
 - Kvaratskhelia
-- Real Madrid vs Mallorca
+- Mick Lynch retirement
 - Ireland Women vs India Women
+- Real Madrid
 - Saudi Pro League
 - Game Changer rating
+- Hrithik Roshan
 - Vaikuntha Ekadashi
 - Tata Elxsi share price
 - Game Changer
 - CTET
 - Los Angeles
 - Barcelona
-- Standard Glass Lining IPO Allotment Status
-- Tirupati
 - P Jayachandran
 - Vijay Hazare Trophy
 - TCS Q3 results
 - Jayachandran
 - Poco X7 Pro
-- L&T chairman
+- Tirupati
+- Standard Glass Lining IPO Allotment Status
+- L&T) chairman
 - Jimmy Carter
-- Oppo Reno 13 Price
 - epgview
 - best epg
 - epg for iptv
