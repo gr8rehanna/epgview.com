@@ -33,23 +33,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Penn State Football
 - Carson Beck
 - American Primeval
-- Hollywood
-- FA Cup
 - Michelle Obama
+- FA Cup
 - National day of mourning
+- Kenneth Fire
 - Garth Brooks
 - Venezuela
 - DEI
-- UConn basketball
 - Ronald Reagan
 - Real Madrid
 - Adam Brody
 - Liverpool
 - Cavs
+- Hurst Fire Sylmar
 - Cameron Mathison
 - Bucks
-- LAUSD
 - Studio City fire
+- Shifting Gears
+- Liz Truss
 - Everton
 - Everton vs Peterborough
 - FA Cup
@@ -66,27 +67,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joe Wicks
 - Stuart Hogg
 - Mick Lynch retirement
-- Cold Weather Payments DWP
 - Kvaratskhelia
-- Peterborough fc
-- Sandi Toksvig
-- Saudi Pro League
+- Cold Weather Payments DWP
+- Human metapneumovirus HMPV virus
 - Real Madrid vs Mallorca
+- Saudi Pro League
 - CTET
 - Los Angeles
-- Tirupati
+- Barcelona
 - P Jayachandran
-- FC Barcelona
-- TCS Q3 results
+- Tirupati
 - Standard Glass Lining IPO allotment status
-- TCS Share Price
+- TCS Q3 results
 - Game Changer Review
+- TCS Share Price
 - SA 20
 - Leah Tata
 - L&T chairman
-- Oppo Reno 13 price
 - Poco X7
 - Arsenal
+- Human metapneumovirus HMPV virus cases
 - Greenland
 - Earthquake
 - OnePlus 13
