@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Penn State Football
+- Notre Dame vs Penn State
 - Kenneth Fire
-- Carson Beck
+- Adam Brody
 - TikTok ban
-- George W. Bush
-- Stock market TODAY
-- American Primeval
+- Carson Beck
 - Anita Bryant
+- Stock market today
+- American Primeval
 - Houston Rodeo lineup 2025
-- Den of Thieves 2
-- Venezuela
 - Michelle Obama
-- Hollywood
-- FA Cup
-- Abdul Carter
+- Den of Thieves 2
+- Ohio State vs Texas
+- Venezuela
 - Drew Allar
+- Abdul Carter
+- FA Cup
 - Traitors Season 3
 - Garth Brooks
-- Ohio State vs Texas
 - Mel Gibson
+- George Bush
 - Liz Truss
 - Fulham
 - Everton
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joe Wicks
 - Kvaratskhelia
 - Real Madrid vs Mallorca
-- Standard Glass Lining IPO
 - Saudi Pro League
+- Farhan Akhtar
 - CTET
 - Game Changer
 - Los Angeles
 - Barcelona
-- P Jayachandran
+- IPO allotment status
+- TCS share price
 - Tirupati
 - Vijay Hazare Trophy
-- TCS Q3 results
+- P Jayachandran
+- Jayachandran
+- Poco X7 Pro
 - Jimmy Carter
-- L&T chairman
+- L&T Chairman
 - Oppo Reno 13 Price
-- SA20
-- Poco X7
+- Xiaomi Pad 7
 - Arsenal
-- Greenland
-- Boby Chemmanur
-- Earthquake
+- Poco X7
 - epgview
 - best epg
 - epg for iptv
