@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Notre Dame vs Penn State
-- Kenneth Fire
-- Adam Brody
+- Celebrity homes lost in fire
 - TikTok ban
 - Carson Beck
 - Anita Bryant
-- Stock market today
+- Michelle Obama
 - American Primeval
 - Houston Rodeo lineup 2025
-- Michelle Obama
-- Den of Thieves 2
 - Ohio State vs Texas
+- Den of Thieves 2
 - Venezuela
-- Drew Allar
 - Abdul Carter
+- James Franklin
 - FA Cup
 - Traitors Season 3
-- Garth Brooks
+- Evacuation warning
 - Mel Gibson
-- George Bush
+- Garth Brooks
+- National day of mourning
+- The Pitt
 - Liz Truss
 - Fulham
 - Everton
@@ -58,36 +58,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid vs Mallorca
 - Tyler Young
 - Jimmy Carter
-- Sheffield United vs Cardiff City
 - Richard Hammond
-- Adam Brody
 - FA Cup fixtures
 - Manchester Airport
 - Graham Potter
 - Cold Weather Payments DWP
 - American Primeval
+- Sheffield United
 - Lynx
 - Stuart Hogg
 - Joe Wicks
 - Kvaratskhelia
-- Real Madrid vs Mallorca
+- Mick Lynch retirement
+- Real Madrid
 - Saudi Pro League
 - Farhan Akhtar
-- CTET
 - Game Changer
+- CTET
 - Los Angeles
 - Barcelona
-- IPO allotment status
-- TCS share price
+- Standard Glass Lining IPO Allotment Status
 - Tirupati
 - Vijay Hazare Trophy
 - P Jayachandran
+- TCS Q3 results
 - Jayachandran
 - Poco X7 Pro
 - Jimmy Carter
-- L&T Chairman
-- Oppo Reno 13 Price
+- L&T chairman
 - Xiaomi Pad 7
+- Delta Autocorp IPO GMP
 - Arsenal
 - Poco X7
 - epgview
