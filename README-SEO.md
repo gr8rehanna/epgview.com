@@ -32,12 +32,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - NFL playoff schedule
 - Steelers vs Ravens
+- NFL Playoffs
 - Man City vs Salford City
-- Chelsea vs Morecambe
 - Rory Sykes
+- Auburn basketball
+- Chelsea vs Morecambe
 - Dunkin donuts shortage
-- Illinois basketball
 - Cooper Flagg
+- Illinois basketball
+- Wild Card Weekend
 - Notre Dame Football
 - Ohio State
 - Texans
@@ -46,31 +49,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deshaun Watson
 - Will Howard
 - Querétaro América
-- Goosebumps: The Vanishing
-- Ben Johnson
-- Ohio
-- Zion Williamson
+- Jeremiah Smith
+- FA Cup
 - Man City vs Salford City
 - Chelsea vs Morecambe
+- Macy Gray
 - Ngumoha
-- Liverpool Fixtures
 - Leeds United vs Harrogate Town
+- Liverpool Fixtures
 - Leicester City
 - Celtic
 - Claudia Winkleman
 - ITV
+- FA Cup 4th round draw
 - Nottingham Forest
 - Lynx
-- FA Cup 4th round draw
+- Mark Zuckerberg
+- Plymouth Argyle
 - Celtic FC
 - Emilia Fox
+- Ivor Caplin
 - Tom Hiddleston
-- Sunderland
-- James McAtee
-- Jack Carroll
-- Bristol City
-- FA Cup games
 - BCCI
+- FA Cup
 - Mohun Bagan vs East Bengal
 - Liverpool vs Accrington Stanley
 - Man City vs Salford City
@@ -82,7 +83,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FA Cup
 - Black warrant
 - Toyota Innova
-- JEE
 - Los Angeles
 - Real Madrid
 - Fateh
