@@ -30,10 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Liverpool vs Accrington Stanley
 - Steelers vs Ravens
 - Ohio State Football
-- Notre Dame
+- Notre Dame Football
 - Earthquake
 - Arch Manning
 - Deshaun Watson
@@ -44,24 +43,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Archer Fire
 - Zion Williamson
 - Tesla Model Y Juniper
-- Longhorns
 - Texans
 - Bronx fire
 - Atlanta airport
 - Atlanta snow
 - Notre Dame vs Penn State
+- Ohio State vs Texas
+- Trump sentencing
 - Bristol City vs Wolves
-- Claudia Winkleman
-- Lynx
-- ITV
-- Celtic
 - Chelsea vs Morecambe
-- Emilia Fox
+- Celtic
+- Claudia Winkleman
+- ITV
+- Lynx
 - Celtic FC
+- Emilia Fox
 - Tom Hiddleston
+- Sunderland vs Stoke City
 - Tamworth
+- Salford City
 - Tesla Model Y
-- Liverpool vs Accrington Stanley
 - Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
@@ -69,25 +70,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Anita Bryant
 - Mel Gibson
 - Rod Stewart
-- Rye
 - Mohun Bagan vs East Bengal
 - Ram Mandir Pran Pratishtha date
 - Los Angeles news
+- Liverpool
+- Chelsea vs Morecambe
 - Arshdeep singh
-- Tiku Talsania
 - Millionaire India Tour Yo Yo Honey Singh
 - Bengaluru
 - Game Changer
 - Liverpool vs Accrington Stanley
-- Black warrant
+- Jeemain
+- Black Warrant
+- Vanangaan
 - Toyota Innova
-- IND-W vs IRE-W
-- JEE
 - Los Angeles
 - Real Madrid
 - Fateh
 - P Jayachandran
-- Tirupati
 - IPO allotment status
 - FC Barcelona
 - epgview
