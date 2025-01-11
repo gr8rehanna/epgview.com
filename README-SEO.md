@@ -30,32 +30,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Liverpool vs Accrington Stanley
+- Steelers vs Ravens
 - Ohio State Football
 - Notre Dame
 - Earthquake
 - Arch Manning
 - Deshaun Watson
-- Tesla Model Y Juniper
 - Will Howard
-- Archer Fire
 - Jeremiah Smith
+- Tesla Model Y
+- Goosebumps: The Vanishing
+- Archer Fire
 - Zion Williamson
-- Ben Johnson
+- Tesla Model Y Juniper
+- Longhorns
 - Texans
 - Bronx fire
 - Atlanta airport
 - Atlanta snow
 - Notre Dame vs Penn State
-- Ohio State vs Texas
-- Trump sentencing
-- TikTok ban
-- Anita Bryant
 - Bristol City vs Wolves
 - Claudia Winkleman
 - Lynx
 - ITV
+- Celtic
+- Chelsea vs Morecambe
 - Emilia Fox
+- Celtic FC
 - Tom Hiddleston
+- Tamworth
 - Tesla Model Y
 - Liverpool vs Accrington Stanley
 - Aston Villa vs West Ham
@@ -66,30 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mel Gibson
 - Rod Stewart
 - Rye
-- Hyperoptic
-- Stacey Solomon
-- Milo Ventimiglia
-- Liz Truss
-- Los Angeles news
-- Ram Mandir Pran Pratishtha date
 - Mohun Bagan vs East Bengal
-- NZ vs SL
-- Dinesh Karthik
+- Ram Mandir Pran Pratishtha date
+- Los Angeles news
 - Arshdeep singh
 - Tiku Talsania
-- Ravichandran Ashwin
-- Ram Mandir
+- Millionaire India Tour Yo Yo Honey Singh
+- Bengaluru
 - Game Changer
-- FA Cup
+- Liverpool vs Accrington Stanley
 - Black warrant
 - Toyota Innova
 - IND-W vs IRE-W
 - JEE
 - Los Angeles
 - Real Madrid
-- P Jayachandran
 - Fateh
+- P Jayachandran
 - Tirupati
+- IPO allotment status
+- FC Barcelona
 - epgview
 - best epg
 - epg for iptv
