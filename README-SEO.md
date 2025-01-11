@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- NFL playoff schedule
 - Ravens vs Steelers
+- Chelsea vs Morecambe
 - Ohio State Football
 - Notre Dame Football
+- NFL playoff schedule
 - Earthquake
 - Arch Manning
 - Texans
 - Deshaun Watson
 - Will Howard
+- Querétaro América
 - Jeremiah Smith
+- Rye
 - Archer Fire
+- Goosebumps: The Vanishing
 - Ohio
-- Zion Williamson
 - Ben Johnson
+- Zion Williamson
 - Tesla Model Y Juniper
 - Longhorns
-- Bronx fire
-- Atlanta snow
-- Notre Dame vs Penn State
-- Ohio State vs Texas
 - Chelsea vs Morecambe
+- Man City vs Salford City
 - Bristol City vs Wolves
+- Ngumoha
+- Sunderland vs Stoke City
 - Leicester City
 - Celtic
-- Sunderland vs Stoke City
 - Claudia Winkleman
 - ITV
 - Lynx
+- Liverpool Fixtures
 - Nottingham Forest
 - Celtic FC
 - Emilia Fox
 - Tom Hiddleston
 - Tamworth
-- Salford City
 - FA Cup games
-- Tesla Model Y
-- Liverpool vs Accrington Stanley
-- Aston Villa vs West Ham
-- Rangers
-- Bank of Dave
+- Khusanov
+- FA Cup 4th round draw
+- Reading FC
 - Mohun Bagan vs East Bengal
 - Los Angeles news
-- Chelsea vs Morecambe
 - Liverpool
-- Millionaire India Tour Yo Yo Honey Singh
-- Arshdeep singh
-- Tiku Talsania
+- Man City vs Salford City
 - Dinesh Karthik
+- Yo Yo Honey Singh Millionaire India Tour
 - Ram Mandir
-- Bengaluru
 - Game Changer
-- Liverpool vs Accrington Stanley
-- Jeemain
+- FA Cup
 - Black warrant
-- Vanangaan
 - Toyota Innova
+- IND-W vs IRE-W
+- JEE
 - Los Angeles
 - Real Madrid
 - Fateh
 - P Jayachandran
+- Tirupati
+- IPO allotment status
+- FC Barcelona
 - epgview
 - best epg
 - epg for iptv
