@@ -30,32 +30,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Marcus Freeman
 - Earthquake
 - Tesla model y Juniper
-- Deshaun Watson
 - Arch Manning
-- Kenneth Fire map
-- Archer Fire
+- Texas
+- Deshaun Watson
 - Will Howard
+- Archer Fire
 - Goosebumps: The Vanishing
-- Zion Williamson
-- Dortmund  Leverkusen
-- Marvel Rivals Season 1
 - Warriors vs Pacers
+- Zion Williamson
+- Marvel Rivals Season 1
+- Bronx fire
+- Dow Jones stocks
+- Atlanta airport
 - Notre Dame vs Penn State
 - Ohio State vs Texas
 - TikTok
 - Trump sentencing
 - Anita Bryant
-- Penn State
-- Carson Beck
-- Celebrity homes lost in fire
 - Claudia Winkleman
 - Tom Hiddleston
 - Tesla Model Y
 - Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
+- Sainsbury's Nectar card
 - Anita Bryant
 - Chappell Roan
 - Mel Gibson
@@ -69,22 +70,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liz Truss
 - Fulham
 - Everton
-- FA Cup
 - Los Angeles news
 - IND-W vs IRE-W
-- Saudi Pro League
 - JEE Main
+- Saudi Pro League
 - FA Cup
-- Hindi Diwas 2025
+- Vanangaan
 - Tata Elxsi share price
 - Toyota Innova
-- IPO allotment
 - Game Changer
 - Los Angeles
 - Real Madrid
 - P Jayachandran
 - Fateh
 - Tirupati
+- IPO allotment status
 - FC Barcelona
 - TCS Q3 results
 - L&T chairman
