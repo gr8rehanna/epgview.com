@@ -30,7 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Texas
+- Ohio State Football
 - Notre Dame
 - Earthquake
 - Arch Manning
@@ -41,15 +41,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Goosebumps: The Vanishing
 - Archer Fire
 - Ryan Day
-- Aston Villa vs West Ham
 - Zion Williamson
 - Kings vs Celtics
-- Texans
 - Bronx fire
+- Texans
+- Dortmund  Leverkusen
 - Kenneth Fire map
 - Marvel Rivals Season 1
-- Atlanta snow
-- Ohio State vs Texas
+- On Call
+- Atlanta airport
 - Lynx
 - Claudia Winkleman
 - Tom Hiddleston
@@ -57,14 +57,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
+- Warwick Davis
 - Anita Bryant
 - Chappell Roan
-- Warwick Davis
 - Mel Gibson
 - Rod Stewart
+- Accrington Stanley
 - Hyperoptic
 - Stacey Solomon
-- Accrington Stanley
 - Milo Ventimiglia
 - Liz Truss
 - Fulham
@@ -72,24 +72,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Everton
 - Sri Lanka vs New Zealand
 - Los Angeles news
-- IND-W vs IRE-W
-- JEE Main
-- Saudi Pro League
 - Vanangaan
+- Saudi Pro League
+- Quadrant Future Tek IPO Allotment Status
 - Toyota Innova
 - Hindi Diwas 2025
 - Tata Elxsi share price
 - Game Changer
 - Los Angeles
 - Real Madrid
+- P Jayachandran
 - Fateh
 - Tirupati
 - IPO allotment status
 - FC Barcelona
 - TCS Q3 results
-- L&T chairman
-- Jayachandran
+- L&T) chairman
 - Jimmy Carter
+- Human metapneumovirus (HMPV cases
 - epgview
 - best epg
 - epg for iptv
