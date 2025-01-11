@@ -30,7 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Ohio State Football
+- Ohio State
 - Earthquake
 - Arch Manning
 - Tesla Model Y Juniper
@@ -43,43 +43,43 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Warriors vs Pacers
 - Zion Williamson
 - Kings vs Celtics
+- Ben Johnson
 - Bronx fire
 - Texans
-- Marvel Rivals Season 1
 - Atlanta snow
-- Notre Dame vs Penn State
 - Ohio State vs Texas
-- Trump sentencing
+- Notre Dame vs Penn State
+- TikTok ban
 - Lynx
 - Claudia Winkleman
 - Tom Hiddleston
+- Emilia Fox
 - Tesla Model Y
 - Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
 - Warwick Davis
 - Anita Bryant
-- Chappell Roan
 - Mel Gibson
-- Rod Stewart
 - Accrington Stanley
-- Hyperoptic
+- Rod Stewart
 - Tamworth FC
+- Rye
+- Hyperoptic
 - Stacey Solomon
 - Milo Ventimiglia
 - Liz Truss
 - Fulham
-- Dragons' Den
 - Sri Lanka vs New Zealand
+- Ram Mandir Pran Pratishtha date
 - Los Angeles News
+- Tiku Talsania
 - JEE Main
 - FA Cup
 - Vanangaan
-- Saudi Pro League
 - Quadrant Future Tek IPO Allotment Status
-- IND-W vs IRE-W
+- IND W vs IRE W
 - Toyota Innova
-- Hindi Diwas 2025
 - Tata Elxsi share price
 - Game Changer
 - Los Angeles
