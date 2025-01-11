@@ -31,51 +31,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
-- Deshaun Watson
 - Tesla Model Y
+- Deshaun Watson
 - Milo Ventimiglia
-- Archer Fire
 - Marvel Rivals Season 1
-- Dortmund  Leverkusen
+- Goosebumps: The Vanishing
 - Arson
+- Rory McCann
 - Suns
 - Notre Dame vs Penn State
 - Ohio State Football
 - TikTok
 - Trump sentencing
 - Anita Bryant
+- Penn State
 - Carson Beck
 - Celebrity homes lost in fire
+- Den of Thieves 2
 - Michelle Obama
 - Gerald Ford
-- American Primeval
-- Den of Thieves 2
+- Claudia Winkleman
+- Tom Hiddleston
 - Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
-- Anita Bryant
 - Sainsbury's Nectar card
+- Anita Bryant
 - Chappell Roan
 - Mel Gibson
 - Warwick Davis
 - Rod Stewart
 - Bundesliga
 - Stacey Solomon
-- Liz Truss
 - Milo Ventimiglia
-- Fulham
+- Liz Truss
 - Accrington Stanley
+- Fulham
 - Everton
 - FA Cup
 - Everton vs Peterborough
-- Real Madrid vs Mallorca
-- West Ham
-- Kane williamson
 - IND-W vs IRE-W
-- Vaikuntha Ekadashi
 - Saudi Pro League
 - JEE Main
-- FA Cup
 - Vanangaan
 - Game Changer Review Telugu
 - Hindi Diwas 2025
@@ -88,8 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - P Jayachandran
 - Fateh
 - Tirupati
+- IPO allotment status
 - FC Barcelona
 - TCS Q3 results
+- L&T chairman
+- Jimmy Carter
 - epgview
 - best epg
 - epg for iptv
