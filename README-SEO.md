@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Marcus Freeman
+- Longhorns
 - Earthquake
-- Tesla model y Juniper
 - Arch Manning
 - Texas
+- Tesla model y Juniper
 - Deshaun Watson
 - Will Howard
-- Archer Fire
 - Goosebumps: The Vanishing
-- Warriors vs Pacers
+- Kenneth Fire map
+- Archer Fire
+- Ryan Day
 - Zion Williamson
+- Dortmund  Leverkusen
 - Marvel Rivals Season 1
 - Bronx fire
-- Dow Jones stocks
-- Atlanta airport
 - Notre Dame vs Penn State
 - Ohio State vs Texas
 - TikTok
 - Trump sentencing
-- Anita Bryant
 - Claudia Winkleman
 - Tom Hiddleston
 - Tesla Model Y
@@ -58,10 +58,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bank of Dave
 - Sainsbury's Nectar card
 - Anita Bryant
-- Chappell Roan
 - Mel Gibson
 - Warwick Davis
-- Wycombe vs Portsmouth
 - Rod Stewart
 - Bundesliga
 - Stacey Solomon
@@ -70,12 +68,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liz Truss
 - Fulham
 - Everton
+- FA Cup
+- Everton vs Peterborough
 - Los Angeles news
 - IND-W vs IRE-W
 - JEE Main
 - Saudi Pro League
-- FA Cup
 - Vanangaan
+- Smriti Mandhana
 - Tata Elxsi share price
 - Toyota Innova
 - Game Changer
@@ -89,7 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - TCS Q3 results
 - L&T chairman
 - Jimmy Carter
-- Xiaomi Pad 7
+- Human Metapneumovirus (HMPV cases
 - epgview
 - best epg
 - epg for iptv
