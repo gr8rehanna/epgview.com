@@ -30,28 +30,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Marcus Freeman
 - Earthquake
 - Tesla Model Y
 - Deshaun Watson
-- Milo Ventimiglia
-- Marvel Rivals Season 1
+- Texas
+- Archer Fire
 - Goosebumps: The Vanishing
-- Arson
-- Rory McCann
-- Suns
+- Marvel Rivals Season 1
 - Notre Dame vs Penn State
-- Ohio State Football
+- Ohio State vs Texas
 - TikTok
 - Trump sentencing
 - Anita Bryant
-- Penn State
 - Carson Beck
 - Celebrity homes lost in fire
 - Den of Thieves 2
 - Michelle Obama
-- Gerald Ford
+- American Primeval
+- Houston Rodeo lineup 2025
+- Macy stores closing
 - Claudia Winkleman
 - Tom Hiddleston
+- Tesla Model Y
 - Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
@@ -64,20 +65,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bundesliga
 - Stacey Solomon
 - Milo Ventimiglia
-- Liz Truss
 - Accrington Stanley
+- Liz Truss
 - Fulham
 - Everton
 - FA Cup
-- Everton vs Peterborough
 - IND-W vs IRE-W
 - Saudi Pro League
 - JEE Main
-- Vanangaan
-- Game Changer Review Telugu
 - Hindi Diwas 2025
-- Tata Elxsi share price
+- Vanangaan
 - Game Changer Box Office Collection
+- Tata Elxsi share price
 - Toyota Innova
 - Game Changer
 - Los Angeles
@@ -85,11 +84,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - P Jayachandran
 - Fateh
 - Tirupati
-- IPO allotment status
 - FC Barcelona
 - TCS Q3 results
 - L&T chairman
 - Jimmy Carter
+- Xiaomi Pad 7
+- Delta Autocorp IPO GMP
 - epgview
 - best epg
 - epg for iptv
