@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Marcus Freeman
 - Earthquake
 - Tesla Model Y
 - Deshaun Watson
 - Texas
+- Kenneth Fire map
 - Archer Fire
 - Goosebumps: The Vanishing
+- Will Howard
+- Dortmund  Leverkusen
 - Marvel Rivals Season 1
+- Arch Manning
 - Notre Dame vs Penn State
 - Ohio State vs Texas
 - TikTok
 - Trump sentencing
 - Anita Bryant
+- Penn State
 - Carson Beck
 - Celebrity homes lost in fire
 - Den of Thieves 2
-- Michelle Obama
-- American Primeval
-- Houston Rodeo lineup 2025
-- Macy stores closing
 - Claudia Winkleman
 - Tom Hiddleston
 - Tesla Model Y
@@ -61,6 +61,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chappell Roan
 - Mel Gibson
 - Warwick Davis
+- Wycombe vs Portsmouth
 - Rod Stewart
 - Bundesliga
 - Stacey Solomon
@@ -69,15 +70,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liz Truss
 - Fulham
 - Everton
-- FA Cup
 - IND-W vs IRE-W
 - Saudi Pro League
 - JEE Main
-- Hindi Diwas 2025
+- FA Cup
 - Vanangaan
-- Game Changer Box Office Collection
+- Hindi Diwas 2025
 - Tata Elxsi share price
 - Toyota Innova
+- IPO allotment
 - Game Changer
 - Los Angeles
 - Real Madrid
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - L&T chairman
 - Jimmy Carter
 - Xiaomi Pad 7
-- Delta Autocorp IPO GMP
 - epgview
 - best epg
 - epg for iptv
