@@ -31,16 +31,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
-- Tesla Model Y
+- Tesla model y Juniper
 - Deshaun Watson
-- Texas
+- Arch Manning
 - Kenneth Fire map
 - Archer Fire
-- Goosebumps: The Vanishing
 - Will Howard
+- Goosebumps: The Vanishing
+- Zion Williamson
 - Dortmund  Leverkusen
 - Marvel Rivals Season 1
-- Arch Manning
+- Warriors vs Pacers
 - Notre Dame vs Penn State
 - Ohio State vs Texas
 - TikTok
@@ -49,14 +50,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Penn State
 - Carson Beck
 - Celebrity homes lost in fire
-- Den of Thieves 2
 - Claudia Winkleman
 - Tom Hiddleston
 - Tesla Model Y
 - Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
-- Sainsbury's Nectar card
 - Anita Bryant
 - Chappell Roan
 - Mel Gibson
@@ -70,11 +69,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liz Truss
 - Fulham
 - Everton
+- FA Cup
+- Los Angeles news
 - IND-W vs IRE-W
 - Saudi Pro League
 - JEE Main
 - FA Cup
-- Vanangaan
 - Hindi Diwas 2025
 - Tata Elxsi share price
 - Toyota Innova
