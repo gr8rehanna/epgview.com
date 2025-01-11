@@ -30,7 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Texas
+- Ohio State Football
 - Notre Dame
 - Earthquake
 - Arch Manning
@@ -39,57 +39,57 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Will Howard
 - Archer Fire
 - Jeremiah Smith
-- Warriors vs Pacers
 - Zion Williamson
 - Ben Johnson
 - Texans
 - Bronx fire
 - Atlanta airport
 - Atlanta snow
-- Ohio State vs Texas
 - Notre Dame vs Penn State
+- Ohio State vs Texas
 - Trump sentencing
 - TikTok ban
-- Lynx
+- Anita Bryant
+- Bristol City vs Wolves
 - Claudia Winkleman
+- Lynx
 - ITV
 - Emilia Fox
 - Tom Hiddleston
 - Tesla Model Y
-- Aston Villa vs West Ham
 - Liverpool vs Accrington Stanley
+- Aston Villa vs West Ham
 - Rangers
 - Bank of Dave
 - Warwick Davis
 - Anita Bryant
 - Mel Gibson
 - Rod Stewart
-- Tamworth FC
 - Rye
 - Hyperoptic
 - Stacey Solomon
 - Milo Ventimiglia
 - Liz Truss
-- Sri Lanka vs New Zealand
+- Los Angeles news
 - Ram Mandir Pran Pratishtha date
-- Los Angeles News
-- Ravichandran Ashwin
+- Mohun Bagan vs East Bengal
+- NZ vs SL
+- Dinesh Karthik
 - Arshdeep singh
 - Tiku Talsania
+- Ravichandran Ashwin
+- Ram Mandir
 - Game Changer
-- Jeemain
 - FA Cup
 - Black warrant
 - Toyota Innova
 - IND-W vs IRE-W
+- JEE
 - Los Angeles
 - Real Madrid
 - P Jayachandran
 - Fateh
 - Tirupati
-- IPO allotment status
-- FC Barcelona
-- TCS Q3 results
 - epgview
 - best epg
 - epg for iptv
