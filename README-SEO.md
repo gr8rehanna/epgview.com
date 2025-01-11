@@ -31,53 +31,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - NFL playoff schedule
+- FA Cup
 - Steelers vs Ravens
 - NFL Playoffs
 - Man City vs Salford City
+- Mandeville Canyon
 - Rory Sykes
-- Auburn basketball
-- Chelsea vs Morecambe
-- Dunkin donuts shortage
 - Cooper Flagg
+- Chelsea vs Morecambe
 - Illinois basketball
 - Wild Card Weekend
 - Notre Dame Football
 - Ohio State
-- Texans
+- Chargers vs Texans
 - Earthquake
 - Arch Manning
 - Deshaun Watson
 - Will Howard
-- Querétaro América
 - Jeremiah Smith
+- Goosebumps: The Vanishing
 - FA Cup
-- Man City vs Salford City
 - Chelsea vs Morecambe
 - Macy Gray
-- Ngumoha
 - Leeds United vs Harrogate Town
-- Liverpool Fixtures
-- Leicester City
+- Ngumoha
 - Celtic
+- Leicester City
+- FA Cup 4th round draw
 - Claudia Winkleman
 - ITV
-- FA Cup 4th round draw
 - Nottingham Forest
 - Lynx
 - Mark Zuckerberg
-- Plymouth Argyle
-- Celtic FC
-- Emilia Fox
+- Liverpool Fixtures
 - Ivor Caplin
+- Plymouth Argyle
+- Emilia Fox
+- Chiesa
 - Tom Hiddleston
+- Sunderland
 - BCCI
 - FA Cup
 - Mohun Bagan vs East Bengal
 - Liverpool vs Accrington Stanley
-- Man City vs Salford City
 - Los Angeles news
+- Liverpool
 - Dinesh Karthik
-- Yo Yo Honey Singh Millionaire India Tour
 - Ram Mandir
 - Game Changer
 - FA Cup
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tirupati
 - IPO allotment status
 - FC Barcelona
+- TCS Q3 results
 - epgview
 - best epg
 - epg for iptv
