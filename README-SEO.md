@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Notre Dame Football
 - Ohio State
 - Earthquake
 - Arch Manning
@@ -37,31 +38,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deshaun Watson
 - Will Howard
 - Archer Fire
-- Notre Dame game
-- Jeremiah Smith
 - Goosebumps: The Vanishing
-- Warriors vs Pacers
 - Zion Williamson
-- Kings vs Celtics
-- Ben Johnson
-- Bronx fire
+- Longhorns
 - Texans
+- Bronx fire
 - Atlanta snow
 - Ohio State vs Texas
 - Notre Dame vs Penn State
+- Trump sentencing
 - TikTok ban
+- Anita Bryant
+- Penn State
 - Lynx
 - Claudia Winkleman
-- Tom Hiddleston
+- ITV
 - Emilia Fox
+- Tom Hiddleston
 - Tesla Model Y
 - Aston Villa vs West Ham
+- Liverpool vs Accrington Stanley
 - Rangers
 - Bank of Dave
 - Warwick Davis
 - Anita Bryant
 - Mel Gibson
-- Accrington Stanley
 - Rod Stewart
 - Tamworth FC
 - Rye
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Stacey Solomon
 - Milo Ventimiglia
 - Liz Truss
-- Fulham
-- Sri Lanka vs New Zealand
+- Los Angeles news
 - Ram Mandir Pran Pratishtha date
-- Los Angeles News
 - Tiku Talsania
-- JEE Main
+- Arshdeep singh
+- Jeemain
 - FA Cup
 - Vanangaan
-- Quadrant Future Tek IPO Allotment Status
-- IND W vs IRE W
 - Toyota Innova
+- IND W vs IRE W
 - Tata Elxsi share price
 - Game Changer
 - Los Angeles
 - Real Madrid
-- P Jayachandran
 - Fateh
-- Tirupati
+- P Jayachandran
 - IPO allotment status
 - FC Barcelona
 - TCS Q3 results
+- L&T) chairman
+- Tirupati
 - epgview
 - best epg
 - epg for iptv
