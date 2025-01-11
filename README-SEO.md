@@ -30,26 +30,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- OSU vs Texas
+- Ohio State score
 - Earthquake
 - Arch Manning
 - Texas
+- Archer Fire
 - Tesla model y Juniper
 - Deshaun Watson
 - Will Howard
 - Goosebumps: The Vanishing
-- Archer Fire
+- Notre Dame game
 - Jeremiah Smith
 - Ryan Day
 - Aston Villa vs West Ham
-- Warriors vs Pacers
 - Zion Williamson
+- Kings vs Celtics
 - Dortmund  Leverkusen
-- Marvel Rivals Season 1
 - Texans
+- Marvel Rivals Season 1
 - Bronx fire
-- Suns
-- Atlanta airport
+- Atlanta snow
+- Lynx
 - Claudia Winkleman
 - Tom Hiddleston
 - Tesla Model Y
@@ -57,39 +58,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rangers
 - Bank of Dave
 - Anita Bryant
+- Chappell Roan
 - Warwick Davis
 - Mel Gibson
 - Rod Stewart
 - Bundesliga
 - Hyperoptic
 - Stacey Solomon
-- Milo Ventimiglia
 - Accrington Stanley
+- Milo Ventimiglia
 - Liz Truss
 - Fulham
-- Everton
-- FA Cup
-- Darren Ferguson
+- Dragons' Den
+- Sri Lanka vs New Zealand
 - Los Angeles news
 - IND-W vs IRE-W
-- Jeemain
+- JEE Main
 - Saudi Pro League
 - Vanangaan
 - Smriti Mandhana
 - Toyota Innova
 - Tata Elxsi share price
+- ONGC
 - Game Changer
 - Los Angeles
 - Real Madrid
-- P Jayachandran
 - Fateh
+- P jayachandran
 - Tirupati
 - IPO allotment status
 - FC Barcelona
 - TCS Q3 results
 - L&T chairman
-- Jimmy Carter
-- Xiaomi Pad 7
 - epgview
 - best epg
 - epg for iptv
