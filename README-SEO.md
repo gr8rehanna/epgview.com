@@ -31,7 +31,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Steelers vs Ravens
-- NFL playoff schedule
 - Houston Texans
 - UFC
 - FA Cup
@@ -41,19 +40,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Green Bay Packers
 - Man City vs Salford City
 - Nico Collins stats
-- Liverpool
 - Cooper Flagg
+- Liverpool
 - Bills
 - Rams
 - Illinois basketball
 - Cj stroud stats
-- La fire chief
+- Barcelona vs Real Madrid
 - Jack Smith
+- La fire chief
 - Quentin Johnston
 - UFC
 - Australian Open
 - Tulip Siddiq
 - Arsenal vs Man United
+- Australian Open 2025
 - Man City vs Salford City
 - FA Cup
 - Macy Gray
@@ -61,28 +62,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool FC
 - Ngumoha
 - Ivor Caplin
-- Celtic
 - Kyle Walker
+- Celtic
 - FA Cup 4th round draw
 - Leicester City
 - Claudia Winkleman
 - Wolves
 - Nottingham Forest
 - Mark Zuckerberg
-- Plymouth Argyle
 - India Women vs Ireland Women
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
-- BCCI
 - Australian Open
+- BCCI
 - Madha Gaja Raja
 - Mohammed Shami
 - Anand Mahindra
 - DMart Q3 Results
-- Vinod Kambli
 - Sookshmadarshini
 - Los Angeles news
+- Tiku Talsania
 - Game Changer
 - Game Changer Box Office Collection
 - FA Cup
