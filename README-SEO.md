@@ -36,40 +36,41 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NFL football
 - CBS
 - Commanders vs Buccaneers
+- Landman Season 2
 - Steelers vs Ravens
-- NFL playoff schedule
 - Broncos vs Bills
-- Real Madrid vs Barcelona
+- Real Madrid vs FC Barcelona
+- Eagles game
 - FA Cup
 - Houston Texans
 - UFC
-- Green Bay Packers
 - Australian Open
-- Prime Video
 - Rory Sykes
-- Brentwood
 - Nico Collins stats
 - Full moon January 2025
+- Cooper Flagg
+- Walmart recalls chicken broth
 - Arsenal vs Man United
 - Real Madrid vs Barcelona
-- Newcastle United
 - UFC
+- Newcastle United
 - Australian Open
 - Rangers vs St Johnstone
 - Dancing On Ice 2025
 - Tulip Siddiq
 - Ipswich Town vs Bristol Rovers
-- Hull City
 - Anton Ferdinand
-- Manchester City
 - Jesy Nelson
+- Hull City
 - Dancing On Ice
 - Chelsee Healey
+- Fa cup 4th round dates
 - Brentford FC
 - Crystal Palace
 - Raheem Sterling
 - Rory Sykes
-- Arsenal white kit
+- Christopher Dean
+- Barca
 - Lohri
 - IND-W vs IRE-W
 - Real Madrid vs Barcelona
@@ -83,9 +84,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - BCCI
 - Mohammed Shami
 - DMart Q3 Results
-- Game Changer Box Office Collection Day
+- Game Changer box office collection day
 - Los Angeles news
-- ILT20
 - Bengaluru
 - Game Changer
 - Game Changer Box Office Collection
