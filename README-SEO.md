@@ -30,27 +30,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Chargers vs Texans
 - Steelers vs Ravens
 - NFL playoff schedule
+- Houston Texans
 - UFC
 - FA Cup
 - Mandeville Canyon
 - Rory Sykes
-- Liverpool
 - Nico Collins stats
+- Liverpool
 - Cooper Flagg
+- Auburn basketball
 - Australian Open 2025
 - Chelsea vs Morecambe
 - J.K. Dobbins
+- Illinois basketball
 - LA Fire Chief
+- Chargers vs Texans
 - Ohio State
-- Texans
 - Notre Dame Football
 - Earthquake
-- Texas
-- Deshaun Watson
 - UFC
+- Man City vs Salford City
 - FA Cup
 - Liverpool
 - Macy Gray
@@ -68,28 +69,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mark Zuckerberg
 - Lynx
 - Plymouth Argyle
-- Liverpool Fixtures
 - Kyle Walker
 - FA Cup
 - Swami Vivekananda
 - BCCI
 - DMart Q3 Results
 - Mohun Bagan vs East Bengal
-- Liverpool vs Accrington Stanley
-- Los Angeles news
-- Liverpool
+- Los Angeles News
 - Dinesh Karthik
 - Ram Mandir
 - Game Changer
 - FA Cup
 - Game Changer Box Office Collection
+- NTA
 - Black warrant
-- Vanangaan
 - Toyota Innova
 - Los Angeles
 - Real Madrid
 - Fateh
 - P Jayachandran
+- Tirupati
+- IPO allotment status
 - epgview
 - best epg
 - epg for iptv
