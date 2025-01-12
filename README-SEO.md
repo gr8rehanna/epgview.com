@@ -42,20 +42,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nico Collins stats
 - Liverpool
 - Cooper Flagg
+- Bills
 - Auburn basketball
 - Rams
 - Chelsea vs Morecambe
 - J.K. Dobbins
 - Illinois basketball
 - Cj stroud stats
-- Grizzlies vs Timberwolves
 - La fire chief
-- UFC
 - FA Cup
 - Liverpool
 - Macy Gray
 - Chelsea vs Morecambe
 - Leicester City vs QPR
+- Liverpool FC
 - Ngumoha
 - Celtic
 - Leeds United vs Harrogate Town
@@ -73,23 +73,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FA Cup
 - Swami Vivekananda
 - BCCI
+- Australian Open
 - DMart Q3 Results
 - Mohammed Shami
+- Madha Gaja Raja
 - Los Angeles news
 - Ram Mandir
-- Interstellar
 - Game Changer
+- India Women vs Ireland Women
 - Game Changer Box Office Collection
 - FA Cup
+- NTA
 - Black warrant
-- INDW vs IREW
 - Toyota Innova
 - Los Angeles
 - Real Madrid
 - Fateh
 - P Jayachandran
-- Tirupati
-- IPO allotment status
 - epgview
 - best epg
 - epg for iptv
