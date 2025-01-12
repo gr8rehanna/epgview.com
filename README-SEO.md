@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Mike Vrabel
 - Tottenham
-- Broncos vs Bills
 - Steelers vs Ravens
+- NFL playoff schedule
 - Houston Texans
 - UFC
 - FA Cup
 - Australian Open
 - Prime Video
 - Green Bay Packers
-- Rory Sykes
+- Bills
+- Mandeville Canyon
 - Ohio State vs Notre Dame
-- Man City vs Salford City
+- Barcelona vs Real Madrid
 - Nico Collins stats
 - Cooper Flagg
 - Liverpool
+- Brentwood
 - Wild Card Weekend
 - Rams
-- Barcelona vs Real Madrid
-- Jack Smith
 - UFC
+- Newcastle United
 - Australian Open
 - Rangers vs St Johnstone
-- Tulip Siddiq
 - Ipswich Town vs Bristol Rovers
-- Newcastle
+- Real Madrid
+- Tulip Siddiq
 - Brentford FC
+- Hull City
 - Rory Sykes
-- Australian Open 2025
 - FA Cup
 - Man City vs Salford City
 - Macy Gray
+- Liverpool
 - Chelsea vs Morecambe
 - Liverpool FC
 - Ivor Caplin
-- Ngumoha
 - FA Cup 4th round draw
-- Leicester City
+- Ngumoha
 - Kyle Walker
-- Celtic
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
 - Real Madrid vs FC Barcelona
 - Australian Open
-- Madha Gaja Raja
+- Madha gaja raja
 - BCCI
 - Anand Mahindra
 - Mohammed Shami
 - DMart Q3 Results
 - National Youth Day
 - IND vs ENG T20
+- Ajith Kumar
+- Ajith
 - Sookshmadarshini
 - Los Angeles news
 - ILT20
 - Tiku Talsania
 - Bengaluru
 - Game Changer
-- Game Changer Box Office Collection
-- FA Cup
 - epgview
 - best epg
 - epg for iptv
