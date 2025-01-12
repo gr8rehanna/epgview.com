@@ -30,7 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Steelers vs Ravens
+- Chargers vs Texans
 - Houston Texans
 - UFC
 - FA Cup
@@ -42,14 +42,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cooper Flagg
 - Bills
 - Rams
+- TikTok ban update
+- Illinois basketball
 - Cj stroud stats
-- Justin Fields
 - Brentwood fire
 - La fire chief
 - Quentin Johnston
 - Jack Smith
-- Chargers vs Texans
-- NFL playoff schedule
+- Steelers vs Ravens
 - UFC
 - FA Cup
 - Liverpool
@@ -60,16 +60,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Celtic
 - Leeds United vs Harrogate Town
 - Ivor Caplin
-- Leicester City
 - FA Cup 4th round draw
+- Leicester City
 - Claudia Winkleman
 - Wolves
 - Nottingham Forest
 - ITV
 - Mark Zuckerberg
 - Lynx
-- Plymouth Argyle
 - Kyle Walker
+- Plymouth Argyle
+- India Women vs Ireland Women
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
@@ -80,16 +81,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - DMart Q3 Results
 - Anand Mahindra
 - Los Angeles news
-- Weather Delhi
-- Ram Mandir
-- India Women vs Ireland Women
 - Game Changer
 - Game Changer Box Office Collection
 - FA Cup
 - NTA
 - Black warrant
+- IND-W vs IRE-W
 - Toyota Innova
 - Los Angeles
+- Real Madrid
 - epgview
 - best epg
 - epg for iptv
