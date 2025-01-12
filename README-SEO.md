@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Real Madrid
 - Mike Vrabel
 - Tottenham
 - NFL football
-- Mancity
 - Disney Moana lawsuit
+- Mancity
+- CBS
 - Steelers vs Ravens
 - NFL playoff schedule
+- Broncos vs Bills
 - Houston Texans
-- UFC
 - FA Cup
-- Real Madrid
-- Bills
+- Eagles game
+- UFC
+- Real Madrid vs Barcelona
 - Australian Open
-- Green Bay Packers
 - Prime Video
 - Rory Sykes
-- Ohio State vs Notre Dame
 - Nico Collins stats
 - Cooper Flagg
-- Liverpool
-- Arsenal vs Man United
-- Mancity
+- Real Madrid vs Barcelona
 - UFC
 - Newcastle United
 - Australian Open
 - Rangers vs St Johnstone
-- Ipswich Town vs Bristol Rovers
-- Real Madrid
 - Tulip Siddiq
-- Brentford FC
+- Ipswich Town vs Bristol Rovers
+- Southampton vs Swansea
 - Hull City
+- Manchester City
 - Dancing On Ice 2025
+- Brentford FC
 - Crystal Palace
 - Raheem Sterling
+- Jesy Nelson
 - Rory Sykes
+- Dancing on Ice
 - Arsenal white kit
+- Arsenal vs Man United
 - FA Cup
-- Man City vs Salford City
-- Macy Gray
-- Chelsea vs Morecambe
 - FA Cup
+- Real Madrid vs Barcelona
 - Swami Vivekananda
-- Daku Maharaj Review
-- Real Madrid vs FC Barcelona
-- Australian Open
 - Madha Gaja Raja
+- Australian Open
 - Anand Mahindra
 - BCCI
-- Mancity
 - Ajith Kumar Racing
 - Mohammed Shami
 - Vivekananda
 - DMart Q3 Results
-- Ind vs Eng T20
 - Ajith
 - Sookshmadarshini
 - Los Angeles news
-- Game Changer Box Office collection day
+- Game Changer box office collection day
 - ILT20
 - Tiku Talsania
+- Bengaluru
+- Game Changer
+- Game Changer Box Office Collection
 - epgview
 - best epg
 - epg for iptv
