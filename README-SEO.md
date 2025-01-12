@@ -31,7 +31,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Steelers vs Ravens
-- NFL playoff schedule
 - Houston Texans
 - UFC
 - FA Cup
@@ -49,7 +48,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - J.K. Dobbins
 - Illinois basketball
 - Cj stroud stats
+- Justin Fields
 - La fire chief
+- UFC
+- Man City vs Salford City
 - FA Cup
 - Liverpool
 - Macy Gray
@@ -68,15 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mark Zuckerberg
 - Lynx
 - Plymouth Argyle
-- Kyle Walker
-- Emilia Fox
 - FA Cup
 - Swami Vivekananda
-- BCCI
+- Daku Maharaj Review
 - Australian Open
 - DMart Q3 Results
 - Mohammed Shami
 - Madha Gaja Raja
+- Anand Mahindra
 - Los Angeles news
 - Ram Mandir
 - Game Changer
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Los Angeles
 - Real Madrid
 - Fateh
-- P Jayachandran
 - epgview
 - best epg
 - epg for iptv
