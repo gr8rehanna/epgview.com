@@ -32,54 +32,57 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - NFL playoff schedule
 - Steelers vs Ravens
-- FA Cup
 - Houston Texans
 - UFC
+- FA Cup
+- Man City vs Salford City
 - Mandeville Canyon
-- Liverpool
 - Rory Sykes
 - Nico Collins stats
 - Cooper Flagg
 - Auburn basketball
 - Australian Open 2025
 - Chelsea vs Morecambe
-- Jim Harbaugh
 - J.K. Dobbins
-- Illinois basketball
-- LA Fire Chief
+- LA Fire chief
 - Chargers vs Texans
 - Notre Dame Football
 - Ohio State
+- Earthquake
+- Arch Manning
 - UFC
 - FA Cup
+- Liverpool
 - Macy Gray
 - Liverpool FC
 - Chelsea vs Morecambe
-- Leicester City vs QPR
 - Leeds United vs Harrogate Town
 - Ngumoha
 - Celtic
 - Ivor Caplin
+- Leicester City
 - FA Cup 4th round draw
 - Chiesa
 - Claudia Winkleman
 - Wolves
-- ITV
 - Nottingham Forest
+- ITV
 - Mark Zuckerberg
 - Lynx
 - Plymouth Argyle
-- Kyle Walker
 - FA Cup
+- Swami Vivekananda
 - BCCI
+- DMart Q3 Results
+- Mohun Bagan vs East Bengal
 - Liverpool vs Accrington Stanley
-- Los Angeles news
+- Los Angeles News
 - Liverpool
 - Dinesh Karthik
-- Game Changer Box Office Collection Day
 - Ram Mandir
 - Game Changer
 - FA Cup
+- Game Changer Box Office Collection
 - Black warrant
 - Toyota Innova
 - Los Angeles
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fateh
 - P Jayachandran
 - Tirupati
-- IPO allotment status
-- FC Barcelona
-- TCS Q3 results
 - epgview
 - best epg
 - epg for iptv
