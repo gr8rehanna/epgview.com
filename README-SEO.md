@@ -31,52 +31,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - NFL playoff schedule
-- FA Cup
 - Steelers vs Ravens
+- FA Cup
+- Houston Texans
 - UFC
-- Liverpool
 - Mandeville Canyon
-- Cj stroud stats
+- Liverpool
 - Rory Sykes
 - Nico Collins stats
-- Auburn basketball
 - Cooper Flagg
+- Auburn basketball
+- Australian Open 2025
 - Chelsea vs Morecambe
-- Wild Card Weekend
-- Illinois basketball
+- Jim Harbaugh
 - J.K. Dobbins
-- La fire Chief
-- Notre Dame Football
+- Illinois basketball
+- LA Fire Chief
 - Chargers vs Texans
+- Notre Dame Football
 - Ohio State
-- Earthquake
+- UFC
 - FA Cup
-- Liverpool
 - Macy Gray
 - Liverpool FC
 - Chelsea vs Morecambe
+- Leicester City vs QPR
 - Leeds United vs Harrogate Town
 - Ngumoha
 - Celtic
-- FA Cup 4th round draw
 - Ivor Caplin
+- FA Cup 4th round draw
 - Chiesa
 - Claudia Winkleman
+- Wolves
 - ITV
 - Nottingham Forest
 - Mark Zuckerberg
 - Lynx
 - Plymouth Argyle
 - Kyle Walker
-- Emilia Fox
-- Tom Hiddleston
-- BCCI
 - FA Cup
+- BCCI
 - Liverpool vs Accrington Stanley
 - Los Angeles news
 - Liverpool
-- Tiku Talsania
 - Dinesh Karthik
+- Game Changer Box Office Collection Day
 - Ram Mandir
 - Game Changer
 - FA Cup
