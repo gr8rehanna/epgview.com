@@ -30,11 +30,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Chargers vs Texans
+- Steelers vs Ravens
+- NFL playoff schedule
 - Houston Texans
 - UFC
 - FA Cup
 - Australian Open
+- Mandeville Canyon
 - Rory Sykes
 - Green Bay Packers
 - Nico Collins stats
@@ -42,43 +44,41 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cooper Flagg
 - Bills
 - Rams
-- TikTok ban update
 - Illinois basketball
 - Cj stroud stats
-- Brentwood fire
+- Barcelona vs Real Madrid
 - La fire chief
 - Quentin Johnston
 - Jack Smith
-- Steelers vs Ravens
 - UFC
+- Australian Open
+- Manchester City
 - FA Cup
-- Liverpool
 - Macy Gray
 - Chelsea vs Morecambe
 - Liverpool FC
 - Ngumoha
 - Celtic
-- Leeds United vs Harrogate Town
 - Ivor Caplin
+- Leeds United vs Harrogate Town
 - FA Cup 4th round draw
 - Leicester City
+- Chiesa
 - Claudia Winkleman
 - Wolves
 - Nottingham Forest
-- ITV
-- Mark Zuckerberg
-- Lynx
 - Kyle Walker
+- Mark Zuckerberg
 - Plymouth Argyle
 - India Women vs Ireland Women
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
-- BCCI
 - Australian Open
 - Madha Gaja Raja
 - Mohammed Shami
 - DMart Q3 Results
+- Real Madrid vs FC Barcelona
 - Anand Mahindra
 - Los Angeles news
 - Game Changer
