@@ -32,24 +32,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Mike Vrabel
 - Tottenham
+- NFL football
+- Mancity
+- Disney Moana lawsuit
 - Steelers vs Ravens
 - NFL playoff schedule
 - Houston Texans
 - UFC
 - FA Cup
-- Australian Open
-- Prime Video
-- Green Bay Packers
+- Real Madrid
 - Bills
-- Mandeville Canyon
+- Australian Open
+- Green Bay Packers
+- Prime Video
+- Rory Sykes
 - Ohio State vs Notre Dame
-- Barcelona vs Real Madrid
 - Nico Collins stats
 - Cooper Flagg
 - Liverpool
-- Brentwood
-- Wild Card Weekend
-- Rams
+- Arsenal vs Man United
+- Mancity
 - UFC
 - Newcastle United
 - Australian Open
@@ -59,37 +61,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tulip Siddiq
 - Brentford FC
 - Hull City
+- Dancing On Ice 2025
+- Crystal Palace
+- Raheem Sterling
 - Rory Sykes
+- Arsenal white kit
 - FA Cup
 - Man City vs Salford City
 - Macy Gray
-- Liverpool
 - Chelsea vs Morecambe
-- Liverpool FC
-- Ivor Caplin
-- FA Cup 4th round draw
-- Ngumoha
-- Kyle Walker
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
 - Real Madrid vs FC Barcelona
 - Australian Open
-- Madha gaja raja
-- BCCI
+- Madha Gaja Raja
 - Anand Mahindra
+- BCCI
+- Mancity
+- Ajith Kumar Racing
 - Mohammed Shami
+- Vivekananda
 - DMart Q3 Results
-- National Youth Day
-- IND vs ENG T20
-- Ajith Kumar
+- Ind vs Eng T20
 - Ajith
 - Sookshmadarshini
 - Los Angeles news
+- Game Changer Box Office collection day
 - ILT20
 - Tiku Talsania
-- Bengaluru
-- Game Changer
 - epgview
 - best epg
 - epg for iptv
