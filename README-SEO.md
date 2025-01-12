@@ -30,14 +30,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Mike Vrabel
+- Tottenham
 - Steelers vs Ravens
-- NFL playoff schedule
 - Houston Texans
 - UFC
-- Green Bay Packers
-- FA Cup
 - Australian Open
+- FA Cup
 - Rory Sykes
+- Green Bay Packers
 - Mandeville Canyon
 - Ohio State vs Notre Dame
 - Man City vs Salford City
@@ -45,22 +46,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bills
 - Cooper Flagg
 - Liverpool
+- Barcelona vs Real Madrid
 - Rams
 - Illinois basketball
 - Cj stroud stats
-- Barcelona vs Real Madrid
-- Jack Smith
 - UFC
 - Australian Open
 - Tulip Siddiq
-- Man City vs Salford City
+- Manchester City
+- Brentford FC
+- Rory Sykes
 - FA Cup
-- Tamworth vs Tottenham
+- Man City vs Salford City
 - Macy Gray
 - Chelsea vs Morecambe
 - Liverpool FC
-- Ngumoha
 - Ivor Caplin
+- Ngumoha
 - Celtic
 - FA Cup 4th round draw
 - Leicester City
@@ -68,28 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Claudia Winkleman
 - Wolves
 - Nottingham Forest
-- Mark Zuckerberg
-- Plymouth Argyle
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
 - Australian Open
 - Real Madrid vs FC Barcelona
+- Madha gaja raja
 - BCCI
-- Madha Gaja Raja
 - Anand Mahindra
 - Mohammed Shami
 - DMart Q3 Results
-- Vinod Kambli
 - Sookshmadarshini
-- Los Angeles news
+- Los Angeles News
 - Tiku Talsania
-- Bengaluru
-- IND-W vs IRE-W
 - Game Changer
 - Game Changer Box Office Collection
 - FA Cup
 - Black warrant
+- IND-W vs IRE-W
+- Toyota Innova
+- Los Angeles
 - epgview
 - best epg
 - epg for iptv
