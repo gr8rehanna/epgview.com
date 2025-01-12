@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Steelers vs Ravens
+- NFL playoff schedule
 - Houston Texans
 - UFC
+- Green Bay Packers
 - FA Cup
 - Australian Open
-- Mandeville Canyon
 - Rory Sykes
-- Green Bay Packers
+- Mandeville Canyon
+- Ohio State vs Notre Dame
 - Man City vs Salford City
 - Nico Collins stats
+- Bills
 - Cooper Flagg
 - Liverpool
-- Bills
 - Rams
 - Illinois basketball
 - Cj stroud stats
 - Barcelona vs Real Madrid
 - Jack Smith
-- La fire chief
-- Quentin Johnston
 - UFC
 - Australian Open
 - Tulip Siddiq
-- Arsenal vs Man United
-- Australian Open 2025
 - Man City vs Salford City
 - FA Cup
+- Tamworth vs Tottenham
 - Macy Gray
 - Chelsea vs Morecambe
 - Liverpool FC
 - Ngumoha
 - Ivor Caplin
-- Kyle Walker
 - Celtic
 - FA Cup 4th round draw
 - Leicester City
+- Kyle Walker
 - Claudia Winkleman
 - Wolves
 - Nottingham Forest
 - Mark Zuckerberg
-- India Women vs Ireland Women
+- Plymouth Argyle
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
 - Australian Open
+- Real Madrid vs FC Barcelona
 - BCCI
 - Madha Gaja Raja
-- Mohammed Shami
 - Anand Mahindra
+- Mohammed Shami
 - DMart Q3 Results
+- Vinod Kambli
 - Sookshmadarshini
 - Los Angeles news
 - Tiku Talsania
+- Bengaluru
+- IND-W vs IRE-W
 - Game Changer
 - Game Changer Box Office Collection
 - FA Cup
 - Black warrant
-- IND-W vs IRE-W
-- Toyota Innova
-- Los Angeles
 - epgview
 - best epg
 - epg for iptv
