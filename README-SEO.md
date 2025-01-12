@@ -36,31 +36,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - UFC
 - FA Cup
 - Mandeville Canyon
+- Australian Open
 - Rory Sykes
+- Green Bay Packers
 - Nico Collins stats
 - Liverpool
 - Cooper Flagg
 - Auburn basketball
-- Australian Open 2025
+- Rams
 - Chelsea vs Morecambe
 - J.K. Dobbins
 - Illinois basketball
-- LA Fire Chief
-- Chargers vs Texans
-- Ohio State
-- Notre Dame Football
-- Earthquake
+- Cj stroud stats
+- Grizzlies vs Timberwolves
+- La fire chief
 - UFC
-- Man City vs Salford City
 - FA Cup
 - Liverpool
 - Macy Gray
 - Chelsea vs Morecambe
+- Leicester City vs QPR
 - Ngumoha
 - Celtic
 - Leeds United vs Harrogate Town
 - Ivor Caplin
-- Leicester City
 - FA Cup 4th round draw
 - Claudia Winkleman
 - Wolves
@@ -70,19 +69,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lynx
 - Plymouth Argyle
 - Kyle Walker
+- Emilia Fox
 - FA Cup
 - Swami Vivekananda
 - BCCI
 - DMart Q3 Results
-- Mohun Bagan vs East Bengal
-- Los Angeles News
-- Dinesh Karthik
+- Mohammed Shami
+- Los Angeles news
 - Ram Mandir
+- Interstellar
 - Game Changer
-- FA Cup
 - Game Changer Box Office Collection
-- NTA
+- FA Cup
 - Black warrant
+- INDW vs IREW
 - Toyota Innova
 - Los Angeles
 - Real Madrid
