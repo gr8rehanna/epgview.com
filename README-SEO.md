@@ -30,36 +30,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Chargers vs Texans
+- Steelers vs Ravens
 - NFL playoff schedule
 - Houston Texans
 - UFC
 - FA Cup
 - Australian Open
+- Mandeville Canyon
 - Rory Sykes
 - Green Bay Packers
-- Brentwood
 - Man City vs Salford City
 - Nico Collins stats
 - Liverpool
 - Cooper Flagg
 - Bills
-- Jim Harbaugh
 - Rams
 - Illinois basketball
 - Cj stroud stats
 - La fire chief
 - Jack Smith
+- Quentin Johnston
 - UFC
 - Australian Open
 - Tulip Siddiq
+- Arsenal vs Man United
+- Man City vs Salford City
 - FA Cup
 - Macy Gray
 - Chelsea vs Morecambe
 - Liverpool FC
 - Ngumoha
-- Celtic
 - Ivor Caplin
+- Celtic
 - Kyle Walker
 - FA Cup 4th round draw
 - Leicester City
@@ -68,19 +70,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nottingham Forest
 - Mark Zuckerberg
 - Plymouth Argyle
-- Lynx
-- Chiesa
 - India Women vs Ireland Women
 - FA Cup
 - Swami Vivekananda
 - Daku Maharaj Review
-- INDW vs IREW
 - BCCI
 - Australian Open
 - Madha Gaja Raja
 - Mohammed Shami
-- DMart Q3 Results
 - Anand Mahindra
+- DMart Q3 Results
+- Vinod Kambli
 - Sookshmadarshini
 - Los Angeles news
 - Game Changer
