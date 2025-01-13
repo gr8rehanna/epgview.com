@@ -31,44 +31,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Real Madrid
+- Real Madrid vs Barcelona
+- Real Madrid vs FC Barcelona
 - Baltimore Ravens
 - Mike Vrabel
 - Arsenal
-- FC Barcelona
-- Tottenham
 - Jalen Hurts
+- Tottenham
 - NFL football
+- James Cook
 - Commanders vs Buccaneers
-- CBS
 - Landman Season 2
+- CBS
+- Full moon
 - Steelers vs Ravens
 - Broncos vs Bills
+- NFL playoff schedule
+- Chargers vs Texans
 - Packers vs Eagles
-- Houston Texans
 - FA Cup
-- Barcelona vs Real Madrid
-- UFC
-- Australian Open
-- Rory Sykes
 - Arsenal vs Man United
+- Real Madrid
 - Real Madrid vs Barcelona
-- Arsenal
 - UFC
 - Newcastle United
 - Australian Open
 - Rangers vs St Johnstone
 - Dancing On Ice 2025
 - Jesy Nelson
+- Ipswich Town vs Bristol Rovers
 - Tulip Siddiq
 - Anton Ferdinand
 - Hull City
 - Dancing On Ice
 - Chelsee Healey
-- Barca
+- Fa cup 4th round dates
 - Crystal Palace
 - Brentford FC
 - Raheem Sterling
-- Rory Sykes
 - Christopher Dean
 - Barca
 - Lohri
@@ -79,17 +79,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND-W vs IRE-W
 - Madha Gaja Raja
 - Australian Open
-- Ajith Kumar racing
+- Ajith Kumar Racing
 - Anand Mahindra
 - BCCI
-- Mohammed Shami
 - DMart Q3 Results
 - Game Changer box office collection day
 - Los Angeles news
-- Tiku Talsania
 - Bengaluru
 - Game Changer
 - Game Changer Box Office Collection
+- FA Cup
+- Black warrant
 - epgview
 - best epg
 - epg for iptv
