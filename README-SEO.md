@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Saquon Barkley
 - Tampa Bay
 - New Glenn launch
 - Craig Melvin
@@ -46,10 +47,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City
 - Coco Gauff
 - Khabib Nurmagomedov
+- Defender
+- CBS
 - Michigan basketball
-- Bulls
-- Eagles
-- Broncos vs Bills
+- Tamworth
 - Tyson Fury
 - Nicola Sturgeon
 - Novak Djokovic
@@ -57,19 +58,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal vs Man United
 - Real Madrid
 - Tamworth vs Tottenham
+- Arsenal
 - Real Madrid vs Barcelona
-- Tamworth
+- Jesy Nelson
 - UFC
 - Dancing On Ice 2025
 - Australian Open
 - Spurs
-- Jesy Nelson
 - Love Island: All Stars 2025
 - Newcastle United
 - Full moon January 2025 Wolf Moon
-- Tulip Siddiq
 - Disney Moana lawsuit
-- Anton Ferdinand
+- Tulip Siddiq
 - Lohri 2025
 - Mahakumbh
 - Karun Nair
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bank holidays 2025
 - Devajit Saikia
 - Real Madrid vs Barcelona
-- FA Cup
 - Makar Sankranti 2025
 - Happy Bhogi
+- Ajith Kumar
 - Bhogi
 - Australian Open
-- Ajith Kumar
+- Arsenal
 - DMart Q3 results
-- Ajith
 - PUMA
 - Game Changer box office collection day
 - Los Angeles news
 - Bengaluru
+- Game Changer
 - epgview
 - best epg
 - epg for iptv
