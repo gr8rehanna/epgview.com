@@ -30,6 +30,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Tampa Bay
+- Nuggets
 - New Glenn launch
 - Real Madrid
 - Arsenal vs Man United
@@ -40,7 +42,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Leslie Charleson
 - Knicks
 - Earthquake
-- Tottenham
 - Man City
 - A.J. Brown
 - Coco Gauff
@@ -49,47 +50,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michigan basketball
 - Bulls
 - Eagles
-- Broncos vs Bills
-- Jacob Fearnley
+- Nicola Sturgeon
 - Arsenal vs Man United
+- Tamworth FC
 - Real Madrid
 - Tamworth vs Tottenham
 - Real Madrid vs Barcelona
-- Tamworth
 - Jesy Nelson
 - UFC
 - Newcastle United
 - Dancing On Ice 2025
+- SPURS
 - Australian Open
-- Spurs
-- Love Island All Stars 2025
-- Rangers vs St Johnstone
+- Love Island: All Stars 2025
+- Full moon January 2025 Wolf Moon
 - Tulip Siddiq
 - Anton Ferdinand
 - Disney Moana lawsuit
-- Hull City
 - Dancing On Ice
 - Chelsee Healey
+- Australian Open 2025
 - Lohri 2025
-- Mahakumbh 2025
+- Mahakumbh
+- Real Madrid
 - Karun Nair
 - Steve Jobs
-- Novak Djokovic
 - Bank holidays 2025
+- Devajit Saikia
 - Real Madrid vs Barcelona
-- Arsenal vs Man United
-- Real Madrid vs FC Barcelona
+- FA Cup
 - Makar Sankranti 2025
 - Happy Bhogi
-- Bhogi
 - Australian Open
+- Bhogi
 - Ajith Kumar
-- BCCI
 - Anand Mahindra
 - DMart Q3 results
 - Ajith
 - PUMA
 - Game Changer box office collection day
+- Los Angeles news
 - epgview
 - best epg
 - epg for iptv
