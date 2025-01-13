@@ -30,35 +30,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Real Madrid vs FC Barcelona
+- Real Madrid vs Barcelona
 - Real Madrid
 - Baltimore Ravens
 - Mike Vrabel
 - Landman Season 2
 - Leslie Charleson
 - Knicks
-- NFL football
 - Earthquake
-- James Cook
 - Tottenham
 - Man City
 - A.J. Brown
 - Coco Gauff
-- CBS
 - Khabib Nurmagomedov
+- CBS
 - Bulls
 - Djimon Hounsou
 - Eagles
 - Steelers vs Ravens
-- Arsenal vs Man United
+- Broncos vs Bills
+- Commanders vs Buccaneers
 - Real Madrid
 - Real Madrid vs Barcelona
 - UFC
 - Newcastle United
+- Australian Open
 - Rangers vs St Johnstone
 - Jesy Nelson
 - Dancing On Ice 2025
-- Australian Open
 - Southampton vs Swansea
 - Ipswich Town vs Bristol Rovers
 - Tulip Siddiq
@@ -69,24 +68,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Attenborough
 - Crystal Palace
 - Brentford FC
-- Australian Open 2025
+- Raheem Sterling
+- Christopher Dean
 - Lohri 2025
 - Makar Sankranti 2025
 - Mahakumbh
 - Karun Nair
+- IND-W vs IRE-W
 - Steve Jobs
 - Bank Holidays 2025
 - IPL 2025 schedule
 - Real Madrid vs Barcelona
 - Arsenal vs Man United
 - Barcelona vs Real Madrid
-- Swami Vivekananda
 - Happy Bhogi
-- IND-W vs IRE-W
+- Swami Vivekananda
 - Bhogi
 - Australian Open
-- BCCI
 - Ajith Kumar
+- BCCI
 - Anand Mahindra
 - DMart Q3 results
 - Ajith
