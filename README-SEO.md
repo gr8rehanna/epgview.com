@@ -30,10 +30,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Real Madrid vs Barcelona
 - Real Madrid
 - Baltimore Ravens
 - Mike Vrabel
+- Baker Mayfield
 - Landman Season 2
 - Leslie Charleson
 - Knicks
@@ -45,13 +45,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Khabib Nurmagomedov
 - CBS
 - Bulls
-- Djimon Hounsou
 - Eagles
 - Steelers vs Ravens
 - Broncos vs Bills
 - Commanders vs Buccaneers
+- NFL playoff schedule
+- Arsenal vs Man United
 - Real Madrid
 - Real Madrid vs Barcelona
+- Man City
 - UFC
 - Newcastle United
 - Australian Open
@@ -68,20 +70,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Attenborough
 - Crystal Palace
 - Brentford FC
-- Raheem Sterling
-- Christopher Dean
 - Lohri 2025
-- Makar Sankranti 2025
 - Mahakumbh
 - Karun Nair
 - IND-W vs IRE-W
 - Steve Jobs
-- Bank Holidays 2025
-- IPL 2025 schedule
+- Bank holidays 2025
 - Real Madrid vs Barcelona
 - Arsenal vs Man United
-- Barcelona vs Real Madrid
+- Real Madrid vs FC Barcelona
 - Happy Bhogi
+- Makar Sankranti 2025
 - Swami Vivekananda
 - Bhogi
 - Australian Open
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Anand Mahindra
 - DMart Q3 results
 - Ajith
+- PUMA
 - epgview
 - best epg
 - epg for iptv
