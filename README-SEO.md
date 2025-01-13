@@ -30,11 +30,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- New Glenn launch
 - Real Madrid
 - Baltimore Ravens
 - Mike Vrabel
 - Baker Mayfield
-- Landman-season-2
+- Landman season 2
 - Leslie Charleson
 - Knicks
 - Earthquake
@@ -49,47 +50,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Steelers vs Ravens
 - Broncos vs Bills
 - NFL playoff schedule
-- Commanders vs Buccaneers
 - Real Madrid
 - Real Madrid vs Barcelona
 - UFC
 - Newcastle United
 - Dancing On Ice 2025
-- Australian Open
 - Jesy Nelson
+- Australian Open
 - Rangers vs St Johnstone
 - Tulip Siddiq
 - Anton Ferdinand
+- Disney Moana lawsuit
+- Love Island All Stars
 - Hull City
-- Love Island: All Stars
-- Dancing on Ice
+- Dancing On Ice
 - Chelsee Healey
 - David Attenborough
 - Crystal Palace
+- Australian Open 2025
 - Brentford FC
 - Southampton FC
-- Archie Gray
-- Rory Sykes
 - Lohri 2025
 - Mahakumbh 2025
 - Karun Nair
-- IND-W vs IRE-W
 - Steve Jobs
+- IND-W vs IRE-W
 - Bank holidays 2025
+- IPL 2025 schedule
 - Real Madrid vs Barcelona
 - Arsenal vs Man United
 - Real Madrid vs FC Barcelona
 - Happy Bhogi
 - Makar Sankranti 2025
-- Bhogi
 - Australian Open
 - Ajith Kumar
 - BCCI
 - Anand Mahindra
 - DMart Q3 results
+- National Youth Day
 - Ajith
 - PUMA
-- Game Changer Box Office Collection Day
 - epgview
 - best epg
 - epg for iptv
