@@ -34,24 +34,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Baltimore Ravens
 - Real Madrid vs FC Barcelona
 - Mike Vrabel
-- Arsenal
-- Commanders vs Buccaneers
+- Arsenal vs Man United
 - Tottenham
 - NFL football
-- James Cook
 - Landman Season 2
-- CBS
-- A.J. Brown
+- Earthquake
+- James Cook
 - Leslie Charleson
-- Steelers vs Ravens
+- A.J. Brown
+- CBS
+- Khabib Nurmagomedov
+- Djimon Hounsou
 - Eagles
+- Steelers vs Ravens
 - Broncos vs Bills
 - NFL playoff schedule
-- Chargers vs Texans
 - Real Madrid vs Barcelona
-- FA Cup
 - Arsenal vs Man United
-- Arsenal
 - Real Madrid
 - Real Madrid vs Barcelona
 - UFC
@@ -65,25 +64,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tulip Siddiq
 - Hull City
 - Dancing On Ice
-- Manchester City
 - Chelsee Healey
 - David Attenborough
 - Crystal Palace
 - Brentford FC
+- Raheem Sterling
+- Christopher Dean
 - Lohri 2025
+- Barca
+- Rangoli
 - Real Madrid vs Barcelona
-- FA Cup
+- Arsenal vs Man United
 - Swami Vivekananda
 - IND-W vs IRE-W
-- Barcelona vs Real Madrid
 - Madha Gaja Raja
 - Australian Open
 - Anand Mahindra
 - BCCI
-- Ajith Kumar
+- Bhogi
 - DMart Q3 Results
-- Ajith Kumar Racing
-- Game Changer Box Office collection Day
+- Game Changer box office collection day
 - Los Angeles news
 - Bengaluru
 - Game Changer
