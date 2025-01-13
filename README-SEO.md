@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Epic
 - Saquon Barkley
-- Tampa Bay
 - Mike McCarthy
 - New Glenn launch
 - Craig Melvin
-- Martin Luther King day
 - Neil Gaiman
+- Martin Luther King day
+- TikTok banned
 - Commanders vs Buccaneers
 - Real Madrid
 - Arsenal vs Man United
+- Baker Mayfield
 - Baltimore Ravens
 - Mike Vrabel
-- Baker Mayfield
-- Landman season 2
+- Landman Season 2
 - Leslie Charleson
 - Inner Excellence
 - Earthquake
 - Knicks
 - FC Barcelona
+- Disney Moana lawsuit
 - Tyson Fury
 - Nicola Sturgeon
 - Japan earthquake tsunami warning
+- Neil Gaiman
 - Novak Djokovic
 - Lamine Yamal
 - Arsenal vs Man United
-- Real Madrid
 - Tamworth vs Tottenham
-- Arsenal
 - Real Madrid vs Barcelona
+- Arsenal
+- Real Madrid
 - Tamworth
 - Australian Open
 - UFC
 - Dancing On Ice 2025
-- SPURS
+- Spurs
 - Love Island All Stars 2025
 - Jesy Nelson
 - Newcastle United
-- Jurassic Park
 - Full moon January 2025 Wolf Moon
-- Lohri 2025
+- Prayagraj
+- Japan earthquake tsunami warning
 - Mahakumbh
+- Lohri 2025
+- FC Barcelona
 - Karun Nair
 - Steve Jobs
 - Novak Djokovic
 - Bank holidays 2025
 - Kerala Blasters
-- Kho Kho World Cup 2025
 - HCL Technologies Q3 Results
+- Kho Kho World Cup 2025
 - Pongal festival
+- Full moon January 2025
 - Real Madrid vs Barcelona
 - Makar Sankranti 2025
-- Bhogi
+- Pongal 2025
+- Real Madrid vs FC Barcelona
 - Ajith Kumar
-- Australian Open
-- Arsenal
-- DMart Q3 results
-- PUMA
-- Game Changer box office collection day
-- Los Angeles news
+- Bhogi
 - epgview
 - best epg
 - epg for iptv
