@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Real Madrid
-- Baltimore Ravens
 - Real Madrid vs FC Barcelona
+- Baltimore Ravens
 - Mike Vrabel
-- Arsenal vs Man United
-- Tottenham
-- NFL football
 - Landman Season 2
+- Leslie Charleson
+- NFL football
 - Earthquake
 - James Cook
-- Leslie Charleson
+- Tottenham
 - A.J. Brown
-- CBS
+- Arsenal  Manchester United
+- Coco Gauff
 - Khabib Nurmagomedov
 - Djimon Hounsou
 - Eagles
 - Steelers vs Ravens
 - Broncos vs Bills
 - NFL playoff schedule
-- Real Madrid vs Barcelona
+- Commanders vs Buccaneers
 - Arsenal vs Man United
 - Real Madrid
 - Real Madrid vs Barcelona
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Raheem Sterling
 - Christopher Dean
 - Lohri 2025
-- Barca
-- Rangoli
+- Karun Nair
 - Real Madrid vs Barcelona
 - Arsenal vs Man United
+- Barcelona vs Real Madrid
 - Swami Vivekananda
 - IND-W vs IRE-W
-- Madha Gaja Raja
+- Madha gaja raja
 - Australian Open
+- Bhogi
 - Anand Mahindra
 - BCCI
-- Bhogi
 - DMart Q3 Results
+- Ajith Kumar
+- Ajith
+- Vinod Kambli
 - Game Changer box office collection day
 - Los Angeles news
 - Bengaluru
 - Game Changer
-- Game Changer Box Office Collection
-- FA Cup
-- Black warrant
 - epgview
 - best epg
 - epg for iptv
