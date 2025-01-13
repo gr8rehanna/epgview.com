@@ -50,8 +50,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Broncos vs Bills
 - NFL playoff schedule
 - Commanders vs Buccaneers
-- Love Island All Stars
-- Arsenal vs Man United
 - Real Madrid
 - Real Madrid vs Barcelona
 - UFC
@@ -60,23 +58,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Australian Open
 - Jesy Nelson
 - Rangers vs St Johnstone
-- Southampton vs Swansea
-- Ipswich Town vs Bristol Rovers
 - Tulip Siddiq
 - Anton Ferdinand
 - Hull City
-- Dancing On Ice
+- Love Island: All Stars
+- Dancing on Ice
 - Chelsee Healey
 - David Attenborough
 - Crystal Palace
 - Brentford FC
+- Southampton FC
+- Archie Gray
+- Rory Sykes
 - Lohri 2025
 - Mahakumbh 2025
 - Karun Nair
 - IND-W vs IRE-W
 - Steve Jobs
 - Bank holidays 2025
-- Maha Kumbh
 - Real Madrid vs Barcelona
 - Arsenal vs Man United
 - Real Madrid vs FC Barcelona
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - DMart Q3 results
 - Ajith
 - PUMA
+- Game Changer Box Office Collection Day
 - epgview
 - best epg
 - epg for iptv
