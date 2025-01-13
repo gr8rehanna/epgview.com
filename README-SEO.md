@@ -35,21 +35,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid vs FC Barcelona
 - Mike Vrabel
 - Arsenal
-- Jalen Hurts
+- Commanders vs Buccaneers
 - Tottenham
 - NFL football
 - James Cook
-- Commanders vs Buccaneers
 - Landman Season 2
 - CBS
-- Full moon
+- A.J. Brown
+- Leslie Charleson
 - Steelers vs Ravens
+- Eagles
 - Broncos vs Bills
 - NFL playoff schedule
-- Packers vs Eagles
 - Chargers vs Texans
 - Real Madrid vs Barcelona
 - FA Cup
+- Arsenal vs Man United
+- Arsenal
 - Real Madrid
 - Real Madrid vs Barcelona
 - UFC
@@ -61,22 +63,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Southampton vs Swansea
 - Ipswich Town vs Bristol Rovers
 - Tulip Siddiq
-- Anton Ferdinand
 - Hull City
-- Man utd vs Arsenal
 - Dancing On Ice
+- Manchester City
 - Chelsee Healey
 - David Attenborough
-- Fa cup 4th round dates
 - Crystal Palace
 - Brentford FC
-- Barca
-- Lohri
+- Lohri 2025
 - Real Madrid vs Barcelona
-- Arsenal vs Man United
 - FA Cup
 - Swami Vivekananda
 - IND-W vs IRE-W
+- Barcelona vs Real Madrid
 - Madha Gaja Raja
 - Australian Open
 - Anand Mahindra
@@ -84,12 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ajith Kumar
 - DMart Q3 Results
 - Ajith Kumar Racing
-- Game Changer box office collection day
+- Game Changer Box Office collection Day
 - Los Angeles news
 - Bengaluru
 - Game Changer
 - Game Changer Box Office Collection
 - FA Cup
+- Black warrant
 - epgview
 - best epg
 - epg for iptv
