@@ -34,7 +34,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Baltimore Ravens
 - Mike Vrabel
 - Baker Mayfield
-- Landman Season 2
+- Landman-season-2
 - Leslie Charleson
 - Knicks
 - Earthquake
@@ -48,18 +48,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Eagles
 - Steelers vs Ravens
 - Broncos vs Bills
-- Commanders vs Buccaneers
 - NFL playoff schedule
+- Commanders vs Buccaneers
+- Love Island All Stars
 - Arsenal vs Man United
 - Real Madrid
 - Real Madrid vs Barcelona
-- Man City
 - UFC
 - Newcastle United
-- Australian Open
-- Rangers vs St Johnstone
-- Jesy Nelson
 - Dancing On Ice 2025
+- Australian Open
+- Jesy Nelson
+- Rangers vs St Johnstone
 - Southampton vs Swansea
 - Ipswich Town vs Bristol Rovers
 - Tulip Siddiq
@@ -71,17 +71,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Crystal Palace
 - Brentford FC
 - Lohri 2025
-- Mahakumbh
+- Mahakumbh 2025
 - Karun Nair
 - IND-W vs IRE-W
 - Steve Jobs
 - Bank holidays 2025
+- Maha Kumbh
 - Real Madrid vs Barcelona
 - Arsenal vs Man United
 - Real Madrid vs FC Barcelona
 - Happy Bhogi
 - Makar Sankranti 2025
-- Swami Vivekananda
 - Bhogi
 - Australian Open
 - Ajith Kumar
