@@ -30,45 +30,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Premier League
 - Auto Fire
-- Liverpool
+- Man City
 - Starbucks reverses open-door policy
 - Jessica Simpson
 - Chelsea
+- Diontae Johnson
 - Jack Smith report
 - Jared Verse
-- Diontae Johnson
+- Chelsea vs Bournemouth
 - Brian Matusz
 - Packers
 - RedNote
+- Pete Hegseth
 - Neil Gaiman
 - Mike McCarthy
-- Pete Hegseth
 - EPIC
 - Carrie Underwood
 - Dallas Cowboys
 - Sam Darnold
-- TikTok ban update
-- Lakers
+- Premier League
 - Tony Slattery
-- Nottm Forest vs Liverpool
-- Brentford vs Man City
 - Chelsea vs Bournemouth
-- Chelsea
 - West Ham vs Fulham
 - Tulip Siddiq
-- Liverpool FC
 - Zubimendi
-- ITV
 - Ekin-Su
+- ITV
 - Celtic
 - LFC
 - Celtic FC
+- Derby County
 - Carrie Underwood
-- RedNote
-- Spain non-EU property tax
 - Tony Book
+- RedNote
+- Mathys Tel
+- Spain non-EU property tax
 - Isak
+- Chelsea FC
 - TNT Sports
 - Dog
 - Kadhalikka Neramillai
@@ -80,10 +80,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Makar Sankranti 2025
 - Mahakumbh
 - Pongal
-- Rangoli
 - Maha Kumbh Mela
 - FC Barcelona
 - Bank holidays 2025
+- Sankranti Rangoli
 - Kho Kho World Cup 2025
 - HCL Technologies Q3 results
 - Game Changer movie box office collection
