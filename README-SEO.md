@@ -34,6 +34,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Neil Gaiman
 - RedNote
 - Carrie Underwood
+- Sam Darnold
 - Bucs
 - Lakers
 - Saquon Barkley
@@ -49,7 +50,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - TikTok banned
 - Kevin O'Connell
 - Pete Hegseth
-- Vikings vs Rams
 - Ekin-Su
 - Tyson Fury
 - Neil Gaiman
@@ -69,7 +69,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tamworth vs Tottenham
 - Arsenal
 - Real Madrid
-- Love Island All Stars 2025
+- Love Island: All Stars 2025
 - Australia Women vs England Women
 - Sankranthiki Vasthunnam
 - Japan earthquake tsunami warning
