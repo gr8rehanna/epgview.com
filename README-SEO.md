@@ -31,40 +31,40 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Mike McCarthy
-- Neil Gaiman
 - RedNote
+- Neil Gaiman
 - Carrie Underwood
 - Sam Darnold
 - Bucs
 - Lakers
 - Wolf Moon
 - Deion Sanders
-- Martin Luther King
-- IRS stimulus checks
 - Tampa Bay
-- New Glenn launch
 - Bad Bunny
-- Spurs vs Lakers
+- New Glenn launch
+- Craig Melvin
+- Penta WWE
 - Pete Hegseth
+- Martin Luther King day
 - TikTok banned
-- Kevin O'Connell
 - Vikings vs Rams
 - Commanders vs Buccaneers
+- Josh Allen
+- Zubimendi
 - Ekin-Su
-- Mathys Tel
 - Carrie Underwood
+- Mathys Tel
 - RedNote
 - Isak
 - Tyson Fury
 - Neil Gaiman
+- Millwall
 - Nicola Sturgeon
 - Kiena Dawes
 - Japan earthquake tsunami warning
 - Jacob Fearnley
-- Millwall
 - Pep Guardiola
 - Novak Djokovic
-- Dagenham and Redbridge
 - Marcel Love Island
 - Emilia Fox
 - Lohri
@@ -73,17 +73,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sankranthiki Vasthunnam
 - Makar Sankranti photo
 - Mark Zuckerberg
+- Neil Gaiman
 - Mahakumbh
-- Happy Pongal
 - Makar Sankranti
+- Happy Pongal
 - Lohri
 - Barcelona
-- Rangoli
-- Kerala Blasters
+- Novak Djokovic
 - Laxmi Dental IPO GMP
 - FC Barcelona
 - Bank holidays 2025
-- Nishesh Basavareddy
+- Sankranti Rangoli
 - Kho Kho World Cup 2025
 - HCL Technologies Q3 results
 - Game Changer movie box office collection
