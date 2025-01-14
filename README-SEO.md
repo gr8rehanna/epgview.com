@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Auto Fire
+- Liverpool
 - Starbucks reverses open-door policy
 - Jessica Simpson
+- Chelsea
 - Jack Smith report
+- Jared Verse
+- Diontae Johnson
+- Brian Matusz
 - Packers
 - RedNote
 - Neil Gaiman
-- EPIC
 - Mike McCarthy
-- Carrie Underwood
 - Pete Hegseth
+- EPIC
+- Carrie Underwood
+- Dallas Cowboys
 - Sam Darnold
-- Deion Sanders
 - TikTok ban update
 - Lakers
-- DallasCowboys
-- Wolf Moon
-- Martin Luther King
-- Walmart logo redesign
-- Tampa Bay
 - Tony Slattery
-- Tulip Siddiq
-- Zubimendi
-- ITV
+- Nottm Forest vs Liverpool
 - Brentford vs Man City
 - Chelsea vs Bournemouth
-- Ekin-Su
-- Carrie Underwood
+- Chelsea
 - West Ham vs Fulham
-- Mathys Tel
+- Tulip Siddiq
+- Liverpool FC
+- Zubimendi
+- ITV
+- Ekin-Su
+- Celtic
+- LFC
+- Celtic FC
+- Carrie Underwood
 - RedNote
-- Isak
 - Spain non-EU property tax
 - Tony Book
-- Garnacho
-- Matt Bloomfield
-- Tyson Fury
-- Neil Gaiman
-- Nicola Sturgeon
-- Kiena Dawes
+- Isak
+- TNT Sports
 - Dog
 - Kadhalikka Neramillai
-- Sankranthiki Vasthunnam Movie Review
+- Happy Sankranti 2025
 - Mark Zuckerberg
-- Happy Sankranti Wishes
 - Jailer 2
-- Ranji Trophy
 - Neil Gaiman
-- Jailer
 - Bihu
-- Djokovic
 - Makar Sankranti 2025
 - Mahakumbh
-- Happy Pongal
+- Pongal
 - Rangoli
 - Maha Kumbh Mela
-- Kerala Blasters
 - FC Barcelona
 - Bank holidays 2025
 - Kho Kho World Cup 2025
+- HCL Technologies Q3 results
+- Game Changer movie box office collection
+- Real Madrid vs FC Barcelona
+- Australian Open
+- Ajith
 - epgview
 - best epg
 - epg for iptv
