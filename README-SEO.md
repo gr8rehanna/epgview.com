@@ -37,15 +37,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sam Darnold
 - Bucs
 - Lakers
-- Wolf moon
-- Matthew Stafford
-- Martin Luther King
+- Saquon Barkley
+- Wolf Moon
 - Deion Sanders
 - Tampa Bay
-- IRS stimulus checks
 - New Glenn launch
 - Bad Bunny
 - Craig Melvin
+- Martin Luther King
+- Martin Luther King day
 - TikTok banned
 - Pete Hegseth
 - Vikings vs Rams
@@ -60,8 +60,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Japan earthquake tsunami warning
 - Jacob Fearnley
 - Millwall
-- Novak Djokovic
 - Pep Guardiola
+- Novak Djokovic
 - Dagenham and Redbridge
 - Marcel Love Island
 - Emilia Fox
@@ -71,7 +71,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal vs Man United
 - Tamworth vs Tottenham
 - Sankranthiki Vasthunnam
-- Japan earthquake tsunami warning
 - Makar Sankranti photo
 - Mahakumbh
 - Makar Sankranti
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Makar Sankranti 2025
 - Real Madrid vs FC Barcelona
 - Australian Open
+- Ajith
 - epgview
 - best epg
 - epg for iptv
