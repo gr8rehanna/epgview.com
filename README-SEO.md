@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Warriors
-- Jessica Simpson
-- Starbucks reverses open-door policy
 - Auto Fire
+- Starbucks reverses open-door policy
+- Jessica Simpson
 - Packers
-- Mike McCarthy
 - Neil Gaiman
-- EPIC
-- Carrie Underwood
-- Sam Darnold
 - RedNote
+- Mike McCarthy
+- Carrie Underwood
+- DallasCowboys
+- Sam Darnold
 - TikTok ban update
-- Bucs
 - Lakers
+- Bucs
+- Pete Hegseth
 - Wolf Moon
 - Deion Sanders
-- Matthew Stafford
-- Pete Hegseth
-- Walmart logo redesign
 - Martin Luther King
+- Walmart logo redesign
+- Tampa Bay
+- Bad Bunny
 - Tony Slattery
 - Zubimendi
 - Ekin-Su
@@ -57,31 +57,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mathys Tel
 - RedNote
 - Isak
-- Matt Bloomfield
 - Spain non-EU property tax
+- Matt Bloomfield
 - Garnacho
+- Wolf Moon
 - Tyson Fury
 - Neil Gaiman
+- Millwall
 - Nicola Sturgeon
 - Kiena Dawes
-- Jacob Fearnley
-- Millwall
 - Pep Guardiola
+- Jacob Fearnley
 - Novak Djokovic
 - Marcel Love Island
-- Dagenham and Redbridge
-- Sankranthiki Vasthunnam
 - Dog
-- Happy Sankranti wishes
+- Kadhalikka Neramillai
+- Sankranthiki Vasthunnam Movie Review
 - Mark Zuckerberg
+- Happy Sankranti wishes
 - Neil Gaiman
 - Jailer 2
 - Djokovic
 - Makar Sankranti 2025
 - Mahakumbh
+- Makar Sankranti
 - Happy Pongal
-- Kumbh Mela
-- Lohri
 - Rangoli
 - Kerala Blasters
 - Laxmi Dental IPO GMP
