@@ -34,7 +34,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Neil Gaiman
 - RedNote
 - Carrie Underwood
+- Bucs
+- Lakers
 - Saquon Barkley
+- Wolf moon
+- Matthew Stafford
 - Martin Luther King
 - Deion Sanders
 - Tampa Bay
@@ -46,10 +50,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kevin O'Connell
 - Pete Hegseth
 - Vikings vs Rams
-- Commanders vs Buccaneers
-- Baltimore Ravens
-- Real Madrid
-- Earthquake Japan tsunami warning
 - Ekin-Su
 - Tyson Fury
 - Neil Gaiman
@@ -70,6 +70,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Real Madrid
 - Love Island All Stars 2025
+- Australia Women vs England Women
+- Sankranthiki Vasthunnam
 - Japan earthquake tsunami warning
 - Mahakumbh
 - Lohri 2025
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid vs FC Barcelona
 - Australian Open
 - Arsenal
-- DMart Q3 results
-- PUMA
 - epgview
 - best epg
 - epg for iptv
