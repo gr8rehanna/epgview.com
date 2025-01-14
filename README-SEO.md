@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Mike McCarthy
+- EPIC
 - Neil Gaiman
 - RedNote
 - Carrie Underwood
-- Sam Darnold
 - Bucs
 - Lakers
-- Saquon Barkley
 - Wolf moon
-- Matthew Stafford
-- Martin Luther King
 - Deion Sanders
 - Tampa Bay
 - IRS stimulus checks
 - New Glenn launch
 - Bad Bunny
 - Craig Melvin
+- Martin Luther King
+- Martin Luther King day
 - TikTok banned
 - Kevin O'Connell
 - Pete Hegseth
+- Vikings vs Rams
 - Ekin-Su
-- Tyson Fury
+- Carrie Underwood
 - Neil Gaiman
+- Tyson Fury
 - Nicola Sturgeon
-- Japan earthquake tsunami warning
 - Kiena Dawes
+- Japan earthquake tsunami warning
+- Jacob Fearnley
 - Millwall
 - Novak Djokovic
-- Dagenham and Redbridge
 - Pep Guardiola
+- Dagenham and Redbridge
 - Marcel Love Island
-- Lohri
 - Emilia Fox
+- Lohri
 - Jack Draper
 - Lamine Yamal
 - Arsenal vs Man United
 - Tamworth vs Tottenham
 - Arsenal
-- Real Madrid
-- Love Island: All Stars 2025
 - Australia Women vs England Women
-- Sankranthiki Vasthunnam
+- Sankranthiki Vasthunam
 - Japan earthquake tsunami warning
+- Makar Sankranti photo
 - Mahakumbh
 - Lohri 2025
 - Makar Sankranti
 - Barcelona
-- Novak Djokovic
-- FC Barcelona
-- Laxmi Dental IPO GMP
 - Kerala Blasters
+- Laxmi Dental IPO GMP
+- FC Barcelona
 - Bank holidays 2025
+- Sankranti Rangoli
+- Nishesh Basavareddy
 - Kho Kho World Cup 2025
 - HCL Technologies Q3 results
 - Game Changer movie box office collection
 - Makar Sankranti 2025
-- Pongal
+- Happy Pongal
 - Real Madrid vs FC Barcelona
-- Australian Open
-- Arsenal
 - epgview
 - best epg
 - epg for iptv
