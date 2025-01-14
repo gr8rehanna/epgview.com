@@ -37,22 +37,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sam Darnold
 - Bucs
 - Lakers
-- Saquon Barkley
 - Wolf Moon
 - Deion Sanders
+- Martin Luther King
+- IRS stimulus checks
 - Tampa Bay
 - New Glenn launch
 - Bad Bunny
-- Craig Melvin
-- Martin Luther King
-- Martin Luther King day
-- TikTok banned
+- Spurs vs Lakers
 - Pete Hegseth
+- TikTok banned
+- Kevin O'Connell
 - Vikings vs Rams
 - Commanders vs Buccaneers
 - Ekin-Su
 - Mathys Tel
 - Carrie Underwood
+- RedNote
+- Isak
 - Tyson Fury
 - Neil Gaiman
 - Nicola Sturgeon
@@ -68,13 +70,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lohri
 - Jack Draper
 - Lamine Yamal
-- Arsenal vs Man United
-- Tamworth vs Tottenham
 - Sankranthiki Vasthunnam
 - Makar Sankranti photo
+- Mark Zuckerberg
 - Mahakumbh
-- Makar Sankranti
 - Happy Pongal
+- Makar Sankranti
 - Lohri
 - Barcelona
 - Rangoli
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Makar Sankranti 2025
 - Real Madrid vs FC Barcelona
 - Australian Open
-- Ajith
 - epgview
 - best epg
 - epg for iptv
