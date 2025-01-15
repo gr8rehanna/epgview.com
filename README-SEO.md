@@ -33,32 +33,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pam Bondi
 - CPI report
 - Red dye 3
+- Greater Los Angeles wildfires
 - Coco Gauff
 - Premier League
-- ASEAN
 - XRP
 - Starbucks reverses open-door policy
-- Greater Los Angeles wildfires
 - Jessica Simpson
 - Diontae Johnson
 - Michelle Obama
 - Cavs
-- Man City
 - Chelsea
 - Alabama basketball
 - Tim Tebow
 - Jack Smith report
 - Bucks
 - External Revenue Service
+- Bulls
+- Woody Harrelson
 - Linda Nolan
 - Mark Chapman
 - XRP
+- Conclave
 - ASEAN
 - Bundesliga
-- UK inflation rate
 - Georgia Harrison
+- UK inflation rate
 - Tom Cannon
-- BAFTA Nominations 2025
 - Tommy Fury
 - Manchester City
 - Premier League
@@ -77,6 +77,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool
 - Laxmi Dental IPO GMP today
 - Bundesliga
+- DJI Flip drone
 - Dog
 - Kadhalikka Neramillai
 - Jailer 2
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pongal
 - FC Barcelona
 - Bank holidays 2025
-- Novak Djokovic
 - epgview
 - best epg
 - epg for iptv
