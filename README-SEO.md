@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Premier League
 - ASEAN
-- Auto Fire
 - Starbucks reverses open-door policy
+- Man City
 - XRP
 - Jessica Simpson
 - Warriors
 - Diontae Johnson
 - Michelle Obama
 - Cavs
-- Man City
 - Chelsea
 - Tony Slattery
+- Alabama basketball
 - Jack Smith report
 - Nuggets vs Mavericks
-- Illinois basketball
-- Bucks
 - Tim Tebow
+- Bucks
 - Cavaliers vs Pacers
 - Brian Matusz
+- Bulls
 - Bundesliga
 - Manchester City
 - Premier League
@@ -57,6 +57,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chelsea vs Bournemouth
 - West Ham vs Fulham
 - Tulip Siddiq
+- Washing up liquid warning
 - Zubimendi
 - Marilyn Manson
 - Leyton Orient
@@ -65,21 +66,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITV
 - Celtic FC
 - LFC
-- PL
-- Chris Wood
 - Tony Book
-- Carrie Underwood
 - Pete Hegseth
+- Carrie Underwood
+- RedNote
+- Pratika Rawal
 - Premier League
-- Indian Army Day
 - Smriti Mandhana
-- Man City
-- IND W vs IRE W
+- Indian Army Day
 - Chelsea
 - Adani Power share
 - Kadhalikka Neramillai
 - Jailer 2
 - Mark Zuckerberg
+- Sankranthiki Vasthunam
 - Ranji Trophy
 - Neil Gaiman
 - Makar Sankranti 2025
