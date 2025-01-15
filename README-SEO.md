@@ -46,30 +46,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Diontae Johnson
 - Michelle Obama
 - Cavs
-- Tony Slattery
 - Chelsea
 - Alabama basketball
 - Tim Tebow
+- Jack Smith report
 - Linda Nolan
+- Arsenal vs Tottenham
 - Mark Chapman
-- XRP
-- Conclave
 - Newcastle vs Wolves
+- XRP
 - Everton vs Aston Villa
+- Conclave
+- Ceasefire
+- Leicester City vs Crystal Palace
+- Rangers vs Aberdeen
+- Jack Draper
 - ASEAN
+- Tommy Fury
 - Georgia Harrison
 - Bundesliga
 - UK inflation rate
-- Tommy Fury
 - Tom Cannon
 - Jacob Fearnley
-- Ceasefire
-- Arsenal vs Tottenham
+- Sheffield Keeley
 - Manchester city
-- Premier League
-- Tony Slattery
-- Chelsea vs Bournemouth
-- West Ham vs Fulham
+- Arsenal vs Tottenham
 - Pratika Rawal
 - Premier League
 - Indian Army Day
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mahakumbh
 - Pongal
 - FC Barcelona
-- Bank holidays 2025
 - epgview
 - best epg
 - epg for iptv
