@@ -34,22 +34,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brentford vs Man City
 - Auto Fire
 - Starbucks reverses open-door policy
-- Cavs
 - XRP
 - Jessica Simpson
 - Warriors
 - Diontae Johnson
 - Michelle Obama
 - Chelsea
-- Tony Slattery
 - Jack Smith report
 - Chelsea vs Bournemouth
 - Illinois basketball
 - Nuggets vs Mavericks
 - Bucks
 - Tim Tebow
+- Cavaliers vs Pacers
 - Brian Matusz
 - Bulls
+- Bundesliga
 - Bundesliga
 - Premier League
 - Tony Slattery
@@ -58,23 +58,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tulip Siddiq
 - Zubimendi
 - Marilyn Manson
+- Leyton Orient
 - Celtic
-- Derby County
 - Ekin-Su
 - ITV
 - Celtic FC
 - LFC
 - PL
+- Chris Wood
 - Tony Book
 - Carrie Underwood
 - RedNote
-- Mathys Tel
-- Spain non-EU property tax
+- Pete Hegseth
 - Premier League
 - Indian Army Day
 - Man City
+- Smriti Mandhana
 - Chelsea
-- IND-W vs IRE-W
+- Adani Power share
 - Jailer 2
 - Kadhalikka Neramillai
 - Mark Zuckerberg
@@ -87,9 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Game Changer box office collection day
 - FC Barcelona
 - Bank holidays 2025
+- Novak Djokovic
 - Kho Kho World Cup 2025
-- HCL Technologies Q3 results
-- Real Madrid vs FC Barcelona
 - epgview
 - best epg
 - epg for iptv
