@@ -32,12 +32,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Premier League
 - ASEAN
+- XRP
 - Starbucks reverses open-door policy
 - Man City
-- XRP
+- Auto Fire
 - Jessica Simpson
-- Warriors
 - Diontae Johnson
+- Warriors
 - Michelle Obama
 - Cavs
 - Chelsea
@@ -45,11 +46,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Alabama basketball
 - Jack Smith report
 - Nuggets vs Mavericks
+- Illinois basketball
 - Tim Tebow
 - Bucks
 - Cavaliers vs Pacers
-- Brian Matusz
-- Bulls
+- XRP
 - Bundesliga
 - Manchester City
 - Premier League
@@ -59,37 +60,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tulip Siddiq
 - Washing up liquid warning
 - Zubimendi
-- Marilyn Manson
 - Leyton Orient
+- Marilyn Manson
 - Celtic
 - Ekin-Su
-- ITV
 - Celtic FC
 - LFC
 - Tony Book
 - Pete Hegseth
 - Carrie Underwood
 - RedNote
-- Pratika Rawal
-- Premier League
 - Smriti Mandhana
-- Indian Army Day
+- Premier League
+- Army Day
+- Pratika Rawal
 - Chelsea
+- AIBE 19 exam Result 2024
+- Bundesliga
+- ITR Filing Deadline
 - Adani Power share
-- Kadhalikka Neramillai
+- Laxmi Dental IPO GMP today
 - Jailer 2
+- Kadhalikka Neramillai
 - Mark Zuckerberg
-- Sankranthiki Vasthunam
-- Ranji Trophy
 - Neil Gaiman
+- Djokovic
 - Makar Sankranti 2025
 - Mahakumbh
 - Mahakumbh
 - Pongal
 - Game Changer box office collection day
-- FC Barcelona
-- Bank holidays 2025
-- Novak Djokovic
 - epgview
 - best epg
 - epg for iptv
