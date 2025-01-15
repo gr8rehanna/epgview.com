@@ -38,41 +38,42 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Starbucks reverses open-door policy
 - Jessica Simpson
 - Diontae Johnson
-- Warriors
 - Michelle Obama
 - Cavs
 - Man City
-- Tony Slattery
 - Chelsea
 - Alabama basketball
-- Jack Smith report
 - Tim Tebow
-- Illinois basketball
+- Jack Smith report
 - Bucks
-- Auto Fire Ventura
+- External Revenue Service
+- Bulls
+- Woody Harrelson
+- Bundesliga
 - Linda Nolan
 - Mark Chapman
 - XRP
 - Bundesliga
 - UK inflation rate
+- Georgia Harrison
 - Tom Cannon
 - Manchester city
 - Premier League
 - Tony Slattery
 - Chelsea vs Bournemouth
 - West Ham vs Fulham
+- Liverpool FC
 - Tulip Siddiq
-- Washing-up liquid warning
+- Washing up liquid warning
 - Zubimendi
 - Marilyn Manson
 - Leyton Orient
 - Celtic
 - Ekin-Su
-- ITV
-- LFC
 - Pratika Rawal
 - Premier League
-- Army Day
+- Indian Army Day
+- Game Changer box office collection day
 - Liverpool
 - Bundesliga
 - Laxmi Dental IPO GMP today
@@ -87,7 +88,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mahakumbh
 - Mahakumbh
 - Pongal
-- Game Changer box office collection day
 - FC Barcelona
 - Bank holidays 2025
 - epgview
