@@ -30,58 +30,57 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- XRP news
 - Premier League
 - ASEAN
-- XRP
 - Starbucks reverses open-door policy
-- Man City
+- XRP
 - Auto Fire
 - Jessica Simpson
 - Diontae Johnson
 - Warriors
 - Michelle Obama
 - Cavs
-- Chelsea
+- Man City
 - Tony Slattery
+- Chelsea
 - Alabama basketball
 - Jack Smith report
-- Nuggets vs Mavericks
 - Illinois basketball
 - Tim Tebow
 - Bucks
-- Cavaliers vs Pacers
+- Bulls
+- Linda Nolan
 - XRP
 - Bundesliga
-- Manchester City
+- Manchester city
 - Premier League
 - Tony Slattery
 - Chelsea vs Bournemouth
 - West Ham vs Fulham
+- Man City
 - Tulip Siddiq
+- Leyton Orient
 - Washing up liquid warning
 - Zubimendi
-- Leyton Orient
 - Marilyn Manson
 - Celtic
 - Ekin-Su
+- ITV
 - Celtic FC
 - LFC
-- Tony Book
-- Pete Hegseth
-- Carrie Underwood
-- RedNote
-- Smriti Mandhana
-- Premier League
-- Army Day
+- PL
 - Pratika Rawal
+- Army Day
+- Liverpool
 - Chelsea
 - AIBE 19 exam Result 2024
 - Bundesliga
 - ITR Filing Deadline
-- Adani Power share
+- Adani power share
 - Laxmi Dental IPO GMP today
-- Jailer 2
 - Kadhalikka Neramillai
+- Jailer 2
 - Mark Zuckerberg
 - Neil Gaiman
 - Djokovic
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mahakumbh
 - Pongal
 - Game Changer box office collection day
+- FC Barcelona
 - epgview
 - best epg
 - epg for iptv
