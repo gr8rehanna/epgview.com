@@ -31,45 +31,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pam Bondi
-- CPI report
+- Severance
 - Red dye 3
+- CPI report
+- TikTok banned
 - Greater Los Angeles wildfires
+- Ceasefire
 - Coco Gauff
 - Premier League
 - XRP
+- Liverpool
 - Starbucks reverses open-door policy
 - Jessica Simpson
 - Diontae Johnson
 - Michelle Obama
 - Cavs
+- Tony Slattery
 - Chelsea
 - Alabama basketball
 - Tim Tebow
-- Jack Smith report
-- Bucks
-- External Revenue Service
-- Bulls
-- Woody Harrelson
 - Linda Nolan
 - Mark Chapman
 - XRP
 - Conclave
+- Newcastle vs Wolves
+- Everton vs Aston Villa
 - ASEAN
-- Bundesliga
 - Georgia Harrison
+- Bundesliga
 - UK inflation rate
-- Tom Cannon
 - Tommy Fury
-- Manchester City
+- Tom Cannon
+- Jacob Fearnley
+- Ceasefire
+- Arsenal vs Tottenham
+- Manchester city
 - Premier League
 - Tony Slattery
 - Chelsea vs Bournemouth
 - West Ham vs Fulham
-- Liverpool FC
-- Man City
-- Tulip Siddiq
-- Washing up liquid warning
-- Zubimendi
 - Pratika Rawal
 - Premier League
 - Indian Army Day
