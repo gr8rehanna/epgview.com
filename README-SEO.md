@@ -36,6 +36,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Starbucks reverses open-door policy
 - Chelsea
 - Cavs
+- XRP
 - Jessica Simpson
 - Warriors
 - Diontae Johnson
@@ -44,16 +45,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jack Smith report
 - Illinois basketball
 - Bucks
-- Brian Matusz
 - Tim Tebow
+- Nuggets vs Mavericks
+- Brian Matusz
 - Bundesliga
 - Joao Fonseca
-- Pete Hegseth
-- Neil Gaiman
 - Premier League
 - Tony Slattery
-- Chelsea vs Bournemouth
 - West Ham vs Fulham
+- Chelsea vs Bournemouth
+- Chelsea
 - Tulip Siddiq
 - Zubimendi
 - Marilyn Manson
@@ -62,7 +63,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITV
 - Celtic FC
 - LFC
-- PL
 - Derby County
 - Leyton Orient
 - Carrie Underwood
@@ -74,22 +74,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City
 - Indian Army Day
 - Chelsea
-- Sankranthiki Vasthunam
-- Mark Zuckerberg
 - Jailer 2
-- Ranji Trophy
+- Mark Zuckerberg
 - Neil Gaiman
 - Makar Sankranti 2025
 - Mahakumbh
-- Kumbh Mela
+- Mahakumbh
 - Pongal
 - Game Changer box office collection day
 - FC Barcelona
 - Bank holidays 2025
-- Novak Djokovic
 - Kho Kho World Cup 2025
 - HCL Technologies Q3 results
 - Real Madrid vs FC Barcelona
+- Australian Open
+- Ajith
+- DMart Q3 results
 - epgview
 - best epg
 - epg for iptv
