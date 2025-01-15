@@ -30,11 +30,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- XRP news
 - Premier League
 - ASEAN
-- Starbucks reverses open-door policy
 - XRP
+- Starbucks reverses open-door policy
 - Auto Fire
 - Jessica Simpson
 - Diontae Johnson
@@ -42,43 +41,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michelle Obama
 - Cavs
 - Man City
-- Tony Slattery
 - Chelsea
-- Alabama basketball
 - Jack Smith report
-- Illinois basketball
 - Tim Tebow
+- Illinois basketball
 - Bucks
+- External Revenue Service
 - Bulls
+- Woody Harrelson
+- Bundesliga
 - Linda Nolan
 - XRP
 - Bundesliga
 - Manchester city
+- Tom Cannon
+- UK inflation rate
 - Premier League
 - Tony Slattery
 - Chelsea vs Bournemouth
 - West Ham vs Fulham
-- Man City
 - Tulip Siddiq
 - Leyton Orient
-- Washing up liquid warning
+- Washing-up liquid warning
 - Zubimendi
 - Marilyn Manson
 - Celtic
 - Ekin-Su
 - ITV
-- Celtic FC
 - LFC
 - PL
 - Pratika Rawal
-- Army Day
+- Premier League
+- Indian Army Day
 - Liverpool
 - Chelsea
-- AIBE 19 exam Result 2024
 - Bundesliga
-- ITR Filing Deadline
-- Adani power share
+- AIBE 19 exam Result 2024
 - Laxmi Dental IPO GMP today
+- Dog
 - Kadhalikka Neramillai
 - Jailer 2
 - Mark Zuckerberg
