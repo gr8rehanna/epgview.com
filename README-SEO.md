@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Premier League
+- Liverpool
 - Brentford vs Man City
 - Auto Fire
 - Starbucks reverses open-door policy
-- Warriors
 - Jessica Simpson
+- Warriors
 - Chelsea
 - Diontae Johnson
 - Chelsea vs Bournemouth
 - Jack Smith report
 - Michelle Obama
-- Tony Slattery
 - Brian Matusz
+- Grizzlies vs Rockets
+- Vikings vs Rams
 - Pete Hegseth
 - RedNote
 - Neil Gaiman
 - Mike McCarthy
-- Carrie Underwood
-- Dallas Cowboys
-- Sam Darnold
+- EPIC
 - Premier League
 - Tony Slattery
 - Chelsea vs Bournemouth
@@ -59,37 +59,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Marilyn Manson
 - Celtic
 - Ekin-Su
-- Leyton Orient
 - ITV
 - Celtic FC
 - LFC
 - PL
 - Derby County
+- Leyton Orient
 - Carrie Underwood
 - Tony Book
 - RedNote
 - Mathys Tel
 - Spain non-EU property tax
-- Liverpool
+- Premier League
+- Game Changer Box Office Collection Day
 - Dog
-- Happy Sankranti 2025
 - Mark Zuckerberg
 - Jailer 2
+- Happy Sankranti Wishes
+- Ranji Trophy
 - Neil Gaiman
-- Bihu
 - Makar Sankranti 2025
 - Mahakumbh
 - Kumbh Mela
 - Pongal
 - FC Barcelona
 - Bank holidays 2025
-- Sankranti Rangoli
 - Kho Kho World Cup 2025
 - HCL Technologies Q3 results
-- Game Changer movie box office collection
 - Real Madrid vs FC Barcelona
 - Australian Open
 - Ajith
+- DMart Q3 results
 - epgview
 - best epg
 - epg for iptv
