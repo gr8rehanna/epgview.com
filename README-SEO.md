@@ -31,56 +31,56 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Premier League
-- Man City
+- Brentford vs Man City
 - Auto Fire
 - Starbucks reverses open-door policy
 - Warriors
 - Jessica Simpson
-- Auto Fire Ventura
 - Chelsea
 - Diontae Johnson
-- Jack Smith report
 - Chelsea vs Bournemouth
+- Jack Smith report
 - Michelle Obama
-- Brian Matusz
 - Tony Slattery
-- RedNote
+- Brian Matusz
 - Pete Hegseth
+- RedNote
 - Neil Gaiman
 - Mike McCarthy
 - Carrie Underwood
 - Dallas Cowboys
+- Sam Darnold
 - Premier League
 - Tony Slattery
-- West Ham vs Fulham
 - Chelsea vs Bournemouth
-- Chelsea
+- West Ham vs Fulham
 - Tulip Siddiq
 - Zubimendi
+- Marilyn Manson
 - Celtic
 - Ekin-Su
+- Leyton Orient
 - ITV
-- Marilyn Manson
 - Celtic FC
 - LFC
 - PL
-- Carrie Underwood
 - Derby County
+- Carrie Underwood
 - Tony Book
 - RedNote
-- Leyton Orient
+- Mathys Tel
 - Spain non-EU property tax
 - Liverpool
 - Dog
-- Kadhalikka Neramillai
 - Happy Sankranti 2025
 - Mark Zuckerberg
 - Jailer 2
 - Neil Gaiman
+- Bihu
 - Makar Sankranti 2025
 - Mahakumbh
+- Kumbh Mela
 - Pongal
-- Maha Kumbh Mela
 - FC Barcelona
 - Bank holidays 2025
 - Sankranti Rangoli
