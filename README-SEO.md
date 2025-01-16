@@ -34,8 +34,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona vs Real Betis
 - Ceasefire
 - Red dye 3
+- Arsenal
 - Severance
-- Arsenal vs Tottenham
 - TikTok banned
 - CPI report
 - CPI
@@ -50,17 +50,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cavs
 - Tony Slattery
 - Chelsea
-- Linda Nolan
 - Arsenal vs Tottenham
+- Linda Nolan
 - Newcastle vs Wolves
+- Everton vs Aston Villa
 - Rangers vs Aberdeen
 - Mark Chapman
-- Everton vs Aston Villa
 - Ceasefire
 - Fog warning
-- Conclave
 - XRP
-- Everton
+- Conclave
 - Leicester City vs Crystal Palace
 - Barcelona vs Real Betis
 - Leicester City
@@ -68,8 +67,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Georgia Harrison
 - Tommy Fury
 - ASEAN
-- UK inflation rate
 - TikTok banned
+- UK inflation rate
+- Bundesliga
 - Arsenal vs Tottenham
 - Pratika Rawal
 - Premier League
