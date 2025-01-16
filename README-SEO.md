@@ -34,29 +34,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bob Uecker
 - Lakers
 - Celtics
-- Warriors
 - New Glenn launch
+- One of Them Days
 - Learner Tien
+- Tennessee basketball
+- Ja Morant
+- Keke Palmer
 - Red Dye 3
 - Pam Bondi
 - Ceasefire
 - Arsenal
+- Saif Ali Khan
 - Warriors vs Timberwolves
 - Severance
-- Saif Ali Khan
 - TikTok banned
-- Daredevil: Born Again
 - Biden farewell address
-- Iowa State Basketball
-- Drake
-- Purdue basketball
+- Daredevil: Born Again
 - Paul Danan
 - Switch 2
 - Saif Ali Khan
 - Pam Bondi
+- Isak
 - The Crow Girl
 - Copa del Rey
-- Arsenal vs Tottenham
+- Alien: Romulus
 - Linda Nolan
 - Newcastle vs Wolves
 - Everton vs Aston Villa
@@ -64,11 +65,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fog warning
 - Mark Chapman
 - Leicester City vs Crystal Palace
-- XRP
 - Conclave
 - Rangers
+- XRP
 - Tommy Fury
-- The nolans
 - Jack Draper
 - Saif Ali Khan
 - 8th Pay Commission
@@ -76,20 +76,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hindenburg
 - Saif Ali Khan stabbed
 - Stallion India Fluorochemicals IPO GMP
-- Kalyan Jewellers share price
 - Karun Nair
+- Kalyan Jewellers share price
 - Ceasefire
 - Brisbane Heat vs Hobart Hurricanes
 - Reliance Q3 Results
-- Taiwan
-- Weather Delhi
-- 8th Pay Commission Salary Calculator
 - SpaDeX mission ISRO space docking
 - Djokovic
-- Viswanathan Anand
+- Burglary
 - GRAP-4
 - Infosys Q3 Results
-- Smriti Mandhana
+- Rifle Club OTT
+- Vijay Sethupathi
+- Copa del Rey
+- Indian Army Day
 - epgview
 - best epg
 - epg for iptv
