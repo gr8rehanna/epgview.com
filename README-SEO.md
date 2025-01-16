@@ -36,19 +36,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Severance
 - TikTok banned
 - Daredevil: Born Again
-- Biden farewell address
 - Saif Ali Khan
+- Biden farewell address
 - Iowa State basketball
 - Drake
-- UNC basketball
+- Knicks vs 76ers
 - CPI report
-- Purdue basketball
 - CPI
 - Right whale
 - La fires update
 - Pacers
 - SpaceX
 - Premier League
+- XRP
 - ASEAN
 - Saif Ali Khan
 - Pam Bondi
@@ -59,17 +59,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Linda Nolan
 - Newcastle vs Wolves
 - Everton vs Aston Villa
+- Ceasefire
 - Fog warning
 - Mark Chapman
-- Ceasefire
 - Leicester City vs Crystal Palace
+- Rangers vs Aberdeen
 - Conclave
 - XRP
 - Rangers
 - Tommy Fury
 - Jack Draper
 - TikTok banned
-- UK inflation rate
 - Saif Ali Khan
 - Realme 14 Pro
 - Hindenburg
@@ -79,17 +79,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Weather Delhi
 - Djokovic
 - GRAP 4
-- Kalyan Jewellers
+- Ceasefire
 - Pratika Rawal
 - Premier League
-- Indian Army Day
 - Copa del Rey
+- Indian Army Day
 - Game Changer box office collection day
 - Laxmi Dental IPO GMP today
 - Dog
 - Kadhalikka Neramillai
 - Mark Zuckerberg
-- Ranji Trophy
+- Neil Gaiman
 - epgview
 - best epg
 - epg for iptv
