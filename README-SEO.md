@@ -31,9 +31,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Nintendo Switch 2
+- Lakers
 - Celtics
-- Red dye 3
-- Pam Bondi
+- New Glenn launch
+- Red Dye 3
 - Ceasefire
 - Arsenal
 - Warriors vs Timberwolves
@@ -43,13 +44,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saif Ali Khan
 - Daredevil: Born Again
 - Biden farewell address
-- Iowa State Basketball
 - Drake
-- Knicks vs 76ers
 - Purdue basketball
 - CPI report
 - CPI
 - Right whale
+- Coco Gauff
 - Paul Danan
 - Switch 2
 - Saif Ali Khan
@@ -57,6 +57,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Crow Girl
 - Copa del Rey
 - Alien: Romulus
+- Arsenal vs Tottenham
 - Linda Nolan
 - Newcastle vs Wolves
 - Everton vs Aston Villa
@@ -68,7 +69,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - XRP
 - Conclave
 - Tommy Fury
-- The nolans
 - Jack Draper
 - Saif Ali Khan
 - 8th Pay Commission
@@ -77,19 +77,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Stallion India Fluorochemicals IPO GMP
 - Saif Ali Khan stabbed
 - Kalyan Jewellers share price
-- Taiwan
-- Weather Delhi
-- Reliance Q3 Results
-- JKSSB JK Police Constable Result
 - Brisbane Heat vs Hobart Hurricanes
+- Taiwan
+- Reliance Q3 Results
+- Weather Delhi
 - Ceasefire
+- JKSSB JK Police Constable Result
+- SpaDeX mission ISRO Space Docking
 - Djokovic
 - GRAP 4
-- SpaDeX mission ISRO space docking
+- Viswanathan Anand
+- Burglary
 - Copa del Rey
 - Smriti Mandhana
-- Indian Army Day
-- Game Changer box office collection day
 - epgview
 - best epg
 - epg for iptv
