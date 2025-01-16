@@ -30,31 +30,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Warriors
-- Keke Palmer
-- Red Dye 3
+- Nintendo Switch 2
+- Celtics
+- Red dye 3
+- Pam Bondi
 - Ceasefire
 - Arsenal
 - Warriors vs Timberwolves
 - Severance
 - Greater Los Angeles wildfires
 - TikTok banned
-- Daredevil: Born Again
 - Saif Ali Khan
+- Daredevil: Born Again
 - Biden farewell address
 - Iowa State Basketball
 - Drake
+- Knicks vs 76ers
 - Purdue basketball
 - CPI report
 - CPI
 - Right whale
-- Pacers
-- SpaceX
 - Paul Danan
+- Switch 2
 - Saif Ali Khan
 - Pam Bondi
-- Copa del Rey
 - The Crow Girl
+- Copa del Rey
 - Alien: Romulus
 - Linda Nolan
 - Newcastle vs Wolves
@@ -67,29 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - XRP
 - Conclave
 - Tommy Fury
+- The nolans
 - Jack Draper
-- TikTok banned
-- Bundesliga
 - Saif Ali Khan
 - 8th Pay Commission
 - Hindenburg
 - Realme 14 Pro
 - Stallion India Fluorochemicals IPO GMP
+- Saif Ali Khan stabbed
 - Kalyan Jewellers share price
 - Taiwan
 - Weather Delhi
-- JKSSB JK Police Constable Result
 - Reliance Q3 Results
-- GRAP 4
-- Djokovic
+- JKSSB JK Police Constable Result
+- Brisbane Heat vs Hobart Hurricanes
 - Ceasefire
-- What happened to Saif Ali Khan
+- Djokovic
+- GRAP 4
 - SpaDeX mission ISRO space docking
 - Copa del Rey
+- Smriti Mandhana
 - Indian Army Day
 - Game Changer box office collection day
-- Laxmi Dental IPO GMP today
-- Dog
 - epgview
 - best epg
 - epg for iptv
