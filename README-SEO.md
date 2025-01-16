@@ -33,45 +33,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
+- David Lynch movies
 - Celtics
 - Warriors
+- Manchester United
 - Blue Origin
-- David Lynch movies
 - Learner Tien
 - Clippers
 - Tennessee basketball
-- Paul Danan
 - Scott Bessent
+- Paul Danan
 - Mike Turner
 - Keke Palmer
 - Red Dye 3
 - Pam Bondi
 - Ceasefire
+- Copa del Rey
 - Arsenal
-- Saif Ali Khan
-- Warriors vs Timberwolves
 - Paul Danan
 - David Lynch
-- Nintendo Switch 2
 - Man United vs Southampton
+- Nintendo Switch 2
 - Saif Ali Khan
+- Newcastle United
 - Ipswich Town vs Brighton
+- Real Madrid vs Celta Vigo
 - Pam Bondi
 - The Crow Girl
 - Isak
-- State Pension
-- Welsh Water
+- Southampton fc
+- State pension
 - Ryan Wellings
+- Bahrain Darts Masters 2025
+- Bayern Munich
+- Learner Tien
 - Linda Nolan
 - Newcastle vs Wolves
 - Ceasefire
-- Everton vs Aston Villa
-- Fog warning
-- Mark Chapman
-- Leicester City vs Crystal Palace
-- Conclave
-- Man United vs Southampton
 - Real Madrid vs Celta Vigo
+- Man United vs Southampton
 - David Lynch
 - Learner Tien
 - Saif Ali Khan
@@ -79,17 +79,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hindenburg
 - Realme 14 Pro
 - What happened to Saif Ali Khan
-- Rifle Club
 - Stallion India Fluorochemicals IPO GMP
 - Karun Nair
 - Reliance Q3 Results
 - Ceasefire
-- Brisbane Heat vs Hobart Hurricanes
 - Kalyan Jewellers share
 - SpaDeX mission ISRO space docking
 - Infosys Q3 Results
 - Rahul Gandhi
 - GRAP-4
+- Rifle Club OTT
+- Smriti Mandhana
 - epgview
 - best epg
 - epg for iptv
