@@ -31,6 +31,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Nintendo Switch 2
+- Bob Uecker
 - Lakers
 - Celtics
 - Warriors
@@ -42,13 +43,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Warriors vs Timberwolves
 - Severance
-- Greater Los Angeles wildfires
 - Saif Ali Khan
 - TikTok banned
 - Daredevil: Born Again
 - Biden farewell address
+- Iowa State Basketball
 - Drake
-- Knack
 - Purdue basketball
 - Paul Danan
 - Switch 2
@@ -56,7 +56,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pam Bondi
 - The Crow Girl
 - Copa del Rey
-- Alien: Romulus
 - Arsenal vs Tottenham
 - Linda Nolan
 - Newcastle vs Wolves
@@ -70,6 +69,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rangers
 - Tommy Fury
 - The nolans
+- Jack Draper
 - Saif Ali Khan
 - 8th Pay Commission
 - Realme 14 Pro
@@ -83,13 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Reliance Q3 Results
 - Taiwan
 - Weather Delhi
+- 8th Pay Commission Salary Calculator
 - SpaDeX mission ISRO space docking
 - Djokovic
-- GRAP-4
 - Viswanathan Anand
-- Burglary
-- Indian Army Day
-- Game Changer box office collection day
+- GRAP-4
+- Infosys Q3 Results
+- Smriti Mandhana
 - epgview
 - best epg
 - epg for iptv
