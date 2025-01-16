@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nintendo Switch 2
 - Lakers
 - Celtics
+- Warriors
 - New Glenn launch
+- Learner Tien
 - Red Dye 3
+- Pam Bondi
 - Ceasefire
 - Arsenal
 - Warriors vs Timberwolves
 - Severance
 - Greater Los Angeles wildfires
-- TikTok banned
 - Saif Ali Khan
+- TikTok banned
 - Daredevil: Born Again
 - Biden farewell address
 - Drake
+- Knack
 - Purdue basketball
-- CPI report
-- CPI
-- Right whale
-- Coco Gauff
 - Paul Danan
 - Switch 2
 - Saif Ali Khan
@@ -65,31 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fog warning
 - Mark Chapman
 - Leicester City vs Crystal Palace
-- Rangers
 - XRP
 - Conclave
+- Rangers
 - Tommy Fury
-- Jack Draper
+- The nolans
 - Saif Ali Khan
 - 8th Pay Commission
-- Hindenburg
 - Realme 14 Pro
-- Stallion India Fluorochemicals IPO GMP
+- Hindenburg
 - Saif Ali Khan stabbed
+- Stallion India Fluorochemicals IPO GMP
 - Kalyan Jewellers share price
-- Brisbane Heat vs Hobart Hurricanes
-- Taiwan
-- Reliance Q3 Results
-- Weather Delhi
+- Karun Nair
 - Ceasefire
-- JKSSB JK Police Constable Result
-- SpaDeX mission ISRO Space Docking
+- Brisbane Heat vs Hobart Hurricanes
+- Reliance Q3 Results
+- Taiwan
+- Weather Delhi
+- SpaDeX mission ISRO space docking
 - Djokovic
-- GRAP 4
+- GRAP-4
 - Viswanathan Anand
 - Burglary
-- Copa del Rey
-- Smriti Mandhana
+- Indian Army Day
+- Game Changer box office collection day
 - epgview
 - best epg
 - epg for iptv
