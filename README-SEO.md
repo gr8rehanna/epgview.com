@@ -34,7 +34,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ceasefire
 - Arsenal
 - Severance
-- Greater Los Angeles wildfires
 - TikTok banned
 - Daredevil: Born Again
 - Biden farewell address
@@ -43,53 +42,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Drake
 - UNC basketball
 - CPI report
-- CPI
 - Purdue basketball
+- CPI
 - Right whale
+- La fires update
 - Pacers
 - SpaceX
 - Premier League
-- XRP
-- Sconce
+- ASEAN
+- Saif Ali Khan
 - Pam Bondi
 - Palestine
 - Copa del Rey
 - Alien: Romulus
-- Saif Ali Khan
 - The Crow Girl
 - Linda Nolan
 - Newcastle vs Wolves
 - Everton vs Aston Villa
-- Rangers vs Aberdeen
 - Fog warning
 - Mark Chapman
 - Ceasefire
 - Leicester City vs Crystal Palace
 - Conclave
 - XRP
+- Rangers
 - Tommy Fury
 - Jack Draper
 - TikTok banned
+- UK inflation rate
 - Saif Ali Khan
+- Realme 14 Pro
 - Hindenburg
+- Kalyan Jewellers share price
 - Stallion India Fluorochemicals IPO GMP
 - Taiwan
-- Kalyan Jewellers share
 - Weather Delhi
 - Djokovic
 - GRAP 4
+- Kalyan Jewellers
 - Pratika Rawal
 - Premier League
-- Copa del Rey
 - Indian Army Day
+- Copa del Rey
 - Game Changer box office collection day
 - Laxmi Dental IPO GMP today
 - Dog
 - Kadhalikka Neramillai
 - Mark Zuckerberg
 - Ranji Trophy
-- Neil Gaiman
-- Djokovic
 - epgview
 - best epg
 - epg for iptv
