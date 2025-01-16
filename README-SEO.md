@@ -33,17 +33,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Red dye 3
 - Pam Bondi
 - Ceasefire
-- Barcelona vs Real Betis
 - Severance
 - Greater Los Angeles wildfires
 - TikTok banned
-- Drake
-- Daredevil: Born Again
 - Iowa State basketball
+- Drake
+- Biden farewell address
+- Daredevil: Born Again
 - CPI report
 - CPI
-- Biden farewell address
-- Lewis Hamilton
+- Right whale
+- Pacers
 - Premier League
 - XRP
 - Liverpool
@@ -53,7 +53,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Alien: Romulus
 - Pam Bondi
 - The Crow Girl
-- Arsenal vs Tottenham
 - Linda Nolan
 - Newcastle vs Wolves
 - Everton vs Aston Villa
@@ -70,16 +69,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - TikTok banned
 - UK inflation rate
 - Bundesliga
+- Jacob Fearnley
 - Arsenal vs Tottenham
 - Taiwan
+- Simpsons
+- Djokovic
 - Pratika Rawal
 - Indian Army Day
-- Copa del Rey
 - Game Changer box office collection day
 - Laxmi Dental IPO GMP today
 - Dog
 - Kadhalikka Neramillai
 - Mark Zuckerberg
+- Ranji Trophy
 - Neil Gaiman
 - Djokovic
 - Makar Sankranti 2025
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pongal
 - FC Barcelona
 - Bank holidays 2025
-- Novak Djokovic
-- Real Madrid vs FC Barcelona
 - epgview
 - best epg
 - epg for iptv
