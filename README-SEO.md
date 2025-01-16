@@ -33,7 +33,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Red dye 3
 - Pam Bondi
 - Ceasefire
-- Copa del Rey
+- Arsenal
 - Severance
 - Greater Los Angeles wildfires
 - TikTok banned
@@ -41,15 +41,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Iowa State Basketball
 - Drake
 - Daredevil: Born Again
+- Saif Ali Khan
 - Knicks vs 76ers
 - CPI report
-- Saif Ali Khan
 - CPI
+- Coco Gauff
 - Right whale
 - Purdue basketball
+- Timberwolves
 - Pacers
-- SpaceX
-- Premier League
 - Alien: Romulus
 - Pam Bondi
 - The Crow Girl
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bundesliga
 - Crystal Palace
 - Saif Ali Khan
+- Weather Delhi
 - Taiwan
-- Simpsons
-- Stallion India Fluorochemicals IPO GMP
-- Hindenburg
 - Saif Ali Khan stabbed
+- Hindenburg
+- Stallion India Fluorochemicals IPO GMP
 - Djokovic
 - Pratika Rawal
+- Barcelona vs Real Betis
 - Premier League
 - Indian Army Day
-- Copa del Rey
 - Game Changer box office collection day
 - Laxmi Dental IPO GMP today
 - Dog
 - Kadhalikka Neramillai
 - Mark Zuckerberg
+- Ranji Trophy
 - Neil Gaiman
 - Djokovic
 - Makar Sankranti 2025
-- Mahakumbh
 - epgview
 - best epg
 - epg for iptv
