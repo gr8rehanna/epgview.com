@@ -36,28 +36,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Lynch movies
 - Man United vs Southampton
 - Learner Tien
-- Warriors
 - Cavaliers vs Thunder
-- One of Them Days
 - Justin Baldoni
+- Warriors
 - Blue Origin
 - Scott Bessent
 - Mike Turner
 - Capital One banking outage
 - Clippers
-- Colin Hurley
 - Moss Landing fire
+- Colin Hurley
 - Pete Alonso
 - Boston Celtics
 - Tennessee basketball
+- Cocktails
 - Joan Plowright
 - Haaland
 - SpaceX
-- Neymar
+- Pakistan vs West Indies
+- Emergency Alert System
 - Disability benefits
 - Justin Baldoni
-- Tina Stinnes Love Island
 - Eraserhead
+- Tina Stinnes Love Island
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid vs Celta Vigo
 - Aston Villa
 - Bahrain Darts Masters 2025
-- Marcus Rashford
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
-- Manchester United
 - Sakat Chauth Vrat Katha
+- Manchester United
+- Auto Expo 2025
 - Azaad
 - Novak Djokovic
-- Auto Expo 2025
-- Learner Tien
 - WPL
+- Learner Tien
 - Axis Bank Share Price
-- Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - What happened to Saif Ali Khan
 - Hindenburg
-- Realme 14 Pro
 - 8th Pay Commission government employees
 - Karun Nair
 - Reliance Q3 Results
+- Stallion India Fluorochemicals IPO GMP
+- Emergency movie
 - epgview
 - best epg
 - epg for iptv
