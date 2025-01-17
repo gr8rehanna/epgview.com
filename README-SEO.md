@@ -43,13 +43,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - One of Them Days
 - Justin Baldoni
 - Blue Origin
+- UPS USPS package delivery changes
 - Scott Bessent
 - Mike Turner
 - Clippers
 - Paul Danan
 - Colin Hurley
 - Capital One banking outage
-- Pete Alonso
 - SpaceX
 - Neymar
 - Disability benefits
@@ -67,28 +67,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Crow Girl
 - Marcus Rashford
 - Wrexham
-- State pension
 - Learner Tien
 - Bayern Munich
+- Linda Nolan
 - Pakistan vs West Indies
 - Man United vs Southampton
 - David Lynch
 - Paatal Lok Season 2
-- ISRO
 - Sakat Chauth Vrat Katha
+- ISRO
 - Learner Tien
 - WPL
-- Azaad
+- 7th Pay Commission
 - Axis Bank share price
 - Saif Ali Khan
 - 8th Pay Commission
 - Hindenburg
 - Realme 14 Pro
 - What happened to Saif Ali Khan
-- 8th Pay Commission salary calculator
 - Reliance Q3 Results
 - Karun Nair
 - Stallion India Fluorochemicals IPO GMP
+- Kalyan Jewellers share price
 - Ceasefire
 - epgview
 - best epg
