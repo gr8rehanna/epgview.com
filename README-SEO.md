@@ -30,31 +30,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Kristi Noem
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
-- David Lynch movies
 - Man United vs Southampton
 - Real Madrid vs Celta Vigo
 - Learner Tien
 - Cavaliers vs Thunder
 - Justin Baldoni
 - Warriors
+- Moss Landing fire
 - Blue Origin
 - Scott Bessent
 - Mike Turner
 - Capital One banking outage
-- Moss Landing fire
 - Clippers
 - Colin Hurley
 - Pete Alonso
+- Tennessee basketball
 - Cocktails
-- Kenny Chesney
 - Joan Plowright
 - Haaland
 - SpaceX
-- Pakistan vs West Indies
 - Emergency Alert System
+- Pakistan vs West Indies
 - Emphysema
 - Neymar
 - Justin Baldoni
@@ -65,23 +65,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
+- Ipswich Town vs Brighton
 - Saif Ali Khan
 - Jake Fahri
-- Real Madrid vs Celta Vigo
 - Newcastle United
-- Novak Djokovic
+- Real Madrid vs Celta Vigo
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
 - Sakat Chauth Vrat Katha
 - Manchester United
+- Auto Expo 2025
 - Azaad
-- Emergency movie review
 - Novak Djokovic
 - ISRO
 - WPL
 - Axis Bank Share Price
-- Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - What happened to Saif Ali Khan
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Karun Nair
 - Reliance Q3 Results
 - Emergency movie
+- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
