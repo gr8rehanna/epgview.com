@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Kristi Noem
 - Mac Miller
+- Joan Plowright
+- Arman Tsarukyan
+- Supreme Court TikTok
 - Edge
+- Naomi Osaka
+- Generations
+- Equal Rights Amendment
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
 - Man United vs Southampton
-- Moss Landing fire
 - Learner Tien
 - Cavaliers vs Thunder
+- Moss Landing fire
 - Justin Baldoni
 - Warriors
 - Blue Origin
 - UPS USPS package delivery changes
-- Scott Bessent
-- Capital One banking outage
-- Mike Turner
-- Pete Alonso
-- Colin Hurley
-- Clippers
 - Joan Plowright
 - Haaland
 - Emergency Alert System
-- Pakistan vs West Indies
 - SpaceX
+- Pakistan vs West Indies
+- Back in Action
 - Emphysema
+- Severance season 2
 - Neymar
 - Justin Baldoni
 - Eraserhead
 - Disability benefits
 - Mark Carney
+- Pompeii
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
 - Ipswich Town vs Brighton
 - Saif Ali Khan
-- Jake Fahri
-- Newcastle United
-- Real Madrid vs Celta Vigo
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
 - Sakat Chauth Vrat Katha
 - Auto Expo 2025
 - Azaad
-- पाकिस्तान बनाम वेस्टइंडीज
 - Novak Djokovic
-- Coldplay
 - Emergency
-- ISRO
+- Coldplay
 - WPL
-- Axis Bank Share Price
-- Paatal Lok Season 2 Review
+- Axis Bank share price
 - Saif Ali Khan
 - 8th Pay Commission
-- Hindenburg
+- Saif Ali Khan attacked
 - 8th Pay Commission government employees
-- What happened to Saif Ali Khan
-- Emergency' movie
+- Hindenburg
+- Karun Nair
+- Reliance Q3 results
+- Stallion India Fluorochemicals IPO GMP
+- Ceasefire
 - epgview
 - best epg
 - epg for iptv
