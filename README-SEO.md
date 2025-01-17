@@ -36,6 +36,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Lynch movies
 - Man United vs Southampton
 - Lakers
+- Learner Tien
 - Cavaliers vs Thunder
 - Celtics
 - Warriors
@@ -45,22 +46,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Scott Bessent
 - Mike Turner
 - Clippers
+- Paul Danan
 - Colin Hurley
-- Pete Alonso
 - Capital One banking outage
-- Boston Celtics
-- Tennessee basketball
+- Pete Alonso
 - SpaceX
 - Neymar
+- Disability benefits
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
-- Ipswich Town vs Brighton
-- Saif Ali Khan
 - Newcastle United
+- Saif Ali Khan
+- Ipswich Town vs Brighton
 - Real Madrid vs Celta Vigo
 - Bahrain Darts Masters 2025
+- Brighton fc
 - Pam Bondi
 - The Crow Girl
 - Marcus Rashford
@@ -68,28 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - State pension
 - Learner Tien
 - Bayern Munich
-- Linda Nolan
-- Ceasefire
 - Pakistan vs West Indies
 - Man United vs Southampton
 - David Lynch
 - Paatal Lok Season 2
 - ISRO
-- Learner Tien
 - Sakat Chauth Vrat Katha
+- Learner Tien
 - WPL
+- Azaad
 - Axis Bank share price
 - Saif Ali Khan
 - 8th Pay Commission
 - Hindenburg
 - Realme 14 Pro
 - What happened to Saif Ali Khan
+- 8th Pay Commission salary calculator
 - Reliance Q3 Results
 - Karun Nair
 - Stallion India Fluorochemicals IPO GMP
-- 8th Pay Commission salary calculator
 - Ceasefire
-- Taiwan
 - epgview
 - best epg
 - epg for iptv
