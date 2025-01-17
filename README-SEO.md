@@ -36,19 +36,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Lynch movies
 - Man United vs Southampton
 - Lakers
-- Celtics
 - Cavaliers vs Thunder
+- Celtics
 - Warriors
 - One of Them Days
+- Justin Baldoni
 - Blue Origin
 - Scott Bessent
 - Mike Turner
 - Clippers
-- Paul Danan
 - Colin Hurley
 - Pete Alonso
-- Boston Celtics
 - Capital One banking outage
+- Boston Celtics
 - Tennessee basketball
 - SpaceX
 - Neymar
@@ -74,22 +74,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man United vs Southampton
 - David Lynch
 - Paatal Lok Season 2
+- ISRO
 - Learner Tien
+- Sakat Chauth Vrat Katha
+- WPL
+- Axis Bank share price
 - Saif Ali Khan
 - 8th Pay Commission
 - Hindenburg
-- What happened to Saif Ali Khan
 - Realme 14 Pro
+- What happened to Saif Ali Khan
 - Reliance Q3 Results
 - Karun Nair
 - Stallion India Fluorochemicals IPO GMP
 - 8th Pay Commission salary calculator
 - Ceasefire
-- ISRO
 - Taiwan
-- Weather Delhi
-- Kalyan Jewellers share
-- Infosys Q3 results
 - epgview
 - best epg
 - epg for iptv
