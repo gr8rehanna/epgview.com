@@ -36,31 +36,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Lynch movies
 - Man United vs Southampton
 - Lakers
+- Learner Tien
 - Celtics
 - Warriors
-- Learner Tien
-- Blue Origin
 - One of Them Days
+- Blue Origin
 - Mike Turner
 - Scott Bessent
+- Clippers
 - Paul Danan
 - Boston Celtics
+- Tennessee basketball
 - Colin Hurley
+- Pete Alonso
 - Houston Rodeo
-- Cocktails
-- Keke Palmer
-- Red Dye 3
 - SpaceX
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
-- Saif Ali Khan
 - Ipswich Town vs Brighton
+- Saif Ali Khan
 - Newcastle United
 - Real Madrid vs Celta Vigo
 - Bahrain Darts Masters 2025
-- Brighton fc
 - Pam Bondi
 - The Crow Girl
 - Wrexham
@@ -70,8 +69,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bayern Munich
 - Linda Nolan
 - Ceasefire
-- Real Madrid vs Celta Vigo
+- Mark Chapman
 - Man United vs Southampton
+- Real Madrid vs Celta Vigo
 - David Lynch
 - Learner Tien
 - Saif Ali Khan
@@ -85,11 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ceasefire
 - Weather Delhi
 - Kalyan Jewellers share
-- SpaDeX mission ISRO space docking
+- SpaDeX mission ISRO Space Docking
 - Infosys Q3 Results
+- Rahul Gandhi
 - GRAP 4
 - Rifle Club OTT
-- Game Changer box office collection day
 - epgview
 - best epg
 - epg for iptv
