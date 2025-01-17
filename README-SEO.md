@@ -36,19 +36,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - David Lynch movies
 - Man United vs Southampton
 - Lakers
-- Learner Tien
 - Celtics
-- Warriors
 - Cavaliers vs Thunder
+- Warriors
 - One of Them Days
 - Blue Origin
-- Mike Turner
 - Scott Bessent
+- Mike Turner
 - Clippers
 - Paul Danan
 - Colin Hurley
-- Boston Celtics
 - Pete Alonso
+- Boston Celtics
+- Capital One banking outage
 - Tennessee basketball
 - SpaceX
 - Neymar
@@ -63,21 +63,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bahrain Darts Masters 2025
 - Pam Bondi
 - The Crow Girl
-- Palestine
 - Marcus Rashford
 - Wrexham
 - State pension
 - Learner Tien
 - Bayern Munich
 - Linda Nolan
+- Ceasefire
+- Pakistan vs West Indies
 - Man United vs Southampton
 - David Lynch
 - Paatal Lok Season 2
 - Learner Tien
 - Saif Ali Khan
 - 8th Pay Commission
-- What happened to Saif Ali Khan
 - Hindenburg
+- What happened to Saif Ali Khan
 - Realme 14 Pro
 - Reliance Q3 Results
 - Karun Nair
@@ -85,11 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - 8th Pay Commission salary calculator
 - Ceasefire
 - ISRO
+- Taiwan
 - Weather Delhi
 - Kalyan Jewellers share
 - Infosys Q3 results
-- GRAP-4
-- Rifle Club OTT
 - epgview
 - best epg
 - epg for iptv
