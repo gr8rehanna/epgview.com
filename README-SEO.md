@@ -34,38 +34,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nintendo Switch 2
 - Bob Uecker
 - David Lynch movies
-- Manchester United
+- Man United vs Southampton
 - Lakers
 - Celtics
 - Warriors
 - Learner Tien
 - Blue Origin
+- One of Them Days
 - Mike Turner
 - Scott Bessent
-- Clippers
 - Paul Danan
 - Boston Celtics
-- Tennessee basketball
+- Colin Hurley
 - Houston Rodeo
 - Cocktails
-- Colin Hurley
 - Keke Palmer
+- Red Dye 3
 - SpaceX
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
-- Ipswich Town vs Brighton
 - Saif Ali Khan
+- Ipswich Town vs Brighton
 - Newcastle United
 - Real Madrid vs Celta Vigo
 - Bahrain Darts Masters 2025
+- Brighton fc
 - Pam Bondi
 - The Crow Girl
-- Ryan Wellings
 - Wrexham
-- State Pension
 - Marcus Rashford
+- State pension
 - Learner Tien
 - Bayern Munich
 - Linda Nolan
@@ -83,13 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Karun Nair
 - Reliance Q3 Results
 - Ceasefire
-- Brisbane Heat vs Hobart Hurricanes
 - Weather Delhi
 - Kalyan Jewellers share
 - SpaDeX mission ISRO space docking
 - Infosys Q3 Results
-- Rahul Gandhi
-- GRAP-4
+- GRAP 4
+- Rifle Club OTT
+- Game Changer box office collection day
 - epgview
 - best epg
 - epg for iptv
