@@ -41,55 +41,55 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - One of Them Days
 - Justin Baldoni
 - Blue Origin
-- UPS USPS package delivery changes
+- Scott Bessent
 - Mike Turner
-- Clippers
 - Capital One banking outage
+- Clippers
 - Colin Hurley
 - Moss Landing fire
 - Pete Alonso
 - Boston Celtics
 - Tennessee basketball
-- Haaland
 - Joan Plowright
+- Haaland
 - SpaceX
 - Neymar
 - Disability benefits
 - Justin Baldoni
+- Tina Stinnes Love Island
+- Eraserhead
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
-- Saif Ali Khan
 - Ipswich Town vs Brighton
+- Saif Ali Khan
+- Jake Fahri
 - Newcastle United
 - Real Madrid vs Celta Vigo
 - Aston Villa
 - Bahrain Darts Masters 2025
-- Brighton fc
 - Marcus Rashford
-- Pam Bondi
-- The Crow Girl
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
 - Manchester United
 - Sakat Chauth Vrat Katha
 - Azaad
-- Learner Tien
+- Novak Djokovic
 - Auto Expo 2025
+- Learner Tien
 - WPL
-- Axis Bank share price
+- Axis Bank Share Price
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
-- Hindenburg
 - What happened to Saif Ali Khan
+- Hindenburg
 - Realme 14 Pro
+- 8th Pay Commission government employees
 - Karun Nair
 - Reliance Q3 Results
-- 8th Pay Commission government employees
-- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
