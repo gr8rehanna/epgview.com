@@ -31,45 +31,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC
-- Kristi Noem
 - Mac Miller
 - Joan Plowright
+- Equal Rights Amendment
 - Supreme Court TikTok
 - Opera
-- Equal Rights Amendment
 - Generations
 - Edge
 - Naomi Osaka
-- Washington, D.C weather
+- Washington, D.C Weather
+- Back in action
 - Millennials
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
 - Moss Landing fire
-- Cavaliers vs Thunder
 - Capital One banking outage
 - Justin Baldoni
 - Manchester United
-- Denis Law
+- Blue Origin
 - Joan Plowright
 - UFC
 - Haaland
 - Emergency Alert System
+- Prime Video
 - SpaceX
 - Jack Draper
-- Pakistan vs West Indies
 - Back in action
+- Pakistan vs West Indies
 - Severance season 2
 - Emphysema
-- Neymar
-- Justin Baldoni
-- Eraserhead
 - Tesla Cybertruck safety concerns UK
+- Neymar
+- Ferrari F40 crashed
+- Justin Baldoni
 - Disability benefits
+- Sunderland
 - Pompeii
-- Mark Carney
 - Imran Khan
-- Paul Danan
+- Mark Carney
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
@@ -77,19 +77,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Auto Expo 2025
 - Manchester United
 - Azaad
+- Emergency
 - Novak Djokovic
 - Coldplay
 - Axis Bank share price
 - WPL
-- Maha
 - Saif Ali Khan
 - 8th Pay Commission
 - 8th Pay Commission government employees
 - Saif Ali Khan attacked
 - Emergency movie
 - Hindenburg
-- Karun Nair
 - Reliance Q3 Results
+- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
