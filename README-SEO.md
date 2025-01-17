@@ -30,57 +30,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- UFC 311
+- UFC
 - Kristi Noem
 - Mac Miller
-- Chrome
 - Joan Plowright
 - Supreme Court TikTok
 - Opera
 - Equal Rights Amendment
-- Edge
 - Generations
+- Edge
 - Naomi Osaka
 - Washington, D.C weather
-- Kings
+- Millennials
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
-- Man United vs Southampton
 - Moss Landing fire
-- Learner Tien
 - Cavaliers vs Thunder
-- Joan Plowright
+- Capital One banking outage
+- Justin Baldoni
+- Manchester United
 - Denis Law
+- Joan Plowright
+- UFC
 - Haaland
 - Emergency Alert System
-- UFC 311
-- Jack Draper
-- Back in Action
-- Pakistan vs West Indies
 - SpaceX
+- Jack Draper
+- Pakistan vs West Indies
+- Back in action
 - Severance season 2
 - Emphysema
 - Neymar
 - Justin Baldoni
 - Eraserhead
-- Disability benefits
-- Tina Stinnes Love Island
 - Tesla Cybertruck safety concerns UK
-- Mark Carney
+- Disability benefits
 - Pompeii
+- Mark Carney
 - Imran Khan
+- Paul Danan
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
 - Sakat Chauth Vrat Katha
 - Auto Expo 2025
+- Manchester United
 - Azaad
 - Novak Djokovic
-- Emergency
 - Coldplay
-- Axis Bank Share Price
+- Axis Bank share price
 - WPL
+- Maha
 - Saif Ali Khan
 - 8th Pay Commission
 - 8th Pay Commission government employees
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hindenburg
 - Karun Nair
 - Reliance Q3 Results
-- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
