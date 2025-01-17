@@ -34,25 +34,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nintendo Switch 2
 - Bob Uecker
 - David Lynch movies
-- Real Madrid vs Celta Vigo
 - Man United vs Southampton
+- Real Madrid vs Celta Vigo
 - Learner Tien
+- Cavaliers vs Thunder
 - Celtics
 - One of Them Days
 - Warriors
 - Justin Baldoni
 - Blue Origin
-- UPS USPS package delivery changes
 - Scott Bessent
 - Mike Turner
 - Clippers
-- Okc Thunder
-- Colin Hurley
+- Paul Danan
 - Capital One banking outage
+- Colin Hurley
 - Moss Landing fire
 - SpaceX
+- Haaland
 - Neymar
 - Disability benefits
+- Justin Baldoni
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
@@ -66,12 +68,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pam Bondi
 - The Crow Girl
 - Marcus Rashford
+- Isak
 - Wrexham
-- Learner Tien
-- Bayern Munich
-- Linda Nolan
 - Pakistan vs West Indies
-- Paatal Lok season 2
+- Paatal Lok Season 2
 - David Lynch
 - Manchester United
 - Sakat Chauth Vrat Katha
@@ -80,15 +80,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Azaad
 - WPL
 - Axis Bank Share Price
-- 7th Pay Commission
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - Hindenburg
-- What happened to Saif Ali Khan
 - Realme 14 Pro
+- What happened to Saif Ali Khan
 - Reliance Q3 Results
 - Karun Nair
+- 8th Pay Commission government employees
 - Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
