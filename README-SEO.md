@@ -35,23 +35,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bob Uecker
 - David Lynch movies
 - Man United vs Southampton
-- Real Madrid vs Celta Vigo
 - Learner Tien
-- Cavaliers vs Thunder
-- Celtics
-- One of Them Days
 - Warriors
+- Cavaliers vs Thunder
+- One of Them Days
 - Justin Baldoni
 - Blue Origin
-- Scott Bessent
+- UPS USPS package delivery changes
 - Mike Turner
 - Clippers
-- Paul Danan
 - Capital One banking outage
 - Colin Hurley
 - Moss Landing fire
-- SpaceX
+- Pete Alonso
+- Boston Celtics
+- Tennessee basketball
 - Haaland
+- Joan Plowright
+- SpaceX
 - Neymar
 - Disability benefits
 - Justin Baldoni
@@ -59,35 +60,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
-- Newcastle United
 - Saif Ali Khan
 - Ipswich Town vs Brighton
+- Newcastle United
 - Real Madrid vs Celta Vigo
+- Aston Villa
 - Bahrain Darts Masters 2025
 - Brighton fc
+- Marcus Rashford
 - Pam Bondi
 - The Crow Girl
-- Marcus Rashford
-- Isak
-- Wrexham
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
 - Manchester United
 - Sakat Chauth Vrat Katha
-- ISRO
-- Learner Tien
 - Azaad
+- Learner Tien
+- Auto Expo 2025
 - WPL
-- Axis Bank Share Price
+- Axis Bank share price
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - Hindenburg
-- Realme 14 Pro
 - What happened to Saif Ali Khan
-- Reliance Q3 Results
+- Realme 14 Pro
 - Karun Nair
+- Reliance Q3 Results
 - 8th Pay Commission government employees
 - Stallion India Fluorochemicals IPO GMP
 - epgview
