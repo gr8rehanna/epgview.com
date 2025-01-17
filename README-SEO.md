@@ -35,6 +35,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bob Uecker
 - David Lynch movies
 - Man United vs Southampton
+- Real Madrid vs Celta Vigo
 - Learner Tien
 - Cavaliers vs Thunder
 - Justin Baldoni
@@ -43,44 +44,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Scott Bessent
 - Mike Turner
 - Capital One banking outage
-- Clippers
 - Moss Landing fire
+- Clippers
 - Colin Hurley
 - Pete Alonso
-- Boston Celtics
-- Tennessee basketball
 - Cocktails
+- Kenny Chesney
 - Joan Plowright
 - Haaland
 - SpaceX
 - Pakistan vs West Indies
 - Emergency Alert System
-- Disability benefits
+- Emphysema
+- Neymar
 - Justin Baldoni
+- Disability benefits
 - Eraserhead
 - Tina Stinnes Love Island
 - Paul Danan
 - Man United vs Southampton
 - David Lynch
 - Nintendo Switch 2
-- Ipswich Town vs Brighton
 - Saif Ali Khan
 - Jake Fahri
-- Newcastle United
 - Real Madrid vs Celta Vigo
-- Aston Villa
-- Bahrain Darts Masters 2025
+- Newcastle United
+- Novak Djokovic
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
 - Sakat Chauth Vrat Katha
 - Manchester United
-- Auto Expo 2025
 - Azaad
+- Emergency movie review
 - Novak Djokovic
+- ISRO
 - WPL
-- Learner Tien
 - Axis Bank Share Price
+- Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - What happened to Saif Ali Khan
@@ -88,7 +89,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - 8th Pay Commission government employees
 - Karun Nair
 - Reliance Q3 Results
-- Stallion India Fluorochemicals IPO GMP
 - Emergency movie
 - epgview
 - best epg
