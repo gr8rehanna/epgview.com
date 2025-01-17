@@ -41,15 +41,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Warriors
 - One of Them Days
 - Blue Origin
+- OKC Thunder
 - Mike Turner
 - Scott Bessent
 - Clippers
 - Paul Danan
+- Unstoppable movie
 - Boston Celtics
-- Tennessee basketball
 - Colin Hurley
-- Pete Alonso
-- Houston Rodeo
+- Tennessee basketball
 - SpaceX
 - Paul Danan
 - Man United vs Southampton
@@ -68,27 +68,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Learner Tien
 - Bayern Munich
 - Linda Nolan
+- Everton vs Aston Villa
 - Ceasefire
-- Mark Chapman
-- Man United vs Southampton
 - Real Madrid vs Celta Vigo
+- Man United vs Southampton
 - David Lynch
 - Learner Tien
 - Saif Ali Khan
 - 8th Pay Commission
 - Hindenburg
-- Realme 14 Pro
 - What happened to Saif Ali Khan
-- Stallion India Fluorochemicals IPO GMP
+- Realme 14 Pro
 - Karun Nair
+- Stallion India Fluorochemicals IPO GMP
 - Reliance Q3 Results
+- 8th Pay Commission salary calculator
 - Ceasefire
-- Weather Delhi
+- ISRO
 - Kalyan Jewellers share
-- SpaDeX mission ISRO Space Docking
 - Infosys Q3 Results
 - Rahul Gandhi
-- GRAP 4
+- GRAP-4
 - Rifle Club OTT
 - epgview
 - best epg
