@@ -30,14 +30,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Timberwolves
 - UFC
-- Back in Action
 - TikTok banned Supreme Court
+- Back in Action
+- Kristi Noem
 - 28th Amendment
 - Dodgers
 - Mac Miller
 - Jimmy Butler
-- Unrivaled basketball
 - Vivek Ramaswamy
 - Edge
 - SpaceX explosion
@@ -49,7 +50,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Magic vs Celtics
 - Spurs
 - A.J. Minter
-- Kid Rock
 - Bob Dylan
 - Championship
 - Burnley
@@ -73,8 +73,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pakistan vs West Indies
 - David Lynch
 - Coldplay
-- Sakat Chauth Vrat Katha
-- Rinku Singh Engagement
+- Rinku Singh engagement
 - Azaad
 - Manchester United
 - Auto Expo 2025
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Reliance Q3 Results
 - Ceasefire
 - Taiwan
+- Infosys Q3 results
 - epgview
 - best epg
 - epg for iptv
