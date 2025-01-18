@@ -31,37 +31,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC
-- Kristi Noem
-- TikTok banned Supreme Court
 - 28th Amendment
+- TikTok banned Supreme Court
 - Back in Action
 - Dodgers
 - Joan Plowright
 - Mac Miller
 - Vivek Ramaswamy
-- Unrivaled basketball
-- Opera
 - Edge
+- SpaceX explosion
 - Washington, D.C weather
 - Silo season 3
 - Coco Gauff
-- Method Man
 - A.J. Minter
+- Silo Season 2 ending explained
+- Unrivaled
 - Kid Rock
 - Zyn
 - David Lynch
+- Nintendo Switch 2
 - Bob Dylan
 - Championship
 - Silo season 3
 - Burnley
 - Tony Mowbray
-- Back in Action
 - Joan Plowright
 - UFC
+- Jamie Foxx
 - Molly-Mae documentary
 - Haaland
 - UK Emergency Alert System
 - Severance
+- Back in action
 - Prime Video
 - SpaceX
 - Jack Draper
@@ -69,18 +70,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Leanne Traitors
 - Tesla Cybertruck safety concerns UK
 - Sunderland
-- Emphysema
 - Pakistan vs West Indies
+- Priya Saroj
 - David Lynch
 - Paatal Lok Season 2
 - Sakat Chauth Vrat Katha
-- Rinku Singh Engagement
 - Auto Expo 2025
 - Manchester United
-- Azaad
 - Coldplay
 - Axis Bank share price
-- WPL
+- Back in action
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
@@ -89,7 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hindenburg
 - Karun Nair
 - Reliance Q3 Results
-- Stallion India Fluorochemicals IPO GMP
+- Ceasefire
+- Taiwan
 - epgview
 - best epg
 - epg for iptv
