@@ -33,9 +33,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Timberwolves
 - UFC
 - TikTok banned Supreme Court
-- Back in Action
 - 28th Amendment
+- Back in Action
 - Dodgers
+- Joan Plowright
 - Mac Miller
 - Jimmy Butler
 - Inauguration
@@ -43,22 +44,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Vivek Ramaswamy
 - Edge
 - SpaceX explosion
-- Silo season 3
 - UDA Nationals 2025
 - Magic vs Celtics
-- Coco Gauff
 - Spurs
 - A.J. Minter
 - Zyn
+- David Lynch
 - Bob Dylan
+- Newcastle vs Bournemouth
 - Championship
 - Tony Mowbray
 - Burnley
 - Silo season 3
 - Denis Law
 - Molly-Mae documentary
-- Joan Plowright
 - UFC
+- Joan Plowright
 - Back in Action
 - UK Emergency Alert System
 - Haaland
@@ -69,8 +70,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Leanne Traitors
 - Tesla Cybertruck safety concerns UK
 - Sunderland
-- Emphysema
-- Champions Trophy India Squad 2025
+- Champions Trophy
 - Rinku Singh engagement
 - Emergency movie collection
 - JEE Mains Admit Card 2025
@@ -79,8 +79,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Coldplay
 - Auto Expo 2025
 - Azaad
-- Jio coin
+- Manchester United
+- Jio Coin
 - Axis Bank share price
+- Bharat Mobility Global Expo 2025
 - Reliance
 - Saif Ali Khan
 - 8th Pay Commission
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - 8th Pay Commission government employees
 - Hindenburg
 - Karun Nair
-- Taiwan
-- Ceasefire
 - epgview
 - best epg
 - epg for iptv
