@@ -30,33 +30,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Trump coin
 - Timberwolves
-- TRUMP memecoin
+- People's March
 - UFC
 - TikTok banned Supreme Court
 - 28th Amendment
 - Back in Action
 - Dodgers
-- Joan Plowright
 - Mac Miller
 - Jimmy Butler
+- Unrivaled basketball
 - Inauguration
+- SpaceX explosion
 - Vivek Ramaswamy
 - Edge
-- SpaceX explosion
-- UDA Nationals 2025
 - Spurs
-- Unrivaled
 - A.J. Minter
 - Zyn
 - David Lynch
+- Nintendo Switch 2
 - Newcastle vs Bournemouth
+- Brentford vs Liverpool
 - Bob Dylan
 - Championship
-- Tony Mowbray
-- Silo season 3
-- Trump coin
+- West Ham vs Crystal Palace
 - Cardiff City
+- Trump coin
+- Tony Mowbray
+- Denis Law
 - Molly-Mae documentary
 - UFC
 - Back in Action
@@ -68,13 +70,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - SpaceX
 - Sunderland
 - Pakistan vs West Indies
-- Leanne Traitors
-- Tesla Cybertruck safety concerns UK
-- Champions Trophy India squad 2025
+- Champions Trophy India Squad 2025
 - JEE Mains Admit Card 2025
-- BCCI
 - Rinku Singh engagement
-- Adelaide Strikers vs Perth Scorchers
 - Pakistan vs West Indies
 - David Lynch
 - Coldplay
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saif Ali Khan attacked
 - 8th Pay Commission government employees
 - Emergency movie
+- Hindenburg
+- Karun Nair
 - epgview
 - best epg
 - epg for iptv
