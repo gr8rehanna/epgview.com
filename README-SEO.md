@@ -33,40 +33,40 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chiefs
 - Trump coin
 - Arsenal
+- Commanders
+- Kentucky basketball
 - People's March
+- Getafe  Barcelona
 - Brentford vs Liverpool
-- DACA
-- Timberwolves
 - Newcastle vs Bournemouth
+- Timberwolves
+- Nelly
+- Taylor Fritz
 - UFC
 - TikTok banned Supreme Court
 - 28th Amendment
-- Back in Action
 - Dodgers
+- Jamie Foxx
+- Back in action
 - Mac Miller
 - Jimmy Butler
-- Unrivaled basketball
-- Inauguration
-- SpaceX explosion
-- Vivek Ramaswamy
-- Edge
-- Newcastle vs Bournemouth
 - Arsenal
+- Newcastle vs Bournemouth
 - Brentford vs Liverpool
 - West Ham vs Crystal Palace
 - Championship
 - Trump coin
 - Leicester City vs Fulham
+- Premier League games
 - Bob Dylan
 - Cardiff City
-- Premier League games
-- Sheffield United
 - Misfits Boxing
-- Portsmouth vs Middlesbrough
-- Digital driving licences
-- Gladiators
-- Tony Mowbray
 - Why is TikTok getting banned
+- Digital driving licences
+- Sheffield United
+- Gladiators
+- Portsmouth vs Middlesbrough
+- Tony Mowbray
 - Scottish Cup
 - Saliba
 - Guy Pearce
@@ -76,6 +76,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal vs Aston Villa
 - Kerala Blasters
 - Karnataka vs Vidarbha
+- Darshan Raval
 - Trump coin
 - Coldplay
 - David Lynch
@@ -85,7 +86,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Emergency
 - Azaad
 - Bharat Mobility Global Expo 2025
-- Reliance
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
