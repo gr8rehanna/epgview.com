@@ -38,27 +38,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dodgers
 - Mac Miller
 - Jimmy Butler
+- Inauguration
 - Unrivaled basketball
 - Vivek Ramaswamy
 - Edge
 - SpaceX explosion
-- Washington, D.C weather
 - Silo season 3
-- Coco Gauff
+- UDA Nationals 2025
 - Magic vs Celtics
+- Coco Gauff
 - Spurs
 - A.J. Minter
-- Kid Rock
 - Zyn
 - Bob Dylan
 - Championship
 - Tony Mowbray
 - Burnley
 - Silo season 3
-- Back in Action
+- Denis Law
 - Molly-Mae documentary
 - Joan Plowright
 - UFC
+- Back in Action
 - UK Emergency Alert System
 - Haaland
 - Severance
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tesla Cybertruck safety concerns UK
 - Sunderland
 - Emphysema
-- Pompeii
 - Champions Trophy India Squad 2025
-- BCCI
+- Rinku Singh engagement
 - Emergency movie collection
+- JEE Mains Admit Card 2025
 - Pakistan vs West Indies
 - David Lynch
-- Rinku Singh Engagement
 - Coldplay
-- Azaad
-- Manchester United
 - Auto Expo 2025
-- Reliance Industries Q3 Results
+- Azaad
 - Jio coin
 - Axis Bank share price
-- Bharat Mobility Global Expo 2025
+- Reliance
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
 - 8th Pay Commission government employees
 - Hindenburg
 - Karun Nair
+- Taiwan
+- Ceasefire
 - epgview
 - best epg
 - epg for iptv
