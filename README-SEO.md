@@ -33,32 +33,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Timberwolves
 - UFC
 - TikTok banned Supreme Court
-- Back in Action
-- Kristi Noem
 - 28th Amendment
+- Back in Action
 - Dodgers
 - Mac Miller
 - Jimmy Butler
+- SpaceX explosion
 - Vivek Ramaswamy
 - Edge
-- SpaceX explosion
 - Washington, D.C weather
 - Silo season 3
-- UDA Nationals 2025
-- Silo Season 2 ending explained
 - Coco Gauff
 - Magic vs Celtics
 - Spurs
 - A.J. Minter
+- Kid Rock
+- Zyn
+- David Lynch
 - Bob Dylan
 - Championship
 - Burnley
-- Silo season 3
 - Tony Mowbray
+- Silo season 3
 - Back in Action
+- Molly-Mae documentary
 - Joan Plowright
 - UFC
-- Molly-Mae documentary
 - UK Emergency Alert System
 - Haaland
 - Severance
@@ -66,10 +66,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - SpaceX
 - Jack Draper
 - Pakistan vs West Indies
-- Ferrari F40 crashed
 - Leanne Traitors
 - Tesla Cybertruck safety concerns UK
 - Sunderland
+- Emphysema
+- Emergency movie collection
 - Pakistan vs West Indies
 - David Lynch
 - Coldplay
@@ -77,17 +78,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Azaad
 - Manchester United
 - Auto Expo 2025
+- Reliance Industries Q3 Results
+- Jio coin
 - Axis Bank share price
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
 - 8th Pay Commission government employees
-- Emergency movie
 - Hindenburg
 - Karun Nair
-- Reliance Q3 Results
-- Ceasefire
 - Taiwan
 - Infosys Q3 results
 - epgview
