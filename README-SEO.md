@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Chiefs
-- Trump meme coin
-- Timberwolves
+- Trump coin
 - People's March
+- Timberwolves
 - Newcastle vs Bournemouth
+- Brentford vs Liverpool
+- Taylor Fritz
 - UFC
 - TikTok banned Supreme Court
 - 28th Amendment
 - Back in Action
+- Kristi Noem
 - Dodgers
+- Inauguration
+- Joan Plowright
 - Mac Miller
 - Jimmy Butler
 - Unrivaled basketball
-- Inauguration
-- SpaceX explosion
 - Vivek Ramaswamy
-- Generations
 - Edge
-- Silo season 3
-- Spurs
 - Newcastle vs Bournemouth
 - Brentford vs Liverpool
 - Championship
-- Bob Dylan
 - West Ham vs Crystal Palace
+- Arsenal vs Aston Villa
+- Bob Dylan
 - Cardiff City
 - Trump coin
+- Leicester City vs Fulham
 - Tony Mowbray
-- Denis Law
+- Portsmouth vs Middlesbrough
+- Misfits Boxing
 - UFC
-- Molly-Mae documentary
 - Back in Action
+- Molly-Mae documentary
 - Joan Plowright
-- UK Emergency Alert System
 - Haaland
+- UK Emergency Alert System
 - Severance
 - Prime Video
-- SpaceX
-- Jack Draper
-- Sunderland
 - Champions Trophy India Squad 2025
 - JEE Mains
 - BCCI
-- Rinku Singh engagement
 - Karnataka vs Vidarbha
 - Trump coin
-- Pakistan vs West Indies
 - Coldplay
 - David Lynch
+- PAK vs WI
 - Auto Expo 2025
 - Emergency
-- Azaad
 - Jio coin
-- Manchester United
+- Azaad
 - Bharat Mobility Global Expo 2025
 - Reliance
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
 - 8th Pay Commission government employees
+- Emergency movie
+- Hindenburg
 - epgview
 - best epg
 - epg for iptv
