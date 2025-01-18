@@ -33,63 +33,63 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - UFC
 - Kristi Noem
 - Equal Rights Amendment
+- Dodgers
 - Mac Miller
+- Back in Action
 - Joan Plowright
 - Opera
 - Edge
-- Back in action
-- Naomi Osaka
-- Washington, D.C weather
-- Method Man
-- Vivek Ramaswamy
 - Unrivaled basketball
+- Washington, D.C weather
+- Naomi Osaka
+- Vivek Ramaswamy
 - Kid Rock
-- Captain America: Brave New World
+- A.J. Minter
+- Silo season 3
 - Zyn
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
-- Moss Landing fire
+- Bob Dylan
 - Championship
 - Burnley
+- Silo season 3
+- Back in Action
 - Joan Plowright
 - UFC
-- Jamie Foxx
 - Molly-Mae documentary
 - Haaland
 - UK Emergency Alert System
 - Severance
+- Burnley vs Sunderland
 - Prime Video
-- Back in action
 - SpaceX
 - Jack Draper
 - Pakistan vs West Indies
+- Leanne Traitors
 - Ferrari F40 crashed
 - Tesla Cybertruck safety concerns UK
-- Sunderland
 - Emphysema
-- Neymar
-- Pompeii
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
 - Sakat Chauth Vrat Katha
 - Auto Expo 2025
 - Manchester United
-- Azaad
-- पाकिस्तान बनाम वेस्टइंडीज
-- Novak Djokovic
 - Coldplay
 - Axis Bank share price
 - WPL
 - Saif Ali Khan
+- Saif Ali Khan news
 - 8th Pay Commission
-- Saif Ali Khan attacked
 - 8th Pay Commission government employees
-- Emergency movie
+- Emergency' movie
 - Hindenburg
-- Karun Nair
 - Reliance Q3 Results
+- Stallion India Fluorochemicals IPO GMP
+- Ceasefire
+- Taiwan
+- Infosys Q3 results
 - epgview
 - best epg
 - epg for iptv
