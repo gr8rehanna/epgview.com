@@ -32,44 +32,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - UFC
 - Kristi Noem
+- Equal Rights Amendment
 - Mac Miller
 - Joan Plowright
-- Equal Rights Amendment
-- Supreme Court TikTok
 - Opera
-- Generations
 - Edge
+- Back in action
 - Naomi Osaka
 - Washington, D.C weather
-- Back in action
+- Method Man
 - Vivek Ramaswamy
+- Unrivaled basketball
 - Kid Rock
+- Captain America: Brave New World
+- Zyn
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
 - Moss Landing fire
-- Capital One banking outage
-- Justin Baldoni
+- Championship
+- Burnley
 - Joan Plowright
 - UFC
+- Jamie Foxx
 - Molly-Mae documentary
 - Haaland
 - UK Emergency Alert System
 - Severance
 - Prime Video
-- SpaceX
 - Back in action
+- SpaceX
 - Jack Draper
 - Pakistan vs West Indies
 - Ferrari F40 crashed
-- Sunderland
 - Tesla Cybertruck safety concerns UK
+- Sunderland
 - Emphysema
 - Neymar
 - Pompeii
-- Justin Baldoni
-- Disability benefits
-- Imran Khan
 - Pakistan vs West Indies
 - Paatal Lok Season 2
 - David Lynch
@@ -77,6 +77,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Auto Expo 2025
 - Manchester United
 - Azaad
+- पाकिस्तान बनाम वेस्टइंडीज
 - Novak Djokovic
 - Coldplay
 - Axis Bank share price
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hindenburg
 - Karun Nair
 - Reliance Q3 Results
-- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
