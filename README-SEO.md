@@ -33,54 +33,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chiefs
 - Trump coin
 - People's March
+- Brentford vs Liverpool
 - Timberwolves
 - Newcastle vs Bournemouth
-- Brentford vs Liverpool
-- Taylor Fritz
 - UFC
 - TikTok banned Supreme Court
 - 28th Amendment
 - Back in Action
-- Kristi Noem
 - Dodgers
-- Inauguration
-- Joan Plowright
 - Mac Miller
 - Jimmy Butler
 - Unrivaled basketball
+- Inauguration
+- SpaceX explosion
 - Vivek Ramaswamy
 - Edge
+- A.J. Minter
+- Kings
 - Newcastle vs Bournemouth
 - Brentford vs Liverpool
-- Championship
-- West Ham vs Crystal Palace
 - Arsenal vs Aston Villa
+- West Ham vs Crystal Palace
+- Championship
+- Leicester City vs Fulham
+- Trump Coin
 - Bob Dylan
 - Cardiff City
-- Trump coin
-- Leicester City vs Fulham
-- Tony Mowbray
 - Portsmouth vs Middlesbrough
 - Misfits Boxing
-- UFC
+- Tony Mowbray
+- Why is TikTok getting banned
+- Digital driving licences
+- Gladiators
+- Scottish Cup
+- Paul Newman
+- Guy Pearce
+- Shaun Murphy
 - Back in Action
-- Molly-Mae documentary
-- Joan Plowright
-- Haaland
-- UK Emergency Alert System
-- Severance
-- Prime Video
 - Champions Trophy India Squad 2025
 - JEE Mains
-- BCCI
+- UFC 311
+- Kerala Blasters
 - Karnataka vs Vidarbha
 - Trump coin
+- Pakistan vs West Indies
 - Coldplay
 - David Lynch
-- PAK vs WI
-- Auto Expo 2025
-- Emergency
 - Jio coin
+- Emergency
 - Azaad
 - Bharat Mobility Global Expo 2025
 - Reliance
