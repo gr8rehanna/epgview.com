@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC
+- Kristi Noem
+- TikTok banned Supreme Court
 - 28th Amendment
-- Dodgers
 - Back in Action
+- Dodgers
+- Joan Plowright
 - Mac Miller
-- Inauguration
+- Vivek Ramaswamy
 - Unrivaled basketball
+- Opera
 - Edge
 - Washington, D.C weather
-- Naomi Osaka
-- Vivek Ramaswamy
-- Method Man
 - Silo season 3
-- Kid Rock
+- Coco Gauff
+- Method Man
 - A.J. Minter
+- Kid Rock
 - Zyn
 - David Lynch
-- Nintendo Switch 2
-- Bob Uecker
-- Moss Landing fire
 - Bob Dylan
 - Championship
 - Silo season 3
@@ -62,20 +62,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Haaland
 - UK Emergency Alert System
 - Severance
+- Prime Video
 - SpaceX
 - Jack Draper
-- Leanne Traitors
 - Ferrari F40 crashed
+- Leanne Traitors
 - Tesla Cybertruck safety concerns UK
 - Sunderland
 - Emphysema
-- Pompeii
-- UFC 311
 - Pakistan vs West Indies
-- Paatal Lok Season 2
-- Priya Saroj
 - David Lynch
+- Paatal Lok Season 2
 - Sakat Chauth Vrat Katha
+- Rinku Singh Engagement
 - Auto Expo 2025
 - Manchester United
 - Azaad
@@ -83,11 +82,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Axis Bank share price
 - WPL
 - Saif Ali Khan
-- Saif Ali Khan news
 - 8th Pay Commission
+- Saif Ali Khan attacked
 - 8th Pay Commission government employees
-- Emergency' movie
+- Emergency movie
 - Hindenburg
+- Karun Nair
 - Reliance Q3 Results
 - Stallion India Fluorochemicals IPO GMP
 - epgview
