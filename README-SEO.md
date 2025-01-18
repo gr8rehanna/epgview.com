@@ -32,54 +32,55 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - UFC
 - 28th Amendment
-- TikTok banned Supreme Court
 - Back in Action
+- Kristi Noem
+- TikTok banned Supreme Court
 - Dodgers
 - Joan Plowright
 - Mac Miller
+- Unrivaled basketball
 - Vivek Ramaswamy
 - Edge
 - SpaceX explosion
 - Washington, D.C weather
 - Silo season 3
 - Coco Gauff
-- A.J. Minter
 - Silo Season 2 ending explained
-- Unrivaled
+- Magic vs Celtics
+- A.J. Minter
 - Kid Rock
 - Zyn
-- David Lynch
-- Nintendo Switch 2
 - Bob Dylan
 - Championship
 - Silo season 3
 - Burnley
 - Tony Mowbray
+- Back in Action
 - Joan Plowright
 - UFC
-- Jamie Foxx
 - Molly-Mae documentary
 - Haaland
 - UK Emergency Alert System
 - Severance
-- Back in action
 - Prime Video
 - SpaceX
 - Jack Draper
+- Pakistan vs West Indies
 - Ferrari F40 crashed
 - Leanne Traitors
 - Tesla Cybertruck safety concerns UK
 - Sunderland
 - Pakistan vs West Indies
-- Priya Saroj
 - David Lynch
 - Paatal Lok Season 2
 - Sakat Chauth Vrat Katha
-- Auto Expo 2025
+- Rinku Singh Engagement
 - Manchester United
+- Auto Expo 2025
 - Coldplay
 - Axis Bank share price
 - Back in action
+- Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Karun Nair
 - Reliance Q3 Results
 - Ceasefire
-- Taiwan
 - epgview
 - best epg
 - epg for iptv
