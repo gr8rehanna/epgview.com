@@ -32,35 +32,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - UFC
 - Back in Action
-- 28th Amendment
 - TikTok banned Supreme Court
+- 28th Amendment
 - Dodgers
-- Joan Plowright
 - Mac Miller
 - Jimmy Butler
+- Unrivaled basketball
 - Vivek Ramaswamy
 - Edge
 - SpaceX explosion
 - Washington, D.C weather
 - Silo season 3
-- Coco Gauff
+- UDA Nationals 2025
 - Silo Season 2 ending explained
+- Coco Gauff
 - Magic vs Celtics
 - Spurs
 - A.J. Minter
 - Kid Rock
-- Zyn
 - Bob Dylan
 - Championship
-- Silo season 3
 - Burnley
+- Silo season 3
 - Tony Mowbray
 - Back in Action
 - Joan Plowright
 - UFC
 - Molly-Mae documentary
-- Haaland
 - UK Emergency Alert System
+- Haaland
 - Severance
 - Prime Video
 - SpaceX
@@ -72,10 +72,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sunderland
 - Pakistan vs West Indies
 - David Lynch
-- Paatal Lok Season 2
 - Coldplay
 - Sakat Chauth Vrat Katha
 - Rinku Singh Engagement
+- Azaad
 - Manchester United
 - Auto Expo 2025
 - Axis Bank share price
