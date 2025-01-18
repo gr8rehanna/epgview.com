@@ -31,14 +31,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC
-- 28th Amendment
 - Back in Action
-- Kristi Noem
+- 28th Amendment
 - TikTok banned Supreme Court
 - Dodgers
 - Joan Plowright
 - Mac Miller
-- Unrivaled basketball
+- Jimmy Butler
 - Vivek Ramaswamy
 - Edge
 - SpaceX explosion
@@ -47,6 +46,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Coco Gauff
 - Silo Season 2 ending explained
 - Magic vs Celtics
+- Spurs
 - A.J. Minter
 - Kid Rock
 - Zyn
@@ -73,13 +73,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pakistan vs West Indies
 - David Lynch
 - Paatal Lok Season 2
+- Coldplay
 - Sakat Chauth Vrat Katha
 - Rinku Singh Engagement
 - Manchester United
 - Auto Expo 2025
-- Coldplay
 - Axis Bank share price
-- Back in action
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Karun Nair
 - Reliance Q3 Results
 - Ceasefire
+- Taiwan
 - epgview
 - best epg
 - epg for iptv
