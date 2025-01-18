@@ -33,14 +33,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Timberwolves
 - UFC
 - TikTok banned Supreme Court
-- 28th Amendment
 - Back in Action
+- 28th Amendment
 - Dodgers
 - Mac Miller
 - Jimmy Butler
-- SpaceX explosion
+- Unrivaled basketball
 - Vivek Ramaswamy
 - Edge
+- SpaceX explosion
 - Washington, D.C weather
 - Silo season 3
 - Coco Gauff
@@ -49,11 +50,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - A.J. Minter
 - Kid Rock
 - Zyn
-- David Lynch
 - Bob Dylan
 - Championship
-- Burnley
 - Tony Mowbray
+- Burnley
 - Silo season 3
 - Back in Action
 - Molly-Mae documentary
@@ -64,17 +64,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Severance
 - Prime Video
 - SpaceX
-- Jack Draper
 - Pakistan vs West Indies
 - Leanne Traitors
 - Tesla Cybertruck safety concerns UK
 - Sunderland
 - Emphysema
+- Pompeii
+- Champions Trophy India Squad 2025
+- BCCI
 - Emergency movie collection
 - Pakistan vs West Indies
 - David Lynch
+- Rinku Singh Engagement
 - Coldplay
-- Rinku Singh engagement
 - Azaad
 - Manchester United
 - Auto Expo 2025
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - 8th Pay Commission government employees
 - Hindenburg
 - Karun Nair
-- Taiwan
-- Infosys Q3 results
 - epgview
 - best epg
 - epg for iptv
