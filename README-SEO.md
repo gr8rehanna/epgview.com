@@ -31,29 +31,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC
-- Kristi Noem
-- Equal Rights Amendment
+- 28th Amendment
 - Dodgers
-- Mac Miller
 - Back in Action
-- Joan Plowright
-- Opera
-- Edge
+- Mac Miller
+- Inauguration
 - Unrivaled basketball
+- Edge
 - Washington, D.C weather
 - Naomi Osaka
 - Vivek Ramaswamy
+- Method Man
+- Silo season 3
 - Kid Rock
 - A.J. Minter
-- Silo season 3
 - Zyn
 - David Lynch
 - Nintendo Switch 2
 - Bob Uecker
+- Moss Landing fire
 - Bob Dylan
 - Championship
-- Burnley
 - Silo season 3
+- Burnley
+- Tony Mowbray
 - Back in Action
 - Joan Plowright
 - UFC
@@ -61,21 +62,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Haaland
 - UK Emergency Alert System
 - Severance
-- Burnley vs Sunderland
-- Prime Video
 - SpaceX
 - Jack Draper
-- Pakistan vs West Indies
 - Leanne Traitors
 - Ferrari F40 crashed
 - Tesla Cybertruck safety concerns UK
+- Sunderland
 - Emphysema
+- Pompeii
+- UFC 311
 - Pakistan vs West Indies
 - Paatal Lok Season 2
+- Priya Saroj
 - David Lynch
 - Sakat Chauth Vrat Katha
 - Auto Expo 2025
 - Manchester United
+- Azaad
 - Coldplay
 - Axis Bank share price
 - WPL
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hindenburg
 - Reliance Q3 Results
 - Stallion India Fluorochemicals IPO GMP
-- Ceasefire
-- Taiwan
-- Infosys Q3 results
 - epgview
 - best epg
 - epg for iptv
