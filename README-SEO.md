@@ -36,51 +36,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - 28th Amendment
 - Back in Action
 - Dodgers
-- Joan Plowright
 - Mac Miller
 - Jimmy Butler
-- Inauguration
-- Unrivaled basketball
+- SpaceX explosion
 - Vivek Ramaswamy
 - Edge
-- SpaceX explosion
+- Washington, D.C weather
 - UDA Nationals 2025
 - Magic vs Celtics
 - Spurs
 - A.J. Minter
 - Zyn
 - David Lynch
-- Bob Dylan
+- Nintendo Switch 2
+- Bob Uecker
 - Newcastle vs Bournemouth
+- Bob Dylan
 - Championship
 - Tony Mowbray
-- Burnley
 - Silo season 3
 - Denis Law
 - Molly-Mae documentary
 - UFC
-- Joan Plowright
 - Back in Action
-- UK Emergency Alert System
+- Joan Plowright
 - Haaland
+- UK Emergency Alert System
 - Severance
 - Prime Video
 - SpaceX
+- Sunderland
 - Pakistan vs West Indies
 - Leanne Traitors
 - Tesla Cybertruck safety concerns UK
-- Sunderland
-- Champions Trophy
-- Rinku Singh engagement
-- Emergency movie collection
+- Emphysema
+- Champions Trophy India Squad 2025
 - JEE Mains Admit Card 2025
+- Rinku Singh engagement
 - Pakistan vs West Indies
-- David Lynch
+- Priya Saroj
 - Coldplay
+- David Lynch
 - Auto Expo 2025
 - Azaad
 - Manchester United
-- Jio Coin
+- Emergency
+- Jio coin
 - Axis Bank share price
 - Bharat Mobility Global Expo 2025
 - Reliance
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saif Ali Khan attacked
 - 8th Pay Commission government employees
 - Hindenburg
-- Karun Nair
 - epgview
 - best epg
 - epg for iptv
