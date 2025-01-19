@@ -30,38 +30,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Detroit Lions
+- Lions
 - Trump coin
 - Premier League
 - Getafe  Barcelona
-- Travis Kelce
+- Taylor Swift
 - Lakers
-- Kentucky basketball
 - Ravens vs Bills
-- Patrick Mahomes
-- USA vs Venezuela
 - People's March
 - FC Barcelona
+- Kentucky basketball
 - Brentford vs Liverpool
-- Snoop Dogg Trump
 - DACA
 - Purdue basketball
-- Bulls
 - Taylor Fritz
 - Newcastle vs Bournemouth
 - Timberwolves
+- Nelly
+- Inter Miami
+- WVU basketball
+- Rams vs Eagles
 - Billy Connolly
 - Chiefs vs Texans
 - Prince William
 - Premier League
 - Newcastle vs Bournemouth
 - Brentford vs Liverpool
-- Getafe vs Barcelona
+- Is TikTok getting banned
+- West Ham vs Crystal Palace
 - Misfits Boxing
 - Sam Thompson
-- Why is TikTok getting banned
 - Trump coin
-- West Ham vs Crystal Palace
+- Getafe vs Barcelona
 - Championship
 - Leicester City vs Fulham
 - Digital driving licences
@@ -76,9 +76,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal vs Aston Villa
 - UFC 311
 - Kerala Blasters
+- BCCI
 - Darshan Raval
 - Champions Trophy squad
 - Trump coin
+- JEE Mains admit card
 - Coldplay
 - David Lynch
 - Auto Expo 2025
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
-- 8th Pay Commission government employees
-- Emergency movie
 - epgview
 - best epg
 - epg for iptv
