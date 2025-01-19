@@ -30,35 +30,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Amik Robertson
-- Tampa bay
 - Ipswich Town vs Man City
+- Tampa bay
+- NFC Championship Game
+- Amik Robertson
+- Hostage release
 - Novak Djokovic
+- Dolly Parton
+- Everton vs Tottenham
 - Commanders vs Lions
 - Texans vs Chiefs
 - Trump coin
-- Taylor Swift
 - Rams
+- Taylor Swift
 - Inter Miami vs Club América
 - Premier League
 - Ravens vs Bills
 - Barcelona
 - Arsenal
-- La Liga
-- Inter Miami
-- Teddy Bridgewater
-- When is the Super Bowl
 - Snoop Dogg Trump
-- Marvel Snap
+- Inter Miami
 - Man United vs Brighton
+- Everton vs Tottenham
 - Nottm Forest vs Southampton
 - Ipswich Town vs Man City
 - Liverpool FC
+- Real Madrid vs Las Palmas
 - Leeds United vs Sheffield Wednesday
 - Celtic
 - Novak Djokovic
-- Billy Connolly
 - Jimmy Calderwood
+- Billy Connolly
 - Tori Amos
 - Kyren Wilson
 - Chiefs
@@ -66,17 +68,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Prince William
 - Kansas City Chiefs
 - Detroit Lions
+- Ange Postecoglou
 - Premier League
-- TikTok
-- Arsenal
-- Newcastle vs Bournemouth
 - Man United vs Brighton
-- La Liga
-- Barcelona
 - Neeraj Chopra
+- Barcelona
 - TikTok
+- Karan Veer Mehra
 - Arsenal
 - Novak Djokovic
+- Barca
 - Kho Kho World Cup
 - Bangalore
 - Carlos Alcaraz
@@ -84,8 +85,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Champions Trophy India squad 2025
 - UFC 311
 - Champions Trophy
-- TRUMP coin
-- Bigg Boss 18 finale date
+- Trump coin
 - BCCI
 - Coldplay
 - David Lynch
