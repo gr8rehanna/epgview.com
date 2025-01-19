@@ -32,31 +32,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Commanders vs Lions
 - Texans vs Chiefs
-- Trump coin
-- Inter Miami vs Club América
+- Inter Miami  América
 - Getafe  Barcelona
 - Taylor Swift
-- Umar Nurmagomedov
-- Arsenal
-- Lakers
-- USA vs Venezuela
-- Inter Miami
+- Trump meme coin
 - Ravens vs Bills
+- Arsenal
+- Inter Miami vs Club América
+- Lakers
+- Jiri Prochazka
+- USA vs Venezuela
 - Teddy Bridgewater
 - VPN
+- Jameson Williams
 - Jahmyr Gibbs
-- Jiri Prochazka
 - People's March
 - FC Barcelona
 - Kentucky basketball
 - Tom Brady
-- Billy Connolly
 - Chiefs vs Texans
+- Billy Connolly
 - Umar Nurmagomedov
 - Prince William
+- Napoli
+- Premier League
 - Arsenal
 - Newcastle vs Bournemouth
-- Brentford vs Liverpool
 - Is TikTok getting banned
 - Misfits Boxing
 - West Ham vs Crystal Palace
@@ -69,17 +70,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Wayne Bridge
 - PL
 - Barcelona
-- Gladiators
 - Premier League
 - Barcelona
 - FC Barcelona
 - Arsenal
-- Champions Trophy India squad 2025
-- JEE Mains Admit Card 2025
+- Champions Trophy India Squad 2025
 - India squad for Champions Trophy
 - UFC 311
+- JEE Mains Admit Card 2025
 - Bigg Boss 18 Winner
-- Trump coin
+- TRUMP coin
+- Kerala Blasters
 - BCCI
 - Coldplay
 - David Lynch
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
-- 8th Pay Commission government employees
 - epgview
 - best epg
 - epg for iptv
