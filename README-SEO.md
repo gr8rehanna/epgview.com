@@ -32,10 +32,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Commanders vs Lions
 - Texans vs Chiefs
-- Trump coin
 - Inter Miami  América
 - Getafe  Barcelona
 - Taylor Swift
+- Trump meme coin
 - Arsenal
 - Inter Miami vs Club América
 - Lakers
@@ -53,19 +53,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chiefs vs Texans
 - Umar Nurmagomedov
 - Billy Connolly
+- Tori Amos
 - Napoli
 - Prince William
-- Michael McIntyre
 - Premier League
 - Arsenal
 - Newcastle vs Bournemouth
 - Is TikTok getting banned
 - Misfits Boxing
-- West Ham vs Crystal Palace
 - Trump coin
+- West Ham vs Crystal Palace
 - Sam Thompson
-- Digital driving licences
 - Wayne Bridge
+- Digital driving licences
 - Championship
 - Bob Dylan
 - Barcelona
@@ -74,15 +74,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FC Barcelona
 - Barcelona
 - Arsenal
-- Winner of Bigg Boss 18
+- JEE Main Admit Card 2025
 - Champions Trophy India squad 2025
 - UFC 311
-- Champions Trophy
 - Bigg Boss 18 Winner
-- Trump coin
+- Champions Trophy
+- TRUMP coin
 - Darshan Raval
 - BCCI
-- JEE Main Admit Card
 - Coldplay
 - David Lynch
 - Jio Coin
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Emergency
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
+- 8th Pay Commission
 - epgview
 - best epg
 - epg for iptv
