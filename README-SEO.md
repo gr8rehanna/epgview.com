@@ -30,55 +30,55 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Amik Robertson
+- NFC Championship Game
 - Commanders vs Lions
+- Texans vs Chiefs
 - Trump coin
-- Inter Miami vs Club América
 - Taylor Swift
-- Getafe  Barcelona
+- Inter Miami vs Club América
 - Premier League
-- Ravens vs Bills
 - Rams
+- Barcelona
+- Getafe  Barcelona
 - Arsenal
 - La Liga
-- Merab Dvalishvili
 - Lakers
+- Ravens vs Bills
 - Inter Miami
 - Teddy Bridgewater
+- Snoop Dogg Trump
 - People's March
-- FC Barcelona
-- Kentucky basketball
-- Marvel Snap
-- When is the Super Bowl
-- Dave Chappelle
-- Man United vs Brighton
+- Tom Brady
 - Everton vs Tottenham
-- Liverpool FC
 - Nottm Forest vs Southampton
+- Liverpool FC
+- Ipswich Town vs Man City
 - Leeds United vs Sheffield Wednesday
 - Celtic
 - Novak Djokovic
-- Ipswich Town vs Man City
 - Billy Connolly
-- Merab Dvalishvili
 - Jimmy Calderwood
 - Tori Amos
-- Chiefs
 - Kyren Wilson
+- Chiefs
 - Napoli
 - Prince William
 - Detroit Lions
 - Premier League
-- Arsenal
 - TikTok
-- Premier League
-- La Liga
-- Man United vs Brighton
-- Barcelona
 - Arsenal
+- Newcastle vs Bournemouth
+- Man United vs Brighton
+- Man United vs Brighton
+- La Liga
+- Barcelona
 - TikTok banned
+- Neeraj Chopra
+- Arsenal
 - Novak Djokovic
 - Kho Kho World Cup
-- Bigg Boss 18 Winner
+- Bigg Boss 18 winner
 - Champions Trophy India squad 2025
 - UFC 311
 - Champions Trophy
@@ -87,9 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bigg Boss 18 Finale date
 - Coldplay
 - David Lynch
-- Jio Coin
 - Auto Expo 2025
 - Emergency
+- Bharat Mobility Global Expo 2025
 - epgview
 - best epg
 - epg for iptv
