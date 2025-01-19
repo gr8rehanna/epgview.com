@@ -37,59 +37,59 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Getafe  Barcelona
 - Premier League
 - Ravens vs Bills
+- Rams
 - Arsenal
+- La Liga
+- Merab Dvalishvili
 - Lakers
 - Inter Miami
-- Rams vs Eagles
 - Teddy Bridgewater
 - People's March
-- Tom Brady
 - FC Barcelona
 - Kentucky basketball
 - Marvel Snap
-- DACA
+- When is the Super Bowl
 - Dave Chappelle
-- Purdue basketball
 - Man United vs Brighton
-- Liverpool FC
 - Everton vs Tottenham
+- Liverpool FC
 - Nottm Forest vs Southampton
 - Leeds United vs Sheffield Wednesday
 - Celtic
-- Umar Nurmagomedov
 - Novak Djokovic
+- Ipswich Town vs Man City
 - Billy Connolly
+- Merab Dvalishvili
 - Jimmy Calderwood
 - Tori Amos
 - Chiefs
-- Napoli
 - Kyren Wilson
+- Napoli
 - Prince William
 - Detroit Lions
 - Premier League
 - Arsenal
 - TikTok
-- Newcastle vs Bournemouth
 - Premier League
+- La Liga
 - Man United vs Brighton
-- FC Barcelona
+- Barcelona
 - Arsenal
-- Novak Djokovic
 - TikTok banned
+- Novak Djokovic
 - Kho Kho World Cup
+- Bigg Boss 18 Winner
 - Champions Trophy India squad 2025
-- Bigg Boss 18 winner
 - UFC 311
 - Champions Trophy
 - TRUMP coin
 - BCCI
+- Bigg Boss 18 Finale date
 - Coldplay
 - David Lynch
 - Jio Coin
 - Auto Expo 2025
 - Emergency
-- Bharat Mobility Global Expo 2025
-- Saif Ali Khan
 - epgview
 - best epg
 - epg for iptv
