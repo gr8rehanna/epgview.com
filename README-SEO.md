@@ -30,61 +30,61 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Ipswich Town vs Man City
 - Coco Gauff
+- Man United vs Brighton
+- Matthew Stafford
 - Illinois basketball
 - Tampa bay
-- NFC Championship Game
-- Amik Robertson
 - Hostage release
+- Amik Robertson
 - Dolly Parton
 - Everton vs Tottenham
 - Novak Djokovic
 - Commanders vs Lions
-- Texans vs Chiefs
+- Eagles
 - Trump coin
-- Rams vs Eagles
-- Taylor Swift
 - Ravens vs Bills
-- Inter Miami vs Club América
+- Taylor Swift
 - Premier League
+- Inter Miami vs Club América
 - Barcelona
 - Arsenal
+- Inter Miami
+- Man United vs Brighton
+- Ipswich Town vs Man City
 - Everton vs Tottenham
 - Nottm Forest vs Southampton
 - Leeds United
 - Liverpool FC
 - Real Madrid vs Las Palmas
 - Celtic
+- Trump Inauguration
 - Novak Djokovic
-- Jack Draper
 - Jimmy Calderwood
+- Jack Draper
+- Merab Dvalishvili
 - Billy Connolly
-- Kyren Wilson
 - Ange Postecoglou
+- Kyren Wilson
+- Out There ITV
 - Tori Amos
 - Chiefs
 - Napoli
-- Detroit Lions
-- Kansas City Chiefs
-- Out There ITV
-- Bigg Boss 18 winner
-- Premier League
 - Man United vs Brighton
 - Neeraj Chopra
 - TikTok
 - Barcelona
-- Arsenal
 - Novak Djokovic
 - Barca
 - Champions Trophy 2025
 - Kho Kho World Cup
+- Bangalore
 - Carlos Alcaraz
 - Bigg Boss 18 winner
 - Champions Trophy India squad 2025
 - Karan Veer Mehra
 - UFC 311
-- TRUMP coin
+- Trump coin
 - BCCI
 - Coldplay
 - David Lynch
