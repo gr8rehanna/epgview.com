@@ -31,7 +31,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Commanders vs Lions
-- Texans vs Chiefs
 - Trump coin
 - Inter Miami vs Club América
 - Getafe  Barcelona
@@ -40,24 +39,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - Inter Miami
 - Ravens vs Bills
-- USA vs Venezuela
+- Rams vs Eagles
 - Teddy Bridgewater
-- Jahmyr Gibbs
 - People's March
 - FC Barcelona
 - Tom Brady
 - Kentucky basketball
-- Rams vs Eagles
-- DACA
 - Marvel Snap
+- DACA
+- Purdue basketball
+- Troy Aikman
+- Dave Chappelle
+- Man United vs Brighton
 - Liverpool FC
+- Everton vs Tottenham
 - Chiefs vs Texans
 - Umar Nurmagomedov
 - Billy Connolly
 - Tori Amos
+- Novak Djokovic
 - Napoli
 - Kansas City Chiefs
 - Prince William
+- Detroit Lions
+- Jimmy Calderwood
 - Premier League
 - Arsenal
 - TikTok
@@ -65,16 +70,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Misfits Boxing
 - Trump coin
 - West Ham vs Crystal Palace
-- Sam Thompson
-- Marti Pellow
-- Wayne Bridge
-- Digital driving licences
-- Championship
 - Premier League
-- FC Barcelona
 - Barcelona
+- FC Barcelona
 - Arsenal
+- Novak Djokovic
 - TikTok banned
+- Kho Kho World Cup
 - Champions Trophy India squad 2025
 - Bigg Boss 18 winner
 - UFC 311
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Emergency
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
-- 8th Pay Commission
-- Saif Ali Khan attacked
 - epgview
 - best epg
 - epg for iptv
