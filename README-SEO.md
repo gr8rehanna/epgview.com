@@ -30,52 +30,53 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Lions
 - TRUMP coin
 - Premier League
-- Barcelona
-- Lions
+- Getafe  Barcelona
 - Arsenal
 - Lakers
-- Kentucky basketball
-- People's March
 - Travis Kelce
+- People's March
+- USA vs Venezuela
+- FC Barcelona
+- Kentucky basketball
 - DACA
+- Purdue basketball
 - Newcastle vs Bournemouth
 - Timberwolves
-- Nelly
 - Taylor Fritz
-- Purdue basketball
+- Nelly
+- Roseanne Barr
 - Texans vs Chiefs
 - UFC
-- TikTok banned Supreme Court
-- 28th Amendment
-- Dodgers
 - Premier League
 - Arsenal
 - Newcastle vs Bournemouth
+- Getafe vs Barcelona
+- Sam Thompson
 - Why is TikTok getting banned
+- Misfits Boxing
 - West Ham vs Crystal Palace
 - Trump coin
-- Getafe vs Barcelona
 - Championship
 - Leicester City vs Fulham
-- Misfits Boxing
-- Bob Dylan
 - Digital driving licences
-- Cardiff City
+- Bob Dylan
 - PL
-- La Liga
 - Sheffield United
 - Gladiators
 - Portsmouth vs Middlesbrough
+- Cardiff City
+- Wayne Bridge
 - Scottish Cup
-- Tony Mowbray
 - Barca
 - Champions Trophy India squad 2025
 - JEE Mains
 - Arsenal vs Aston Villa
 - UFC 311
 - Kerala Blasters
+- BCCI
 - Karnataka vs Vidarbha
 - Darshan Raval
 - Champions Trophy squad
@@ -83,7 +84,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Coldplay
 - David Lynch
 - PAK vs WI
-- Jio coin
 - Auto Expo 2025
 - Azaad
 - Emergency
