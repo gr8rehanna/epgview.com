@@ -32,27 +32,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Commanders vs Lions
 - Texans vs Chiefs
+- Trump coin
 - Inter Miami  América
 - Getafe  Barcelona
 - Taylor Swift
-- Trump meme coin
+- Umar Nurmagomedov
 - Ravens vs Bills
 - Arsenal
 - Inter Miami vs Club América
 - Lakers
-- Jiri Prochazka
 - USA vs Venezuela
+- Rams vs Eagles
 - Teddy Bridgewater
-- VPN
 - Jameson Williams
 - Jahmyr Gibbs
 - People's March
 - FC Barcelona
 - Kentucky basketball
 - Tom Brady
+- Umar Nurmagomedov
 - Chiefs vs Texans
 - Billy Connolly
-- Umar Nurmagomedov
 - Prince William
 - Napoli
 - Premier League
@@ -66,30 +66,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Digital driving licences
 - Leicester City vs Fulham
 - Championship
-- Bob Dylan
 - Wayne Bridge
+- Bob Dylan
+- Barcelona
 - PL
-- Barcelona
 - Premier League
-- Barcelona
 - FC Barcelona
+- Barcelona
 - Arsenal
-- Champions Trophy India Squad 2025
+- Champions Trophy India squad 2025
 - India squad for Champions Trophy
-- UFC 311
 - JEE Mains Admit Card 2025
 - Bigg Boss 18 Winner
 - TRUMP coin
-- Kerala Blasters
 - BCCI
+- UFC 311
 - Coldplay
 - David Lynch
-- Jio Coin
 - Auto Expo 2025
+- Emergency
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
 - Saif Ali Khan attacked
+- 8th Pay Commission government employees
 - epgview
 - best epg
 - epg for iptv
