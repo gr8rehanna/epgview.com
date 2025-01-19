@@ -33,45 +33,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Commanders vs Lions
 - Trump coin
 - Inter Miami vs Club América
-- Getafe  Barcelona
 - Taylor Swift
+- Getafe  Barcelona
+- Premier League
+- Ravens vs Bills
 - Arsenal
 - Lakers
 - Inter Miami
-- Ravens vs Bills
 - Rams vs Eagles
 - Teddy Bridgewater
 - People's March
-- FC Barcelona
 - Tom Brady
+- FC Barcelona
 - Kentucky basketball
 - Marvel Snap
 - DACA
-- Purdue basketball
-- Troy Aikman
 - Dave Chappelle
+- Purdue basketball
 - Man United vs Brighton
 - Liverpool FC
 - Everton vs Tottenham
-- Chiefs vs Texans
+- Nottm Forest vs Southampton
+- Leeds United vs Sheffield Wednesday
+- Celtic
 - Umar Nurmagomedov
-- Billy Connolly
-- Tori Amos
 - Novak Djokovic
+- Billy Connolly
+- Jimmy Calderwood
+- Tori Amos
+- Chiefs
 - Napoli
-- Kansas City Chiefs
+- Kyren Wilson
 - Prince William
 - Detroit Lions
-- Jimmy Calderwood
 - Premier League
 - Arsenal
 - TikTok
 - Newcastle vs Bournemouth
-- Misfits Boxing
-- Trump coin
-- West Ham vs Crystal Palace
 - Premier League
-- Barcelona
+- Man United vs Brighton
 - FC Barcelona
 - Arsenal
 - Novak Djokovic
