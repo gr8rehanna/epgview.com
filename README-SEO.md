@@ -32,55 +32,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Commanders vs Lions
 - Texans vs Chiefs
-- Inter Miami  América
+- Trump coin
+- Inter Miami vs Club América
 - Getafe  Barcelona
 - Taylor Swift
-- Trump meme coin
 - Arsenal
-- Inter Miami vs Club América
 - Lakers
-- USA vs Venezuela
+- Inter Miami
 - Ravens vs Bills
+- USA vs Venezuela
 - Teddy Bridgewater
 - Jahmyr Gibbs
 - People's March
 - FC Barcelona
-- Kentucky basketball
 - Tom Brady
+- Kentucky basketball
 - Rams vs Eagles
 - DACA
 - Marvel Snap
+- Liverpool FC
 - Chiefs vs Texans
 - Umar Nurmagomedov
 - Billy Connolly
 - Tori Amos
 - Napoli
+- Kansas City Chiefs
 - Prince William
 - Premier League
 - Arsenal
+- TikTok
 - Newcastle vs Bournemouth
-- Is TikTok getting banned
 - Misfits Boxing
 - Trump coin
 - West Ham vs Crystal Palace
 - Sam Thompson
+- Marti Pellow
 - Wayne Bridge
 - Digital driving licences
 - Championship
-- Bob Dylan
-- Barcelona
-- PL
 - Premier League
 - FC Barcelona
 - Barcelona
 - Arsenal
-- JEE Main Admit Card 2025
+- TikTok banned
 - Champions Trophy India squad 2025
+- Bigg Boss 18 winner
 - UFC 311
-- Bigg Boss 18 Winner
 - Champions Trophy
 - TRUMP coin
-- Darshan Raval
 - BCCI
 - Coldplay
 - David Lynch
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
+- Saif Ali Khan attacked
 - epgview
 - best epg
 - epg for iptv
