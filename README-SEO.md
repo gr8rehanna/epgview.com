@@ -30,30 +30,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Texans vs Chiefs
 - Lions
 - Trump coin
-- Premier League
 - Getafe  Barcelona
 - Taylor Swift
-- Lakers
+- Arsenal
 - Ravens vs Bills
+- Lakers
 - USA vs Venezuela
+- Teddy Bridgewater
 - People's March
 - FC Barcelona
 - Kentucky basketball
-- Brentford vs Liverpool
+- FOX Sports
 - David Montgomery
-- DACA
-- Purdue basketball
 - Jahmyr Gibbs
 - Inter Miami
-- Troy Aikman
-- Newcastle vs Bournemouth
+- DACA
+- Dan Campbell
+- Purdue basketball
+- When is the Super Bowl
 - Billy Connolly
 - Chiefs vs Texans
 - Prince William
-- Premier League
+- Arsenal
 - Newcastle vs Bournemouth
 - Brentford vs Liverpool
 - Is TikTok getting banned
@@ -71,19 +71,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Gladiators
 - Sheffield United
 - FC Barcelona
-- Barca
 - Champions Trophy India squad 2025
-- JEE Mains
+- JEE Mains Admit Card 2025
 - Arsenal vs Aston Villa
 - UFC 311
 - India squad for Champions Trophy
 - Kerala Blasters
+- Karnataka vs Vidarbha
 - BCCI
 - Darshan Raval
 - Trump coin
-- Admit card for JEE Main 2025
 - Coldplay
 - David Lynch
+- Jio coin
 - Auto Expo 2025
 - Emergency
 - Bharat Mobility Global Expo 2025
