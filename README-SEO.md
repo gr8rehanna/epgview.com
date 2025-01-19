@@ -36,13 +36,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Inter Miami  América
 - Getafe  Barcelona
 - Taylor Swift
-- Umar Nurmagomedov
 - Ravens vs Bills
 - Arsenal
 - Inter Miami vs Club América
 - Lakers
+- Umar Nurmagomedov
 - USA vs Venezuela
-- Rams vs Eagles
 - Teddy Bridgewater
 - Jameson Williams
 - Jahmyr Gibbs
@@ -50,11 +49,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FC Barcelona
 - Kentucky basketball
 - Tom Brady
-- Umar Nurmagomedov
+- Rams vs Eagles
 - Chiefs vs Texans
+- Umar Nurmagomedov
 - Billy Connolly
-- Prince William
 - Napoli
+- Prince William
 - Premier League
 - Arsenal
 - Newcastle vs Bournemouth
@@ -74,22 +74,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FC Barcelona
 - Barcelona
 - Arsenal
+- Champions Trophy 2025
+- Winner of Bigg Boss 18
 - Champions Trophy India squad 2025
-- India squad for Champions Trophy
+- UFC 311
 - JEE Mains Admit Card 2025
 - Bigg Boss 18 Winner
 - TRUMP coin
 - BCCI
-- UFC 311
 - Coldplay
 - David Lynch
+- Jio Coin
 - Auto Expo 2025
 - Emergency
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
 - 8th Pay Commission
-- Saif Ali Khan attacked
-- 8th Pay Commission government employees
 - epgview
 - best epg
 - epg for iptv
