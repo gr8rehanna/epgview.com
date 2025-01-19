@@ -36,20 +36,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Taylor Swift
 - Arsenal
 - Ravens vs Bills
+- Inter Miami vs Club América
 - Lakers
 - USA vs Venezuela
 - Teddy Bridgewater
-- People's March
-- FC Barcelona
-- Kentucky basketball
 - FOX Sports
-- David Montgomery
+- People's March
 - Jahmyr Gibbs
+- Rams vs Eagles
+- FC Barcelona
 - Inter Miami
-- DACA
+- Kentucky basketball
+- David Montgomery
 - Dan Campbell
-- Purdue basketball
-- When is the Super Bowl
+- DACA
 - Billy Connolly
 - Chiefs vs Texans
 - Prince William
@@ -70,17 +70,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - PL
 - Gladiators
 - Sheffield United
+- Premier League
+- La Liga
 - FC Barcelona
 - Champions Trophy India squad 2025
-- JEE Mains Admit Card 2025
 - Arsenal vs Aston Villa
 - UFC 311
 - India squad for Champions Trophy
-- Kerala Blasters
-- Karnataka vs Vidarbha
-- BCCI
+- JEE Mains Admit Card
+- JEE Mains Admit Card 2025
 - Darshan Raval
+- BCCI
 - Trump coin
+- Priya Saroj
 - Coldplay
 - David Lynch
 - Jio coin
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Emergency
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
-- 8th Pay Commission
-- Saif Ali Khan attacked
 - epgview
 - best epg
 - epg for iptv
