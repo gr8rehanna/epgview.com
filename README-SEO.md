@@ -31,8 +31,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Ipswich Town vs Man City
+- Eagles score
 - Coco Gauff
 - Matthew Stafford
+- Jared Verse
 - Tampa bay
 - Illinois basketball
 - Hostage release
@@ -40,16 +42,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dolly Parton
 - Novak Djokovic
 - Everton vs Tottenham
-- Bluff
 - Eddie George
+- Trump rally today
+- NBC
 - Commanders vs Lions
 - Texans vs Chiefs
 - Eagles
-- Winter Storm Warning
 - Trump coin
-- Taylor Swift
-- Inter Miami vs Club América
-- Premier League
+- Ravens vs Bills
+- UFC
 - Man United vs Brighton
 - Ipswich Town vs Man City
 - Everton vs Tottenham
@@ -57,21 +58,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Leeds United
 - Liverpool FC
 - Real Madrid vs Las Palmas
-- Trump Inauguration
 - Out There ITV
+- West Ham
 - Celtic
+- Trump Inauguration date
 - Novak Djokovic
 - Jimmy Calderwood
 - Billy Connolly
 - Jack Draper
-- Kyren Wilson
+- Merab Dvalishvili
 - Ange Postecoglou
 - Santander UK exit
-- Tori Amos
-- Chiefs
-- Bigg Boss 18 winner
+- Steve Redgrave
 - Aamir khan
 - Neeraj Chopra
+- Ipswich Town vs Man City
 - TikTok
 - Barcelona
 - LaLiga
@@ -79,12 +80,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barca
 - Champions Trophy 2025
 - Kho Kho World Cup
-- Bangalore
 - Carlos Alcaraz
 - Bigg Boss 18 winner
 - Champions Trophy India squad 2025
-- Karan Veer Mehra
-- TRUMP coin
+- Bigg Boss winner 2025
+- Trump coin
 - UFC 311
 - Coldplay
 - David Lynch
