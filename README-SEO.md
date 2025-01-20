@@ -30,18 +30,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Rams
 - Dr. Martin Luther King Jr. Day
 - RedNote
-- Ipswich Town vs Man City
-- Wordle hint
 - Martin Luther King day
+- Ipswich Town vs Man City
 - Matthew Stafford
 - Jared Verse
-- Trump rally today
-- Coco Gauff
 - NFC Championship Game 2025
+- Coco Gauff
 - Novak Djokovic
-- MLK Day
 - Tampa Bay
 - Man United vs Brighton
 - Hostage release
@@ -50,46 +48,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Vivek Ramaswamy
 - Illinois basketball
 - Quinyon Mitchell
-- Bills vs Ravens
+- Amik Robertson
+- Eddie George
 - Blue Monday
-- Man United vs Brighton
+- Bills vs Ravens
 - Ipswich Town vs Man City
 - Everton vs Tottenham
 - Leeds United
-- Nottm Forest vs Southampton
 - Liverpool FC
 - Real Madrid vs Las Palmas
+- Trump inauguration
 - Out There ITV
+- Nottingham Forest
 - West Ham
 - Celtic
-- Trump inauguration
 - Novak Djokovic
 - Jimmy Calderwood
 - Ange Postecoglou
 - Jack Draper
-- Santander UK exit
 - Eagles vs Rams
+- Santander UK exit
+- Steve Redgrave
 - Bigg Boss 18 winner
-- Idea share price
 - Stallion India Fluorochemicals IPO GMP
+- Idea share price
+- Man City
 - Mahakumbh Fire
-- Trump oath ceremony date
+- Kalyan Jewellers share price
 - Himani Mor Tennis
-- Bb 18 winner
+- Trump oath ceremony date
 - Neeraj Chopra
+- BB 18 winner
 - TikTok
 - Barcelona
 - Novak Djokovic
 - Kho Kho World Cup
 - Barca
 - Champions Trophy 2025
+- FMGE
 - Carlos Alcaraz
+- Coldplay concert Mumbai
 - Bigg Boss 18 winner
 - Champions Trophy India squad 2025
-- Trump coin
-- UFC 311
-- BCCI
-- Coldplay
 - epgview
 - best epg
 - epg for iptv
