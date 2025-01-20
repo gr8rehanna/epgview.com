@@ -32,44 +32,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Ohio State vs Notre Dame
 - Biden pardons
-- Usha Vance
 - Carrie Underwood
+- Usha Vance
 - Elon Musk
-- Gulf of Mexico
+- Gulf of America
 - Amy Klobuchar
-- Michelle Obama
+- Jeff Bezos wife
 - Leonard Peltier
-- Jeff Bezos
-- Cecile Richards
-- Christopher Macchio
 - Ben Johnson
-- Lorenzo Sewell
-- Panama Canal
-- Are banks open on MLK Day
 - Trump executive orders
+- Cecile Richards
+- Michelle Obama
+- Christopher Macchio
+- Panama Canal
+- Chelsea
+- Are banks open on MLK Day
 - Bill clinton
 - Kamala Harris
-- Chelsea
+- Elon Musk salute
 - Chelsea vs Wolves
 - Blue Monday
 - Mount McKinley
-- Blue Monday 2025
+- Elon Musk
 - Shaun Murphy
 - Bitcoin price
-- Elon Musk
 - Joe Biden
 - Usha Vance
 - Barron Trump
 - Carrie Underwood
 - Panama Canal
 - Patrick Dorgu
-- Martin Luther King Day
+- Jeff Bezos
 - Bills vs Ravens
 - Michelle Obama
-- Jeff Bezos
+- Chelsea FC
 - Chappell Roan
 - Lewis Hamilton
-- Chelsea FC
+- Martin Luther King Day
+- Martin Luther King
 - Chelsea vs Wolves
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
@@ -80,16 +80,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kalyan Jewellers share price
 - Martin Luther King
 - JD Vance
-- Bigg Boss 18
-- Neeraj Chopra marriage
+- CMAT Admit Card 2025
 - Karan Veer Mehra
-- Neeraj Chopra
+- Neeraj Chopra marriage
+- Winner of Bigg Boss 18
 - Trump
-- Donald Trump
+- Neeraj Chopra
 - Barcelona
+- TikTok
 - Novak Djokovic
 - Kho Kho World Cup
-- Barca
 - epgview
 - best epg
 - epg for iptv
