@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Saquon Barkley
+- Dr. Martin Luther King Jr. Day
 - Ipswich Town vs Man City
-- Trump rally today
+- Wordle hint
 - Martin Luther King day
 - MLK Day
 - Matthew Stafford
 - Jared Verse
+- Trump rally today
 - Coco Gauff
 - NFC Championship Game 2025
 - Novak Djokovic
 - Tampa Bay
 - Man United vs Brighton
-- Zay Flowers
 - Hostage release
+- Zay Flowers
 - Marcus Garvey
-- Dolly Parton
-- Bluff
+- Vivek Ramaswamy
+- Illinois basketball
 - Quinyon Mitchell
-- Amik Robertson
-- Eddie George
 - Man United vs Brighton
 - Ipswich Town vs Man City
 - Everton vs Tottenham
@@ -60,36 +60,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Out There ITV
 - West Ham
 - Celtic
-- Islam Makhachev
-- Novak Djokovic
 - Trump inauguration
+- Novak Djokovic
 - Jimmy Calderwood
 - Jack Draper
 - Ange Postecoglou
 - Santander UK exit
-- Steve Redgrave
 - Eagles vs Rams
 - Bigg Boss 18 winner
+- Tori Amos
+- Chiefs
 - Mahakumbh Fire
+- Idea share price
+- Himani Mor tennis
 - Neeraj Chopra
 - TikTok
 - Barcelona
+- LaLiga
 - Novak Djokovic
+- Bigg Boss 18 Winner name
+- Kho Kho World Cup
 - Barca
 - Champions Trophy 2025
-- Kho Kho World Cup
-- Bigg Boss 8 winner Tamil
 - Carlos Alcaraz
 - Bigg Boss 18 winner
-- Champions Trophy India Squad 2025
-- Bigg Boss 18 voting
+- Champions Trophy India squad 2025
 - Trump coin
 - UFC 311
 - BCCI
 - Coldplay
 - David Lynch
-- Auto Expo 2025
-- Emergency
 - epgview
 - best epg
 - epg for iptv
