@@ -32,58 +32,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Biden pardons
 - Usha Vance
-- Ohio State vs Notre Dame
 - Carrie Underwood
+- Ohio State vs Notre Dame
 - Elon Musk
 - Michelle Obama
+- Amy Klobuchar
+- Christopher Macchio
 - Cecile Richards
+- Trump executive orders
+- Leonard Peltier
 - Jeff Bezos
+- Día de Martin Luther King Jr
 - Are banks open on MLK Day
 - Bill clinton
-- Panama Canal
-- Leonard Peltier
-- Kamala Harris
 - Gulf of Mexico
-- Christopher Macchio
-- George W. Bush
-- Bills vs Chiefs
-- Trump executive orders
-- DOGE
-- Dr. Martin Luther King Jr Day
+- Panama Canal
+- Kamala Harris
+- Jill Biden
+- CBS
 - Blue Monday
 - Bitcoin price
-- Shaun Murphy
+- Elon Musk
 - Blue Monday 2025
 - Mount McKinley
-- Carrie Underwood
+- Shaun Murphy
 - Barron Trump
-- Joe Biden
-- Panama Canal
+- Usha Vance
+- Carrie Underwood
 - Patrick Dorgu
+- Panama Canal
+- Joe Biden
+- Martin Luther King Day
 - Bills vs Ravens
 - Michelle Obama
-- Jeff Bezos
 - Chappell Roan
-- Martin Luther King day
 - Noel Fielding
 - WHSmith store closures
 - Lewis Hamilton
-- TikTok
-- Donald Trump
+- Scottish Cup draw
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
 - Mahakumbh Fire
 - Melania coin
 - Zomato Q3 Results
+- Man City
 - Kalyan Jewellers share price
-- Yogesh Mahajan
+- Greeshma case
 - Martin Luther King
-- CMAT Admit Card 2025
 - JD Vance
 - Winner of Bigg Boss 18
-- Neeraj Chopra
 - Karan Veer Mehra
-- Himani Mor tennis
+- Neeraj Chopra
+- Neeraj Chopra marriage
 - Trump
 - Donald Trump
 - Barcelona
