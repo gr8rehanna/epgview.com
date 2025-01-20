@@ -34,62 +34,62 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Josh Allen
 - RedNote
 - Extreme cold warning
-- Ipswich Town vs Man City
-- Village People
+- Man City
 - Matthew Stafford
 - Jared Verse
+- Trump rally today
 - NFC Championship Game 2025
 - Coco Gauff
 - Novak Djokovic
+- Tampa Bay
 - Man United vs Brighton
 - Marcus Garvey
+- JD Vance
+- Vivek Ramaswamy
 - Hostage release
 - Zay Flowers
-- Vivek Ramaswamy
 - Bluff
-- Illinois basketball
 - Quinyon Mitchell
-- Eddie George
 - Blue Monday
-- Trump
+- Blue Monday 2025
+- Bitcoin
 - Bills vs Ravens
 - TikTok
 - Man United vs Brighton
 - Ipswich Town vs Man City
 - Everton vs Tottenham
+- Trump
 - Leeds United
-- Trump inauguration
 - Liverpool FC
-- Real Madrid vs Las Palmas
 - Out There ITV
 - West Ham
 - Celtic
 - Novak Djokovic
-- Jimmy Calderwood
 - Ange Postecoglou
-- Chiefs
+- Jimmy Calderwood
 - Jack Draper
 - Eagles vs Rams
+- Santander UK exit
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
 - Mahakumbh Fire
-- Man City
 - Trump oath ceremony date
 - Kalyan Jewellers share price
 - Himani Mor tennis
+- Greeshma case
 - Neeraj Chopra
+- Karan Veer Mehra
 - TikTok
-- Big Boss winner
 - Infosys Salary Hikes
+- FMGE
 - Barcelona
 - Novak Djokovic
 - FC Barcelona
 - Kho Kho World Cup
-- FMGE
 - Barca
-- Carlos Alcaraz
 - Bigg Boss 18 winner
 - Champions Trophy India squad 2025
+- Trump coin
 - epgview
 - best epg
 - epg for iptv
