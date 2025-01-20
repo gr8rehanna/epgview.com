@@ -30,57 +30,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Biden pardons
 - Dr Martin Luther King Jr. Day
 - Josh Allen
-- RedNote
 - Extreme cold warning
 - Man City
 - Matthew Stafford
 - Jared Verse
+- Eagles vs Commanders
 - Trump rally today
-- NFC Championship Game 2025
 - Coco Gauff
 - Novak Djokovic
-- Tampa Bay
 - Man United vs Brighton
-- Marcus Garvey
-- JD Vance
 - Vivek Ramaswamy
+- Marcus Garvey
 - Hostage release
 - Zay Flowers
-- Bluff
 - Quinyon Mitchell
+- Illinois basketball
+- Eddie George
+- AFC Championship game 2025
 - Blue Monday
 - Blue Monday 2025
-- Bitcoin
 - Bills vs Ravens
+- Patrick Dorgu
 - TikTok
 - Man United vs Brighton
 - Ipswich Town vs Man City
-- Everton vs Tottenham
 - Trump
+- Everton vs Tottenham
 - Leeds United
 - Liverpool FC
+- Trump coin price
 - Out There ITV
+- Nottingham Forest
 - West Ham
 - Celtic
 - Novak Djokovic
 - Ange Postecoglou
 - Jimmy Calderwood
 - Jack Draper
-- Eagles vs Rams
-- Santander UK exit
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
 - Mahakumbh Fire
-- Trump oath ceremony date
 - Kalyan Jewellers share price
 - Himani Mor tennis
 - Greeshma case
+- Yogesh Mahajan
+- Zomato share
 - Neeraj Chopra
 - Karan Veer Mehra
 - TikTok
-- Infosys Salary Hikes
+- Donald Trump
 - FMGE
 - Barcelona
 - Novak Djokovic
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barca
 - Bigg Boss 18 winner
 - Champions Trophy India squad 2025
-- Trump coin
 - epgview
 - best epg
 - epg for iptv
