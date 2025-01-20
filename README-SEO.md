@@ -32,51 +32,55 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Biden pardons
 - Usha Vance
+- Ohio State vs Notre Dame
+- Carrie Underwood
 - Elon Musk
-- Jeff Bezos
-- National championship game
-- Are banks open on MLK Day
-- Cecile Richards
 - Michelle Obama
-- Día de Martin Luther King Jr
+- Cecile Richards
+- Jeff Bezos
+- Are banks open on MLK Day
 - Bill clinton
+- Panama Canal
+- Leonard Peltier
+- Kamala Harris
+- Gulf of Mexico
 - Christopher Macchio
-- Barack Obama
-- Dr. Martin Luther King Jr. Day
-- Josh Allen
-- Extreme Cold Warning
-- Barron Trump
-- Wordle hint
-- Philadelphia Weather
-- Vivek Ramaswamy
-- Matthew Stafford
+- George W. Bush
+- Bills vs Chiefs
+- Trump executive orders
+- DOGE
+- Dr. Martin Luther King Jr Day
 - Blue Monday
+- Bitcoin price
+- Shaun Murphy
 - Blue Monday 2025
-- Bitcoin
+- Mount McKinley
+- Carrie Underwood
 - Barron Trump
-- Bills vs Ravens
-- Patrick Dorgu
 - Joe Biden
-- WHSmith store closures
+- Panama Canal
+- Patrick Dorgu
+- Bills vs Ravens
+- Michelle Obama
+- Jeff Bezos
 - Chappell Roan
+- Martin Luther King day
 - Noel Fielding
+- WHSmith store closures
+- Lewis Hamilton
 - TikTok
-- Man United vs Brighton
-- Ipswich Town vs Man City
 - Donald Trump
-- Everton vs Tottenham
-- Trump coin price
-- Leeds United
-- Leeds United vs Sheffield Wednesday
-- Out There ITV
-- Nottingham Forest
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
 - Mahakumbh Fire
-- Zomato share
-- Kalyan Jewellers share price
 - Melania coin
+- Zomato Q3 Results
+- Kalyan Jewellers share price
+- Yogesh Mahajan
 - Martin Luther King
+- CMAT Admit Card 2025
+- JD Vance
+- Winner of Bigg Boss 18
 - Neeraj Chopra
 - Karan Veer Mehra
 - Himani Mor tennis
@@ -85,11 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Novak Djokovic
 - Kho Kho World Cup
-- FMGE
 - Barca
-- Bigg Boss 18 Winner
-- Champions Trophy India squad 2025
-- Trump coin
 - epgview
 - best epg
 - epg for iptv
