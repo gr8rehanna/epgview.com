@@ -36,23 +36,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Matthew Stafford
 - Jared Verse
 - Coco Gauff
-- Novak Djokovic
+- Trump rally today
 - NFC Championship Game 2025
-- Man United vs Brighton
+- Novak Djokovic
 - Tampa bay
+- Man United vs Brighton
 - MLK Day
 - Zay Flowers
 - Hostage release
-- Illinois basketball
 - Dolly Parton
-- Trump rally today
 - Marcus Garvey
-- Bluff
 - Amik Robertson
 - Quinyon Mitchell
-- UFC
+- Eddie George
+- AFC Championship Game 2025
 - Man United vs Brighton
 - Ipswich Town vs Man City
+- UFC
 - Everton vs Tottenham
 - Nottm Forest vs Southampton
 - Leeds United
@@ -63,33 +63,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - West Ham
 - Celtic
 - Novak Djokovic
-- Umar Nurmagomedov
 - Jimmy Calderwood
-- Billy Connolly
 - Jack Draper
 - Ange Postecoglou
 - Santander UK exit
 - Steve Redgrave
+- Eagles vs Rams
+- Bigg Boss 18 winner
 - Mahakumbh Fire
 - Neeraj Chopra
 - TikTok
 - Barcelona
-- LaLiga
 - Novak Djokovic
 - Barca
+- Champions Trophy 2025
 - Kho Kho World Cup
 - Bangalore
 - Carlos Alcaraz
 - Bigg Boss 18 Winner
 - Champions Trophy India squad 2025
-- Champions Trophy
+- Karan Veer Mehra
 - Trump coin
-- Bigg Boss 18 Finale date
 - UFC 311
 - Coldplay
 - David Lynch
 - Auto Expo 2025
 - Emergency
+- Bharat Mobility Global Expo 2025
 - epgview
 - best epg
 - epg for iptv
