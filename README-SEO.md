@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Ohio State vs Notre Dame
 - Biden pardons
-- Notre Dame football
 - Usha Vance
 - Carrie Underwood
-- Michelle Obama
 - Elon Musk
+- Gulf of Mexico
 - Amy Klobuchar
+- Michelle Obama
 - Leonard Peltier
+- Jeff Bezos
 - Cecile Richards
 - Christopher Macchio
-- Trump executive orders
-- Jeff Bezos
-- Día de Martin Luther King Jr
-- Franklin Graham
-- Are banks open on MLK Day
-- Gulf of Mexico
+- Ben Johnson
+- Lorenzo Sewell
 - Panama Canal
+- Are banks open on MLK Day
+- Trump executive orders
 - Bill clinton
 - Kamala Harris
-- Jill Biden
-- Blue Monday
+- Chelsea
 - Chelsea vs Wolves
-- Bitcoin price
+- Blue Monday
 - Mount McKinley
 - Blue Monday 2025
 - Shaun Murphy
-- Joe Biden
+- Bitcoin price
 - Elon Musk
+- Joe Biden
 - Usha Vance
 - Barron Trump
 - Carrie Underwood
-- Patrick Dorgu
 - Panama Canal
+- Patrick Dorgu
 - Martin Luther King Day
 - Bills vs Ravens
-- Jeff Bezos
 - Michelle Obama
+- Jeff Bezos
 - Chappell Roan
-- Noel Fielding
 - Lewis Hamilton
+- Chelsea FC
+- Chelsea vs Wolves
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
-- Mahakumbh Fire
 - Zomato Q3 Results
+- Mahakumbh Fire
 - Melania coin
 - Man City
 - Kalyan Jewellers share price
 - Martin Luther King
 - JD Vance
 - Bigg Boss 18
-- Neeraj Chopra
+- Neeraj Chopra marriage
 - Karan Veer Mehra
-- Himani Mor tennis
+- Neeraj Chopra
 - Trump
 - Donald Trump
 - Barcelona
 - Novak Djokovic
 - Kho Kho World Cup
 - Barca
-- UEFA Champions League
 - epgview
 - best epg
 - epg for iptv
