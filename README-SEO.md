@@ -32,38 +32,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Saquon Barkley
 - Ipswich Town vs Man City
+- Matthew Stafford
+- Village People
 - Coco Gauff
 - Novak Djokovic
+- Man United vs Brighton
 - Tampa bay
 - Hostage release
-- Amik Robertson
+- Zay Flowers
 - Dolly Parton
-- Trump rally today
-- Village People
+- Amik Robertson
 - Bluff
-- Eddie George
 - Marcus Garvey
-- NBC
 - Quinyon Mitchell
+- Eddie George
 - NFC Championship Game 2025
 - Commanders vs Lions
 - Rams vs Eagles
 - Texans vs Chiefs
-- Ravens vs Bills
 - UFC
 - Man United vs Brighton
 - Ipswich Town vs Man City
 - Everton vs Tottenham
-- Nottm Forest vs Southampton
 - Leeds United
+- Nottm Forest vs Southampton
 - Liverpool FC
 - Real Madrid vs Las Palmas
 - Out There ITV
-- Umar Nurmagomedov
+- Trump inauguration
 - West Ham
 - Celtic
-- Trump Inauguration date
 - Novak Djokovic
+- Umar Nurmagomedov
 - Jimmy Calderwood
 - Billy Connolly
 - Jack Draper
@@ -75,12 +75,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Novak Djokovic
 - Barca
-- Champions Trophy 2025
 - Kho Kho World Cup
+- Bangalore
 - Carlos Alcaraz
 - Bigg Boss 18 winner
 - Champions Trophy India squad 2025
 - Bigg Boss winner 2025
+- Champions Trophy
 - Trump coin
 - UFC 311
 - Coldplay
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Emergency
 - Bharat Mobility Global Expo 2025
 - Saif Ali Khan
-- 8th Pay Commission
 - epgview
 - best epg
 - epg for iptv
