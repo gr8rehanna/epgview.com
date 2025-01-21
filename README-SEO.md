@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ohio State vs Notre Dame
 - Biden pardons
 - Elon Musk
-- Carrie Underwood
+- Trump executive orders
 - Usha Vance
-- Ben Johnson
-- Trump executive orders 2025
+- Carrie Underwood
 - Gulf of Mexico
+- Ben Johnson
+- Jeff Bezos
 - Leonard Peltier
 - Michelle Obama
-- Birthright citizenship
 - Melania Trump inauguration outfit
+- Birthright citizenship
 - Amy Klobuchar
 - Cecile Richards
-- Mark Zuckerberg
 - Día de Martin Luther King Jr
-- Jeff Bezos wife
 - Paris climate treaty
 - Donald Trump children
 - Chelsea vs Wolves
+- Christopher Macchio
 - Champions League
 - Popeye
 - Chelsea vs Wolves
@@ -58,21 +58,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - JD Vance
 - Melania coin
 - Southport
+- Bitcoin price
 - Mount McKinley
 - Barron Trump
-- Shaun Murphy
 - Joe Biden
-- Bitcoin price
+- Shaun Murphy
 - Panama Canal
 - Carrie Underwood
 - Patrick Dorgu
+- Jeff Bezos
 - Michelle Obama
 - Scottish Cup draw
 - Bill Clinton
-- Jeff Bezos
 - Chelsea vs Wolves
 - Panama Canal
 - Emergency box office collection day
+- Usha Vance
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
 - Zomato Q3 Results
@@ -82,14 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Martin Luther King
 - JD Vance
 - CMAT admit card 2025
+- Vodafone Idea Shares
+- Djokovic
 - Winner of Bigg Boss 18
 - Neeraj Chopra
 - Trump
 - Donald Trump
 - Barcelona
-- Novak Djokovic
-- Kho Kho World Cup
-- Barca
 - epgview
 - best epg
 - epg for iptv
