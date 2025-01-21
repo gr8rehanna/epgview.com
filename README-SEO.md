@@ -30,46 +30,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Coast Guard Commandant terminated
+- Fetterman
 - UEFA Champions League
-- Carlos Alcaraz
 - Ohio State vs Notre Dame
 - Elon Musk
 - Biden pardons
-- Carrie Underwood
 - Trump executive orders 2025
+- Carrie Underwood
 - Trump executive orders
-- Usha Vance
-- How tall is Barron Trump
 - Gulf of Mexico
-- Melania Trump Inauguration outfit
-- Lauren Sanchez inauguration
+- Ben Johnson
+- Melania Trump inauguration outfit
 - Birthright citizenship
-- NCAA football
 - Paris climate treaty
 - Michelle Obama
 - Leonard Peltier
 - Ivanka Trump inauguration
+- NCAA football
 - Cecile Richards
+- Amy Klobuchar
 - Pauline Quirke
+- Djokovic
+- Wayne Bridge
+- Champions League
 - CNN
-- KSI
 - Met Office weather warnings
+- EU Settlement Scheme changes
 - Trump executive orders
 - Russia Trump
-- EU Settlement Scheme changes
-- Chelsea vs Wolves
+- Leonard Peltier
+- Tesla stock
 - Elon Musk
+- Chelsea vs Wolves
 - Blue Monday
 - Trump
 - Southport
 - Melania coin
+- Chelsea
 - Gulf of Mexico
 - Barron Trump
-- JD Vance
-- Panama Canal
-- Usha Vance
-- Joe Biden
-- Carrie Underwood
 - Elon Musk
 - Panama Canal
 - Usha Vance
@@ -77,19 +77,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Stock Market Crash
 - Chelsea
 - Joe Biden
+- Barron Trump
 - Emergency box office collection day
 - WHO
 - Vivek Ramaswamy
 - Suryakumar Yadav
+- Nithin Kamath
+- Hardik Pandya
 - Zomato share price
-- Trump
 - Stallion India Fluorochemicals IPO GMP
+- Novak Djokovic
 - Melania coin
 - JD Vance
-- Djokovic
 - Kalyan Jewellers share price
-- Martin Luther King
-- Vodafone Idea share
 - epgview
 - best epg
 - epg for iptv
