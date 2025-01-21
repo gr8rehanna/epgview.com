@@ -33,63 +33,63 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ohio State vs Notre Dame
 - Biden pardons
 - Elon Musk
-- Carrie Underwood
 - Buffalo Bills
+- Carrie Underwood
 - Trump executive orders 2025
 - Usha Vance
 - Gulf of Mexico
+- Lauren Sanchez inauguration
 - Birthright citizenship
-- Leonard Peltier
-- Mark Zuckerberg
-- Ivanka Trump Inauguration
 - Melania Trump inauguration outfit
+- Leonard Peltier
+- Ivanka Trump Inauguration
 - Paris climate treaty
 - Cecile Richards
 - Amy Klobuchar
 - Michelle Obama
 - Día de Martin Luther King Jr
 - Chicago Bears
-- World Health Organization
+- CBP One
 - Pauline Quirke
 - Champions League
+- KSI
 - Chelsea vs Wolves
 - Elon Musk
 - Blue Monday
 - Trump
 - Southport
 - Melania coin
-- JD Vance
 - Gulf of Mexico
+- JD Vance
 - Barron Trump
-- Bitcoin price
 - Usha Vance
 - Panama Canal
 - Carrie Underwood
-- Joe Biden
 - Shaun Murphy
+- Bitcoin price
 - Patrick Dorgu
 - Scottish Cup draw
-- John Sykes
+- Joe Biden
+- Chelsea vs Wolves
 - Elon Musk
 - Dixon share price
 - Panama Canal
 - Usha Vance
-- Chelsea
+- Stock market crash
 - Joe Biden
 - Emergency box office collection day
+- WHO
 - Zomato share price
 - Stallion India Fluorochemicals IPO GMP
+- Trump
 - Melania coin
 - JD Vance
 - Kalyan Jewellers share price
-- Vodafone Idea share
 - Martin Luther King
+- Vodafone Idea share
 - Winner of Bigg Boss 18
 - Neeraj Chopra
-- Trump
 - Donald Trump
-- Barcelona
-- Novak Djokovic
 - epgview
 - best epg
 - epg for iptv
