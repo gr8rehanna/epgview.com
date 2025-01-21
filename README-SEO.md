@@ -38,58 +38,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Trump executive orders
 - Gulf of Mexico
 - Ben Johnson
-- Jeff Bezos wife
-- Amy Klobuchar
 - Leonard Peltier
+- Amy Klobuchar
+- Donald Trump children
 - Cecile Richards
 - Michelle Obama
+- Jeff Bezos
 - Christopher Macchio
 - Chelsea vs Wolves
 - Lorenzo Sewell
 - Panama Canal
+- Melania Trump inauguration outfit
 - Bill clinton
-- Are banks open on MLK Day
-- Kamala Harris
+- Popeye
 - Chelsea vs Wolves
 - Blue Monday
 - Southport
 - Elon Musk
 - Mount McKinley
 - Barron Trump
-- Shaun Murphy
 - Usha Vance
-- Bitcoin price
+- Shaun Murphy
 - Joe Biden
-- Carrie Underwood
+- Bitcoin price
 - Panama Canal
+- Carrie Underwood
 - Patrick Dorgu
-- Jeff Bezos
-- Martin Luther King
-- Bill Clinton
-- Scottish Cup draw
 - Michelle Obama
+- Martin Luther King
+- Scottish Cup draw
+- Bill Clinton
+- Jeff Bezos
 - Chelsea FC
-- Bills vs Ravens
 - Chelsea vs Wolves
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
 - Zomato Q3 Results
-- Mahakumbh Fire
 - Melania coin
 - Man City
 - Kalyan Jewellers share price
 - Martin Luther King
 - JD Vance
-- CMAT Admit Card 2025
 - Karan Veer Mehra
-- Neeraj Chopra marriage
 - Trump
-- Winner of Bigg Boss 18
 - Neeraj Chopra
+- Winner of Bigg Boss 18
+- Neeraj Chopra marriage
 - Barcelona
 - TikTok
 - Novak Djokovic
 - Kho Kho World Cup
+- Barca
+- Bigg Boss 18 Winner
 - epgview
 - best epg
 - epg for iptv
