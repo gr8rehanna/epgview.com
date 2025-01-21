@@ -33,28 +33,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ohio State vs Notre Dame
 - Biden pardons
 - Elon Musk
+- Trump executive orders
+- Usha Vance
 - Carrie Underwood
-- Trump executive orders 2025
 - Ben Johnson
 - Gulf of Mexico
-- Jeff Bezos wife
+- Michelle Obama
 - Leonard Peltier
 - Amy Klobuchar
-- Michelle Obama
 - Cecile Richards
+- Melania Trump Inauguration outfit
 - Donald Trump children
-- Melania Trump inauguration outfit
 - Día de Martin Luther King Jr
-- Jeff Bezos
-- Christopher Macchio
-- Chelsea vs Wolves
-- Panama Canal
 - Paris climate treaty
+- Birthright citizenship
+- Chelsea vs Wolves
+- Christopher Macchio
+- Panama Canal
 - Popeye
 - Chelsea vs Wolves
 - Blue Monday
-- Melania coin
 - Elon Musk
+- Melania coin
 - Southport
 - Bitcoin price
 - JD Vance
@@ -66,11 +66,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Panama Canal
 - Carrie Underwood
 - Patrick Dorgu
-- Jeff Bezos
 - Michelle Obama
-- Martin Luther King
 - Scottish Cup draw
+- Bill Clinton
+- Jeff Bezos
 - Chelsea vs Wolves
+- Emergency Box Office Collection Day
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
 - Zomato Q3 Results
@@ -82,7 +83,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Winner of Bigg Boss 18
 - Trump
 - Neeraj Chopra
-- Neeraj Chopra marriage
 - Barcelona
 - TikTok
 - Novak Djokovic
