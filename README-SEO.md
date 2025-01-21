@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Ohio State vs Notre Dame
-- Elon Musk
 - Biden pardons
-- Buffalo Bills
-- Carrie Underwood
 - Usha Vance
+- Carrie Underwood
+- Elon Musk
+- Buffalo Bills
 - Trump executive orders 2025
 - Gulf of Mexico
-- Ben Johnson
 - Leonard Peltier
 - Birthright citizenship
 - Mark Zuckerberg
+- Ivanka Trump Inauguration
 - Melania Trump inauguration outfit
 - Paris climate treaty
 - Cecile Richards
 - Amy Klobuchar
 - Michelle Obama
 - Día de Martin Luther King Jr
+- Chicago Bears
 - White House
-- Panama Canal
 - Champions League
+- Pauline Quirke
 - Chelsea vs Wolves
 - Blue Monday
 - Elon Musk
 - Melania coin
 - Southport
+- JD Vance
 - Bitcoin price
 - Mount McKinley
 - Barron Trump
 - Usha Vance
-- JD Vance
 - Joe Biden
-- Shaun Murphy
 - Panama Canal
+- Shaun Murphy
 - Carrie Underwood
 - Patrick Dorgu
+- Jeff Bezos
 - Scottish Cup draw
 - Martin Luther King
-- Bill Clinton
-- Michelle Obama
 - Elon Musk
-- Dixon Share price
+- Dixon share price
 - Panama Canal
-- Chelsea
 - Usha Vance
-- CNN
+- Chelsea
 - Emergency box office collection day
 - Joe Biden
 - Zomato share price
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
-- Trump oath ceremony date
 - Melania coin
 - Man City
 - Kalyan Jewellers share price
 - JD Vance
 - Martin Luther King
-- CMAT admit card 2025
+- Djokovic
 - Winner of Bigg Boss 18
 - Trump
+- Neeraj Chopra
+- Donald Trump
 - epgview
 - best epg
 - epg for iptv
