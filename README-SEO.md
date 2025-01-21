@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Ohio State vs Notre Dame
-- Biden pardons
 - Elon Musk
+- Biden pardons
 - Buffalo Bills
 - Carrie Underwood
 - Usha Vance
 - Trump executive orders 2025
-- Gulf of Mexico
 - Ben Johnson
+- Gulf of Mexico
+- Jeff Bezos
 - Leonard Peltier
 - Michelle Obama
-- Mark Zuckerberg
 - Birthright citizenship
 - Melania Trump inauguration outfit
+- Paris climate treaty
 - Cecile Richards
 - Amy Klobuchar
-- Paris climate treaty
 - Día de Martin Luther King Jr
 - Marcus Freeman
-- Panama Canal
+- Donald Trump children
 - Champions League
 - Popeye
 - Chelsea vs Wolves
@@ -58,38 +58,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Melania coin
 - Southport
 - JD Vance
+- Bitcoin price
 - Mount McKinley
 - Barron Trump
 - Usha Vance
 - Joe Biden
 - Shaun Murphy
-- Bitcoin price
 - Panama Canal
 - Carrie Underwood
 - Patrick Dorgu
-- Martin Luther King
 - Scottish Cup draw
+- Martin Luther King
 - Bill Clinton
 - Chelsea vs Wolves
 - Panama Canal
-- Emergency box office collection day
+- CNN
 - Usha Vance
+- Emergency box office collection day
+- Joe Biden
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
-- Zomato Q3 Results
+- Zomato Q3 results
 - Melania coin
 - Man City
 - Kalyan Jewellers share price
-- CMAT admit card 2025
 - JD Vance
 - Martin Luther King
+- CMAT admit card 2025
 - Djokovic
 - Winner of Bigg Boss 18
 - Neeraj Chopra
 - Trump
 - Donald Trump
-- Barcelona
-- Novak Djokovic
 - epgview
 - best epg
 - epg for iptv
