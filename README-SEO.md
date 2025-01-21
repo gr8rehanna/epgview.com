@@ -30,48 +30,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- New Orleans Weather
-- Coast Guard Commandant terminated
+- Novak Djokovic
+- Benfica  Barcelona
+- Coco Gauff
 - UEFA Champions League
+- Coast Guard Commandant terminated
+- Houston snow
+- Lilac Fire
 - Garth Hudson
-- Carlos Alcaraz
-- Fetterman
+- New Orleans Weather
 - Kirby Yates
-- Ivanka Trump inauguration
+- Justin Bieber
+- Fetterman
 - Jason Aldean
 - Project 2025
 - ICE raids
 - Championship game
 - Ohio State vs Notre Dame
+- Trump executive orders
 - Elon Musk
 - Biden pardons
-- Carrie Underwood
-- Birthright citizenship
-- Gulf of Mexico
-- Ben Johnson
-- Trump inauguration speech
-- Pauline Quirke
 - Champions League
+- Pauline Quirke
 - Novak Djokovic
 - Monaco vs Aston Villa
 - Wayne Bridge
 - Aston Villa
-- CNN
-- Greggs steak bake recall
-- EU Settlement Scheme changes
 - UEFA Champions League
+- EU Settlement Scheme changes
+- Greggs steak bake recall
 - Met Office weather warnings
 - Russia Trump
 - Trump executive orders
-- Russia
 - Cunha
-- Leonard Peltier
+- Russia
 - Who
+- Leonard Peltier
+- Brics
+- Paris climate Agreement
+- World Health Organization
 - Elon Musk
-- Chelsea vs Wolves
-- Blue Monday
-- Champions League
-- IND vs ENG
+- UEFA Champions League
+- Benfica vs Barcelona
 - Donald Trump
 - Elon Musk
 - Panama Canal
@@ -82,7 +82,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joe Biden
 - WHO
 - CNN
-- Barron Trump
 - Saif Ali Khan latest news
 - Vivek Ramaswamy
 - Emergency Box Office Collection Day
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Zomato share price
 - Novak Djokovic
 - Trump
+- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
