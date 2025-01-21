@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Novak Djokovic
-- Benfica  Barcelona
+- Barcelona
 - Coco Gauff
+- San Diego Fire
+- Snowin Florida
 - UEFA Champions League
-- Coast Guard Commandant terminated
-- Houston snow
-- Lilac Fire
+- New Orleans weather
+- FC Barcelona
+- Carlos Alcaraz
 - Garth Hudson
-- New Orleans Weather
+- Coast Guard Commandant terminated
 - Kirby Yates
 - Justin Bieber
-- Fetterman
 - Jason Aldean
 - Project 2025
 - ICE raids
-- Championship game
 - Ohio State vs Notre Dame
-- Trump executive orders
 - Elon Musk
 - Biden pardons
+- Birthright citizenship
+- Carrie Underwood
 - Champions League
 - Pauline Quirke
+- Liverpool vs losc
 - Novak Djokovic
 - Monaco vs Aston Villa
 - Wayne Bridge
 - Aston Villa
-- UEFA Champions League
-- EU Settlement Scheme changes
 - Greggs steak bake recall
+- Onyx Storm book
+- Benfica vs Barcelona
+- EU Settlement Scheme changes
+- WHO
 - Met Office weather warnings
 - Russia Trump
-- Trump executive orders
+- Derby County vs Sunderland
 - Cunha
+- Trump executive orders
 - Russia
-- Who
-- Leonard Peltier
 - Brics
-- Paris climate Agreement
-- World Health Organization
-- Elon Musk
+- Leonard Peltier
 - UEFA Champions League
-- Benfica vs Barcelona
 - Donald Trump
 - Elon Musk
 - Panama Canal
 - Dixon share price
 - Usha Vance
 - Stock Market Crash
-- Suryakumar Yadav
 - Joe Biden
 - WHO
+- Barron Trump
 - CNN
 - Saif Ali Khan latest news
+- Suryakumar Yadav
 - Vivek Ramaswamy
 - Emergency Box Office Collection Day
+- Hardik Pandya
 - Gulf of Mexico
 - Zomato share price
 - Novak Djokovic
 - Trump
-- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
