@@ -32,44 +32,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Ohio State vs Notre Dame
 - Biden pardons
-- Carrie Underwood
 - Usha Vance
+- Carrie Underwood
 - Elon Musk
-- Gulf of America
-- Amy Klobuchar
-- Jeff Bezos wife
-- Leonard Peltier
-- Ben Johnson
 - Trump executive orders
+- Gulf of Mexico
+- Ben Johnson
+- Jeff Bezos wife
+- Amy Klobuchar
+- Leonard Peltier
 - Cecile Richards
 - Michelle Obama
 - Christopher Macchio
+- Chelsea vs Wolves
+- Lorenzo Sewell
 - Panama Canal
-- Chelsea
-- Are banks open on MLK Day
 - Bill clinton
+- Are banks open on MLK Day
 - Kamala Harris
-- Elon Musk salute
 - Chelsea vs Wolves
 - Blue Monday
-- Mount McKinley
+- Southport
 - Elon Musk
+- Mount McKinley
+- Barron Trump
 - Shaun Murphy
+- Usha Vance
 - Bitcoin price
 - Joe Biden
-- Usha Vance
-- Barron Trump
 - Carrie Underwood
 - Panama Canal
 - Patrick Dorgu
 - Jeff Bezos
-- Bills vs Ravens
+- Martin Luther King
+- Bill Clinton
+- Scottish Cup draw
 - Michelle Obama
 - Chelsea FC
-- Chappell Roan
-- Lewis Hamilton
-- Martin Luther King Day
-- Martin Luther King
+- Bills vs Ravens
 - Chelsea vs Wolves
 - Stallion India Fluorochemicals IPO GMP
 - Idea share price
@@ -83,8 +83,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - CMAT Admit Card 2025
 - Karan Veer Mehra
 - Neeraj Chopra marriage
-- Winner of Bigg Boss 18
 - Trump
+- Winner of Bigg Boss 18
 - Neeraj Chopra
 - Barcelona
 - TikTok
