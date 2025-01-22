@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Barcelona
 - Snow in Florida
+- Barcelona
 - Pensacola
-- Stargate AI
 - Novak Djokovic
-- San Diego fires
+- Stargate AI
 - Garth Hudson
-- Benfica vs Barcelona
 - Billy Wagner
+- Mariann Edgar Budde
+- San Diego Fire
 - River Plate  México
 - Coast Guard Commandant terminated
+- San Diego fires
 - FC Barcelona
 - Coco Gauff
-- Bishop Mariann Edgar Budde
+- Atlético Madrid  Leverkusen
 - John Bolton
 - Kirby Yates
 - Justin Bieber
 - Apple stock
-- Purdue basketball
 - Netflix stock
 - Champions League
 - Pauline Quirke
 - Benfica vs Barcelona
-- Novak Djokovic
 - Monaco vs Aston Villa
+- Novak Djokovic
 - UEFA Champions League
-- Greggs steak bakes recalled
 - Wayne Bridge
-- Aston Villa
-- Met Office weather warnings
 - Onyx Storm book
 - Derby County vs Sunderland
+- Storm éowyn weather warning Met Office
 - Championship
 - WHO
 - Eu settlement scheme changes
+- Greggs steak bake recall
 - Atlético Madrid vs Leverkusen
 - Cunha
 - Russia Trump
 - BRICS
 - Trump executive orders
+- FC Barcelona
 - UEFA Champions League
 - Barcelona
 - Champions League
 - FC Barcelona
-- Denta Water and Infra IPO GMP
-- RRB Group D Recruitment 2025
-- SSC MTS Result 2024
+- Samsung S25
 - Ram Mandir
+- SSC MTS Result 2024
 - IND vs ENG
 - Novak Djokovic
 - Donald Trump
 - Elon Musk
-- Panama Canal
 - Stock market crash
+- Panama Canal
 - Usha Vance
 - Mohammed Shami
+- RRB Group D
 - Suryakumar Yadav
 - WHO
 - Barron Trump
-- Saif Ali Khan latest News
+- Saif Ali Khan latest news
 - epgview
 - best epg
 - epg for iptv
