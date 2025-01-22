@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Snow in Florida
 - Pensacola
-- UEFA Champions League
+- Stargate AI
+- Novak Djokovic
+- San Diego fires
 - Garth Hudson
-- Oracle stock
-- Djokovic
+- Benfica vs Barcelona
 - Billy Wagner
-- Mariann Edgar Budde
-- San Diego Fire
 - River Plate  México
 - Coast Guard Commandant terminated
-- San Diego fires
 - FC Barcelona
 - Coco Gauff
-- Atlético Madrid  Leverkusen
-- Novak Djokovic
+- Bishop Mariann Edgar Budde
 - John Bolton
 - Kirby Yates
 - Justin Bieber
+- Apple stock
+- Purdue basketball
+- Netflix stock
 - Champions League
 - Pauline Quirke
 - Benfica vs Barcelona
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - BRICS
 - Trump executive orders
 - UEFA Champions League
-- India vs England
 - Barcelona
 - Champions League
 - FC Barcelona
+- Denta Water and Infra IPO GMP
+- RRB Group D Recruitment 2025
+- SSC MTS Result 2024
+- Ram Mandir
+- IND vs ENG
 - Novak Djokovic
 - Donald Trump
 - Elon Musk
 - Panama Canal
 - Stock market crash
 - Usha Vance
+- Mohammed Shami
 - Suryakumar Yadav
 - WHO
 - Barron Trump
-- Saif Ali Khan latest news
-- CNN
-- Vivek Ramaswamy
-- Emergency box office collection day
-- Zomato share price
-- Trump
+- Saif Ali Khan latest News
 - epgview
 - best epg
 - epg for iptv
