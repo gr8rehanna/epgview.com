@@ -33,22 +33,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Snow in Florida
 - Novak Djokovic
+- Snow in Florida 2025
 - UEFA Champions League
-- Stargate AI
 - Benfica vs Barcelona
 - Garth Hudson
-- Snow in Florida 2025
 - Billy Wagner
+- Mariann Edgar Budde
 - San Diego Fire
+- Oracle stock
 - Coast Guard Commandant terminated
-- River Plate  México
 - FC Barcelona
-- Coco Gauff
 - San Diego fires
-- Kirby Yates
+- Coco Gauff
+- Atlético Madrid  Leverkusen
 - John Bolton
+- Kirby Yates
 - Justin Bieber
-- Bishop Mariann Edgar Budde
 - Apple stock
 - Champions League
 - Pauline Quirke
@@ -73,23 +73,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Benfica vs Barcelona
 - UEFA Champions League
 - Champions League
-- IND vs ENG T20
+- IND vs ENG
 - Donald Trump
 - Elon Musk
 - Panama Canal
 - Dixon share price
 - Stock market crash
 - Usha Vance
-- Suryakumar Yadav
 - WHO
 - Barron Trump
+- Suryakumar Yadav
 - Saif Ali Khan latest news
 - Vivek Ramaswamy
 - Emergency box office collection day
-- Gulf of Mexico
 - Zomato share price
 - Trump
 - Novak Djokovic
+- Stallion India Fluorochemicals IPO GMP
 - epgview
 - best epg
 - epg for iptv
