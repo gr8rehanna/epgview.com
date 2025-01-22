@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- What is DEI
 - Barcelona
+- New Orleans snow
 - Snow in Florida
-- Pensacola
 - Novak Djokovic
-- Garth Hudson
 - Stargate AI
+- Garth Hudson
 - Billy Wagner
-- Mariann Edgar Budde
 - San Diego Fire
+- Coast Guard Commandant terminated
+- Bishop Mariann Edgar Budde
 - San Diego fires
 - FC Barcelona
 - Coco Gauff
-- Coast Guard Commandant terminated
+- Atlético Madrid  Leverkusen
 - John Bolton
 - Kirby Yates
 - Justin Bieber
 - Apple stock
 - Netflix stock
-- Purdue basketball
-- Francisco San Martin
 - Champions League
 - Pauline Quirke
 - Benfica vs Barcelona
-- Monaco vs Aston Villa
 - Novak Djokovic
+- Monaco vs Aston Villa
 - UEFA Champions League
-- Wayne Bridge
 - Storm éowyn weather warning Met Office
+- Barcelona
+- Wayne Bridge
+- Aston Villa
 - Onyx Storm book
 - Derby County vs Sunderland
 - Championship
 - WHO
-- Eu settlement scheme changes
 - Atlético Madrid vs Leverkusen
 - Cunha
 - Russia Trump
+- FC Barcelona
 - BRICS
-- Russia
-- Panama
-- Paris climate agreement
-- Benfica vs Barcelona
-- UEFA Champions League
+- Trump executive orders
+- India vs England
+- Barcelona
 - Champions League
 - Samsung S25
 - Denta Water and Infra IPO GMP
 - HDFC Bank Q3 Results
 - Ram Mandir
 - SSC MTS Result 2024
-- IND vs ENG
 - Novak Djokovic
 - Donald Trump
 - Elon Musk
-- Stock market crash
 - Panama Canal
 - Usha Vance
 - Mohammed Shami
-- RRB Group D
 - WHO
 - Barron Trump
 - Saif Ali Khan latest news
+- CNN
+- Trump news
+- Vivek Ramaswamy
 - epgview
 - best epg
 - epg for iptv
