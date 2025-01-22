@@ -34,40 +34,40 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Snow in Florida
 - Novak Djokovic
 - UEFA Champions League
-- Benfica vs Barcelona
 - San Diego fires
-- Stargate AI
 - Garth Hudson
+- Stargate AI
 - Coast Guard Commandant terminated
+- Snow in Florida 2025
 - FC Barcelona
 - Coco Gauff
 - Mariann Edgar Budde
 - Kirby Yates
 - Justin Bieber
 - Apple stock
-- Atlético Madrid  Leverkusen
 - John Bolton
+- Atlético Madrid  Leverkusen
 - ICE raids
 - Francisco San Martin
 - Fourth Wing
 - Champions League
-- Liverpool vs losc
 - Pauline Quirke
 - Benfica vs Barcelona
-- Monaco vs Aston Villa
 - Novak Djokovic
+- Monaco vs Aston Villa
+- UEFA Champions League
 - Wayne Bridge
 - Greggs steak bakes recalled
+- Aston Villa
+- Met Office weather warnings
 - Onyx Storm book
 - Derby County vs Sunderland
-- NHS cleaner sick days
-- Met Office weather warnings
 - Championship
-- Eu settlement scheme changes
 - WHO
+- Eu settlement scheme changes
+- Atlético Madrid vs Leverkusen
 - Cunha
 - Russia Trump
-- Trump executive orders
 - BRICS
 - Russia
 - Benfica vs Barcelona
