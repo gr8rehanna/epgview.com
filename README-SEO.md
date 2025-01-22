@@ -31,48 +31,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Barcelona
-- New Orleans Weather
+- Snow in Florida
+- Novak Djokovic
 - UEFA Champions League
+- Benfica vs Barcelona
 - San Diego fires
+- Stargate AI
 - Garth Hudson
-- Coco Gauff
-- FC Barcelona
-- Carlos Alcaraz
-- Barca
 - Coast Guard Commandant terminated
+- FC Barcelona
+- Coco Gauff
+- Mariann Edgar Budde
 - Kirby Yates
 - Justin Bieber
+- Apple stock
 - Atlético Madrid  Leverkusen
+- John Bolton
 - ICE raids
-- Fourth Wing
-- Jason Aldean
 - Francisco San Martin
-- Project 2025
-- Championship game
-- Jose Andres
+- Fourth Wing
 - Champions League
 - Liverpool vs losc
 - Pauline Quirke
+- Benfica vs Barcelona
 - Monaco vs Aston Villa
 - Novak Djokovic
-- Barcelona
-- Benfica vs Barcelona
 - Wayne Bridge
 - Greggs steak bakes recalled
 - Onyx Storm book
 - Derby County vs Sunderland
+- NHS cleaner sick days
 - Met Office weather warnings
+- Championship
 - Eu settlement scheme changes
 - WHO
-- Championship
-- Swansea vs Sheffield United
 - Cunha
 - Russia Trump
 - Trump executive orders
+- BRICS
 - Russia
 - Benfica vs Barcelona
 - UEFA Champions League
-- IND vs ENG
+- Champions League
 - Donald Trump
 - Elon Musk
 - Panama Canal
@@ -86,8 +86,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Vivek Ramaswamy
 - Emergency Box Office Collection Day
 - Zomato share price
-- Novak Djokovic
 - Trump
+- Novak Djokovic
 - Stallion India Fluorochemicals IPO GMP
 - Melania coin
 - epgview
