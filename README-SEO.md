@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Lakers
-- Ben Shelton
-- Jimmy Butler
+- Real Madrid  RB Salzburg
 - Antioch High School
+- Ben Shelton
+- Samsung
+- Jimmy Butler
+- Equal Employment opportunity Act
 - Brian Schottenheimer
+- San Diego fires today
 - Destin, Florida
 - Snow in Florida
-- Stargate
+- Stargate AI
 - President Donald Trump executive orders
 - Bishop Mariann Edgar Budde
-- Billy Wagner
 - Silk Road
+- Billy Wagner
 - Novak Djokovic
 - Garth Hudson
 - UEFA Champions League
-- San Diego fires
-- Pensacola
 - Netflix stock
-- Coast Guard Commandant terminated
-- FC Barcelona
 - England vs India
 - Silk Road
-- Prince Harry
+- PSG vs Man City
 - Samsung
+- Arsenal vs Dinamo Zagreb
+- Prince Harry
 - Santander bank
 - Taskmaster series 19
 - Digital driving licences
 - Stargate
+- Joanna lumley
 - Bolton Wanderers
-- Atletico Madrid
 - Kyle Clifford
+- Atletico Madrid
 - Ben Shelton
+- Prime Target
 - Mariann Edgar Budde
+- Sheffield Wednesday
+- Real Madrid vs RB Salzburg
 - Champions League
-- Benfica vs Barcelona
-- Pauline Quirke
-- Storm Éowyn weather warning Met Office
-- Novak Djokovic
-- UEFA Champions League
-- Aston Villa
+- Real Madrid vs RB Salzburg
 - क्रिकेट
-- Benfica vs Barcelona
 - ICC
 - UEFA Champions League
 - Samsung S25
+- Champions League
 - Sports
-- Varun Chakaravarthy
+- Varun chakaravarthy
+- Barcelona
 - HDFC Bank Q3 Results
-- FC Barcelona
 - Royal Enfield Scram 440
+- FC Barcelona
 - Denta Water and Infra IPO GMP
 - Barca
 - Ram Mandir
 - Minimalist
 - Ben Shelton
 - Pushpak Express
-- RRB Group D recruitment 2025
 - England vs India
 - IND vs ENG
-- Novak Djokovic
 - epgview
 - best epg
 - epg for iptv
