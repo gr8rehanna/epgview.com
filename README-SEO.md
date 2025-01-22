@@ -30,24 +30,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Lakers
 - Ben Shelton
 - Snow in Florida
-- Stargate
-- Barcelona
+- Sam Altman
 - Bishop Mariann Edgar Budde
 - Novak Djokovic
 - Garth Hudson
-- Billy Wagner
 - UEFA Champions League
+- Ross William Ulbricht
 - San Diego fires
-- Pensacola
+- Billy Wagner
 - Netflix stock
 - Coast Guard Commandant terminated
+- Pensacola
 - FC Barcelona
 - Coco Gauff
 - John Bolton
 - Kirby Yates
+- Justin Bieber
 - Apple stock
 - Purdue basketball
 - England vs India
@@ -55,7 +55,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bolton Wanderers
 - Stargate
 - Atletico Madrid
-- Justin Bieber
+- Taskmaster series 19
+- Digital driving licences
 - Champions League
 - Benfica vs Barcelona
 - Pauline Quirke
@@ -63,30 +64,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Novak Djokovic
 - Storm Éowyn weather warning Met Office
 - Onyx Storm book
+- Liverpool vs Lille
 - Championship
 - FC Barcelona
 - Derby County vs Sunderland
 - Greggs steak bake recall
 - Cunha
-- Europa League
-- Russia Trump
-- England vs India
 - Benfica vs Barcelona
 - ICC
+- UEFA Champions League
 - Sports
-- Champions League
 - Varun Chakaravarthy
 - Samsung S25
 - HDFC Bank Q3 Results
 - FC Barcelona
 - Denta Water and Infra IPO GMP
-- UPSC Notification 2025
+- Barca
+- Ben Shelton
 - Royal Enfield Scram 440
 - Ram Mandir
-- Chhaava
 - Rishabh Pant
-- Ben Shelton
-- IND vs ENG
+- RRB Group D recruitment 2025
+- England vs India
+- Ind Vs Eng
 - Novak Djokovic
 - Donald Trump
 - Elon Musk
