@@ -37,12 +37,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Samsung
 - School shooting
 - Ben Shelton
-- Bayern Munich
-- Rancho Bernardo Fire
 - U.S. presidents
+- Bayern Munich
 - Oscar nominations 2025
-- Arsenal vs Dinamo Zagreb
 - Brian Schottenheimer
+- Florida
+- Rancho Bernardo fire
 - Birthright citizenship lawsuit
 - Prime Target
 - Post Malone oreos
@@ -56,36 +56,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Besiktas
 - PSG vs Man City
 - Arsenal vs Dinamo Zagreb
-- England vs India
 - Samsung
+- England vs India
 - Leeds United
 - Real Madrid vs RB Salzburg
 - Celtic
 - Silk Road
+- Plymouth Argyle vs Burnley
 - Digital driving licences
 - Kyle Walker
-- Feyenoord vs Bayern
 - Taskmaster series 19
 - Santander bank
-- Plymouth Argyle
 - Prince Harry
 - Prime Target
+- Sheffield Wednesday
 - Ranji Trophy
 - Netaji Subhas Chandra Bose
+- Ranji Trophy 2025
 - Real Madrid
 - Rohit Sharma
-- Umar Nazir Mir
-- क्रिकेट
+- Ravindra Jadeja
 - Airtel prepaid plans
+- क्रिकेट
 - HUL Share Price
-- JEE mains 2025 Question Paper
+- JEE mains 2025 question paper
 - Samsung
 - PSG vs Man City
 - Cricket
 - ICC
 - UEFA Champions League
 - Sports
-- Arshdeep Singh
 - Barcelona
 - HDFC Bank Q3 results
 - Royal Enfield Scram 440
