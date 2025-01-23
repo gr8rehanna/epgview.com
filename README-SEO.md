@@ -34,22 +34,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Antioch High School
 - Castaic fire
 - Lakers
+- Feyenoord vs Bayern
 - Samsung
 - Ben Shelton
-- San Diego fires today
-- Brian Schottenheimer
+- Rancho Bernardo fire
 - Arsenal vs Dinamo Zagreb
-- Destin, Florida
+- Brian Schottenheimer
 - Pixar
 - Birthright citizenship lawsuit
-- Feyenoord vs Bayern
 - Snow in Florida
-- Stargate AI
-- President Donald Trump executive orders
+- Stargate
 - Barcelona
-- San Diego fires
-- Novak Djokovic
 - Bishop Mariann Edgar Budde
+- President Donald Trump executive orders
+- San Diego fires
+- Netflix prices
+- Novak Djokovic
 - England vs India
 - Arsenal vs Dinamo Zagreb
 - Celtic
@@ -58,32 +58,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid vs RB Salzburg
 - Silk Road
 - Prince Harry
+- Sheffield Wednesday vs Bristol City
 - Digital driving licences
 - Santander bank
 - Taskmaster series 19
 - Plymouth Argyle
 - Portsmouth vs Stoke City
-- Sheffield Wednesday
 - Prime Target
-- Feyenoord vs Bayern
 - Joanna lumley
 - Stargate
+- Montel Love Island
 - Kyle Clifford
 - Bolton Wanderers
-- Real Madrid
+- Real Madrid vs RB Salzburg
 - क्रिकेट
-- ICC
+- Airtel prepaid plans
 - Samsung
+- ICC
 - UEFA Champions League
 - Champions League
 - Sports
 - Varun chakaravarthy
 - Arshdeep Singh
 - Barcelona
-- HDFC Bank Q3 Results
+- HDFC Bank Q3 results
 - Royal Enfield Scram 440
 - FC Barcelona
-- Denta Water and Infra IPO GMP
 - Barca
 - Ram Mandir
 - Minimalist
