@@ -31,27 +31,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Real Madrid
-- Castaic Fire
-- Nashville shooting
+- Antioch High School
 - PSG vs Man City
 - Samsung
 - Lakers
 - Ben Shelton
-- USA vs Costa Rica
 - Bayern Munich
 - Rancho Bernardo Fire
+- Monk
 - Arsenal vs Dinamo Zagreb
 - Brian Schottenheimer
-- Pixar
+- Timberwolves vs Mavericks
 - Birthright citizenship lawsuit
 - Prime Target
 - Suns
+- Post Malone oreos
+- Castaic Fire
 - Snow in Florida
 - Stargate
-- President Donald Trump executive orders
-- Bishop Mariann Edgar Budde
+- Barcelona
 - Russian spy ship UK waters
 - Plymouth
+- Besiktas
 - Kyle Walker
 - PSG vs Man City
 - Arsenal vs Dinamo Zagreb
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield Wednesday vs Bristol City
 - Plymouth Argyle
 - Portsmouth vs Stoke City
-- Prime Target
 - Real Madrid
 - क्रिकेट
-- Netaji
 - Airtel prepaid plans
-- Subhash Chandra Bose Jayanti
 - Samsung
 - Cricket
 - ICC
 - PSG vs Man City
 - UEFA Champions League
 - Sports
-- Varun chakaravarthy
 - Barcelona
-- HDFC Bank Q3 results
+- Subhash Chandra Bose
+- HDFC Bank Q3 Results
 - Royal Enfield Scram 440
 - FC Barcelona
+- Denta Water and Infra IPO GMP
 - Barca
 - Djokovic
+- Pushpak Express
+- Chhaava
 - Minimalist
-- Disney
 - epgview
 - best epg
 - epg for iptv
