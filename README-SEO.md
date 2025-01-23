@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Pagan
+- Celtics vs Clippers
 - Mariano Rivera
+- USMNT
 - Night Agent season 2
+- Rod Stewart
 - Castaic fire
-- Real Madrid
 - Oscar nominations 2025
 - Antioch High School
+- Real Madrid
 - PSG vs Man City
 - Samsung
 - U.S. presidents
 - Ben Shelton
-- President Trump
-- Bayern Munich
-- Brian Schottenheimer
 - Tyreek hill
 - Post Malone oreos
 - Rancho Bernardo fire
 - Birthright citizenship lawsuit
 - Prime Target
 - Suns
-- DEI
 - Oscar nominations 2025
+- Southport
+- Three network Down
 - Plymouth
+- Pagan
+- Kyle Walker
+- Kyogo
 - Marcus Rashford
 - Besiktas
 - Russian spy ship UK waters
-- Kyogo
 - Denis Irwin
+- Chris Burney
+- Rod Stewart
 - PSG vs Man City
+- Man City
 - Arsenal vs Dinamo Zagreb
 - Samsung
 - England vs India
 - Real Madrid vs RB Salzburg
 - Celtic
-- Silk Road
-- Leeds United
-- Manchester City
-- Kyle Walker
-- Digital driving licences
-- Taskmaster series 19
-- Plymouth Argyle
 - Ranji Trophy
-- Rohit Sharma
 - Real Madrid
 - Netaji subhash Chandra Bose
 - Suryakumar Yadav
 - Ravindra Jadeja
+- Mumbai vs Jammu and Kashmir
 - Man City
-- Dominic and The Ladies' Purse
+- Dominic and the Ladies' Purse
 - Shardul Thakur
 - अभिषेक शर्मा
 - HUL Share Price
+- Oscar nominations 2025
+- Dominic
 - England vs India
 - Samsung
 - Cricket
 - Sports
 - Barcelona
-- FC Barcelona
+- Arshdeep Singh
 - HDFC Bank Q3 results
-- Pushpak Express
-- IND vs ENG
 - epgview
 - best epg
 - epg for iptv
