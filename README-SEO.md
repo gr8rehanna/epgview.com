@@ -32,26 +32,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Real Madrid
 - Antioch High School
-- Castaic fire
+- Castaic Fire
+- PSG vs Man City
 - Lakers
-- Feyenoord vs Bayern
 - Samsung
+- Feyenoord vs Bayern
 - Ben Shelton
 - Rancho Bernardo fire
+- USA vs Costa Rica
 - Arsenal vs Dinamo Zagreb
 - Brian Schottenheimer
-- Pixar
 - Birthright citizenship lawsuit
 - Snow in Florida
 - Stargate
-- Barcelona
-- Bishop Mariann Edgar Budde
 - President Donald Trump executive orders
+- Bishop Mariann Edgar Budde
+- Barcelona
 - San Diego fires
 - Netflix prices
-- Novak Djokovic
-- England vs India
+- Russian spy ship UK waters
+- Besiktas
 - Arsenal vs Dinamo Zagreb
+- England vs India
 - Celtic
 - Samsung
 - Leeds United
@@ -61,18 +63,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield Wednesday vs Bristol City
 - Digital driving licences
 - Santander bank
+- AC Milan
 - Taskmaster series 19
+- Feyenoord vs Bayern
 - Plymouth Argyle
 - Portsmouth vs Stoke City
 - Prime Target
 - Joanna lumley
-- Stargate
-- Montel Love Island
-- Kyle Clifford
-- Bolton Wanderers
-- Real Madrid vs RB Salzburg
+- Real Madrid
 - क्रिकेट
-- Airtel prepaid plans
+- Cricket
 - Samsung
 - ICC
 - UEFA Champions League
@@ -85,10 +85,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Royal Enfield Scram 440
 - FC Barcelona
 - Barca
+- Ind vs Eng 2025
 - Ram Mandir
 - Minimalist
 - Disney
-- Ben Shelton
 - Pushpak Express
 - epgview
 - best epg
