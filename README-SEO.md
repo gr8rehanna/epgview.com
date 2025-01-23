@@ -31,28 +31,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Real Madrid
-- Antioch High School
 - Castaic Fire
+- Nashville shooting
 - PSG vs Man City
 - Samsung
 - Lakers
 - Ben Shelton
+- USA vs Costa Rica
 - Bayern Munich
 - Rancho Bernardo Fire
-- USA vs Costa Rica
 - Arsenal vs Dinamo Zagreb
 - Brian Schottenheimer
+- Pixar
 - Birthright citizenship lawsuit
 - Prime Target
+- Suns
 - Snow in Florida
-- Barcelona
-- Stargate AI
-- Bishop Mariann Edgar Budde
+- Stargate
 - President Donald Trump executive orders
-- San Diego fires
+- Bishop Mariann Edgar Budde
 - Russian spy ship UK waters
 - Plymouth
-- Besiktas
 - Kyle Walker
 - PSG vs Man City
 - Arsenal vs Dinamo Zagreb
@@ -70,11 +69,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield Wednesday vs Bristol City
 - Plymouth Argyle
 - Portsmouth vs Stoke City
+- Prime Target
 - Real Madrid
 - क्रिकेट
-- Airtel prepaid plans
 - Netaji
-- England vs India
+- Airtel prepaid plans
+- Subhash Chandra Bose Jayanti
 - Samsung
 - Cricket
 - ICC
@@ -87,7 +87,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Royal Enfield Scram 440
 - FC Barcelona
 - Barca
-- Ram Mandir
+- Djokovic
 - Minimalist
 - Disney
 - epgview
