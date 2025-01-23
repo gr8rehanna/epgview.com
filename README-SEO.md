@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Celtics vs Clippers
-- Sepulveda Fire
-- USMNT
-- Night Agent Season 2
+- Mariano Rivera
+- Night Agent season 2
 - Castaic fire
-- Antioch High School
 - Real Madrid
-- PSG vs Man City
 - Oscar nominations 2025
+- Antioch High School
+- PSG vs Man City
 - Samsung
 - U.S. presidents
 - Ben Shelton
+- President Trump
 - Bayern Munich
 - Brian Schottenheimer
+- Tyreek hill
 - Post Malone oreos
+- Rancho Bernardo fire
 - Birthright citizenship lawsuit
 - Prime Target
 - Suns
 - DEI
-- Snow in Florida
 - Oscar nominations 2025
 - Plymouth
 - Marcus Rashford
@@ -73,23 +73,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ranji Trophy
 - Rohit Sharma
 - Real Madrid
+- Netaji subhash Chandra Bose
 - Suryakumar Yadav
-- Man City
 - Ravindra Jadeja
-- क्रिकेट
-- अभिषेक शर्मा
+- Man City
 - Dominic and The Ladies' Purse
+- Shardul Thakur
+- अभिषेक शर्मा
 - HUL Share Price
-- JEE Mains 2025 question paper
 - England vs India
 - Samsung
 - Cricket
-- Subhash Chandra Bose
 - Sports
 - Barcelona
+- FC Barcelona
 - HDFC Bank Q3 results
 - Pushpak Express
-- Barca
+- IND vs ENG
 - epgview
 - best epg
 - epg for iptv
