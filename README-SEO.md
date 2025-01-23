@@ -31,56 +31,57 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Real Madrid
+- Antioch High School
 - Castaic Fire
-- Nashville shooting
 - PSG vs Man City
 - Samsung
 - Lakers
 - Ben Shelton
-- Feyenoord  Bayern
+- Bayern Munich
 - Rancho Bernardo Fire
 - USA vs Costa Rica
 - Arsenal vs Dinamo Zagreb
 - Brian Schottenheimer
-- Pixar
 - Birthright citizenship lawsuit
+- Prime Target
 - Snow in Florida
-- Stargate
-- President Donald Trump executive orders
-- Bishop Mariann Edgar Budde
 - Barcelona
-- Netflix prices
+- Stargate AI
+- Bishop Mariann Edgar Budde
+- President Donald Trump executive orders
+- San Diego fires
 - Russian spy ship UK waters
+- Plymouth
 - Besiktas
+- Kyle Walker
+- PSG vs Man City
 - Arsenal vs Dinamo Zagreb
-- Celtic
 - England vs India
 - Samsung
 - Leeds United
 - Real Madrid vs RB Salzburg
+- Celtic
 - Silk Road
 - Prince Harry
-- Sheffield Wednesday vs Bristol City
 - Digital driving licences
 - Santander bank
-- AC Milan
 - Taskmaster series 19
 - Feyenoord vs Bayern
+- Sheffield Wednesday vs Bristol City
 - Plymouth Argyle
 - Portsmouth vs Stoke City
-- Prime Target
-- Montel Love Island
 - Real Madrid
 - क्रिकेट
 - Airtel prepaid plans
-- Cricket
+- Netaji
+- England vs India
 - Samsung
+- Cricket
 - ICC
-- UEFA Champions League
 - PSG vs Man City
+- UEFA Champions League
 - Sports
 - Varun chakaravarthy
-- Arshdeep Singh
 - Barcelona
 - HDFC Bank Q3 results
 - Royal Enfield Scram 440
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ram Mandir
 - Minimalist
 - Disney
-- Pushpak Express
 - epgview
 - best epg
 - epg for iptv
