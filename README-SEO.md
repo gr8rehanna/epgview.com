@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Pagan
 - Anora
+- Hoffenheim vs Tottenham
 - Mariano Rivera
 - Conclave
-- Hoffenheim vs Tottenham
+- Spurs vs Pacers
 - Davos
 - Rod Stewart
-- Night Agent season 2
+- Night Agent Season 2
 - USMNT
 - ICE immigration
-- CDC
 - Presidents
+- Stranger things
+- CDC
+- Game of Thrones
+- Crypto
 - Al Golden
-- Oscar Nominations 2025
 - Castaic fire
+- Oscar nominations 2025
 - Antioch High School
-- PSG vs Man City
-- Real Madrid
-- Samsung
-- U.S. presidents
 - Man United vs Rangers
 - Southport
 - Oscar nominations 2025
@@ -57,19 +57,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hoffenheim vs Tottenham
 - The Night Agent
 - Kyogo
+- Omar Marmoush
 - Plymouth
-- Pagan
 - Wrexham vs Birmingham
+- Pagan
 - Kyle Walker
-- Marcus Rashford
 - Denis Irwin
+- Marcus Rashford
 - Anora
-- Besiktas
-- Russian spy ship UK waters
-- Chris Burney
-- Rod Stewart
-- Billy Ray Cyrus
+- Jack Butland
+- Europa League table
 - Sainsbury closing cafes
+- Billy Ray Cyrus
+- Besiktas
 - Man United vs Rangers
 - Earthquake
 - Virender Sehwag
@@ -83,11 +83,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dominic and the Ladies' Purse
 - Shardul Thakur
 - Man City
-- Netaji
 - Oscar nominations 2025
 - अभिषेक शर्मा
 - PSG
 - Jalgaon
+- Guillain Barre Syndrome
 - England vs India
 - Samsung
 - epgview
