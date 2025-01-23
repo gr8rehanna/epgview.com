@@ -36,41 +36,41 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - Samsung
 - Ben Shelton
-- Jimmy Butler
 - San Diego fires today
 - Brian Schottenheimer
+- Arsenal vs Dinamo Zagreb
+- Destin, Florida
 - Pixar
 - Birthright citizenship lawsuit
+- Feyenoord vs Bayern
 - Snow in Florida
-- Stargate
+- Stargate AI
 - President Donald Trump executive orders
-- Bishop Mariann Edgar Budde
-- Billy Wagner
-- Silk Road
 - Barcelona
 - San Diego fires
 - Novak Djokovic
-- PSG vs Man City
+- Bishop Mariann Edgar Budde
 - England vs India
 - Arsenal vs Dinamo Zagreb
 - Celtic
 - Samsung
-- Silk Road
-- Real Madrid
 - Leeds United
-- Prince Harry
-- Santander bank
-- Digital driving licences
-- Taskmaster series 19
-- Sheffield Wednesday
-- Stargate
-- Prime Target
-- Joanna lumley
-- Bolton Wanderers
-- Kyle Clifford
-- Ben Shelton
-- Atletico Madrid
 - Real Madrid vs RB Salzburg
+- Silk Road
+- Prince Harry
+- Digital driving licences
+- Santander bank
+- Taskmaster series 19
+- Plymouth Argyle
+- Portsmouth vs Stoke City
+- Sheffield Wednesday
+- Prime Target
+- Feyenoord vs Bayern
+- Joanna lumley
+- Stargate
+- Kyle Clifford
+- Bolton Wanderers
+- Real Madrid
 - क्रिकेट
 - ICC
 - Samsung
@@ -78,6 +78,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Champions League
 - Sports
 - Varun chakaravarthy
+- Arshdeep Singh
 - Barcelona
 - HDFC Bank Q3 Results
 - Royal Enfield Scram 440
@@ -86,10 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barca
 - Ram Mandir
 - Minimalist
+- Disney
 - Ben Shelton
 - Pushpak Express
-- England vs India
-- IND vs ENG
 - epgview
 - best epg
 - epg for iptv
