@@ -34,25 +34,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Castaic fire
 - Real Madrid
 - PSG vs Man City
+- School shooting
 - Samsung
-- Nashville
 - U.S. presidents
-- Ben Shelton
 - Bayern Munich
 - Oscar nominations 2025
 - Brian Schottenheimer
-- Florida
 - Birthright citizenship lawsuit
-- Prime Target
 - Post Malone oreos
+- Prime Target
 - Suns
 - DEI
 - Snow in Florida
-- Stargate AI
+- Stargate
+- Bishop Mariann Edgar Budde
 - President Donald Trump executive orders
+- The Constitution
 - Plymouth
-- Russian spy ship UK waters
+- Weather warning
 - Marcus Rashford
+- Russian spy ship UK waters
+- Oscar nominations 2025
 - Omar Marmoush
 - PSG vs Man City
 - Arsenal vs Dinamo Zagreb
@@ -66,30 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Digital driving licences
 - Feyenoord vs Bayern
 - Taskmaster series 19
-- Santander bank
 - Plymouth Argyle
-- Prince Harry
-- Montel Love Island
+- Santander bank
 - Ranji Trophy
-- Netaji Subhas Chandra Bose
 - Real Madrid
-- Rohit Sharma
 - Suryakumar Yadav
+- Mumbai vs Jammu and Kashmir
 - Ravindra Jadeja
 - क्रिकेट
-- Dominic and The Ladies' Purse
+- Dominic and the Ladies' Purse
 - HUL Share Price
-- JEE Mains 2025 question paper
 - Samsung
 - Cricket
 - PSG vs Man City
-- ICC
 - UEFA Champions League
+- Subhash Chandra Bose
 - Sports
 - Barcelona
 - HDFC Bank Q3 results
 - Denta Water and Infra IPO GMP
 - Pushpak Express
+- Barca
+- Djokovic
 - epgview
 - best epg
 - epg for iptv
