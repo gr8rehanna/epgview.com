@@ -31,30 +31,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pagan
-- Night Agent Season 2
 - Spurs vs Pacers
 - Billy Ray Cyrus
 - Anora
+- Night Agent Season 2
 - Wordle hint
 - The Substance
-- Mariano Rivera
 - Davos
+- Mariano Rivera
 - Nickel Boys
-- Conclave
+- Crypto
+- Cavs
 - Rod Stewart
 - Tottenham
 - Hegseth
-- Bruins
 - Jurickson Profar
+- Bruins
 - FEMA
-- Presidents
+- PRESIDENTS
 - ICE Immigration
-- Crypto
 - The Substance
 - Man United vs Rangers
 - Southport
-- Three network Down
 - Oscar nominations 2025
+- Three network Down
 - Hoffenheim vs Tottenham
 - Kyogo
 - The Night Agent
@@ -62,7 +62,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Omar Marmoush
 - Plymouth
 - Pagan
-- Taylor Swift
 - Denis Irwin
 - Kyle Walker
 - Marcus Rashford
@@ -70,26 +69,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sainsbury closing cafes
 - High Potential
 - Besiktas
+- Russian spy ship UK waters
+- Man United vs Rangers
 - Earthquake
 - Virender Sehwag
 - The Night Agent
 - BPSC Result
 - Ranji Trophy
-- Netaji Subhas Chandra Bose
 - Rohit Sharma
+- Netaji
 - Suryakumar Yadav
 - Mumbai vs Jammu and Kashmir
+- Dominic and the Ladies' Purse
 - Oscar nominations 2025
 - Shardul Thakur
-- Dominic and the ladies' purse
-- PSG
+- अभिषेक शर्मा
 - Guillain Barre Syndrome
-- In vs ENG
+- Jalgaon
 - Samsung
 - Cricket
+- ICC
 - Sports
-- Barcelona
-- HDFC Bank Q3 results
 - epgview
 - best epg
 - epg for iptv
