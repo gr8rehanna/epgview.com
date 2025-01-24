@@ -31,17 +31,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pagan
-- Spurs vs Pacers
 - Billy Ray Cyrus
+- Spurs vs Pacers
 - Anora
-- Night Agent Season 2
-- Wordle hint
 - The Substance
-- Davos
+- Wordle hint
+- Night Agent Season 2
 - Mariano Rivera
 - Nickel Boys
 - Crypto
-- Cavs
 - Rod Stewart
 - Tottenham
 - Hegseth
@@ -50,7 +48,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FEMA
 - PRESIDENTS
 - ICE Immigration
+- Lumbee Tribe
+- Celtics vs Lakers
 - The Substance
+- Windy
 - Man United vs Rangers
 - Southport
 - Oscar nominations 2025
@@ -69,23 +70,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sainsbury closing cafes
 - High Potential
 - Besiktas
-- Russian spy ship UK waters
-- Man United vs Rangers
 - Earthquake
 - Virender Sehwag
+- Earthquake today
 - The Night Agent
 - BPSC Result
 - Ranji Trophy
 - Rohit Sharma
-- Netaji
+- Netaji Subhas Chandra Bose
 - Suryakumar Yadav
 - Mumbai vs Jammu and Kashmir
-- Dominic and the Ladies' Purse
 - Oscar nominations 2025
 - Shardul Thakur
-- अभिषेक शर्मा
+- Dominic and the ladies' purse
 - Guillain Barre Syndrome
 - Jalgaon
+- In vs ENG
 - Samsung
 - Cricket
 - ICC
