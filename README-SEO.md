@@ -39,38 +39,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pagan
 - Barack Obama and Jennifer Aniston
 - Djokovic
-- Pete Hegseth
 - Billy Ray Cyrus
 - Anora
 - Spurs
 - The substance
-- Ninja Gaiden
 - Night Agent Season 2
-- Wordle hint
+- Face moisturizer recalled nationwide
 - Border 2 Fire
-- Man United vs Rangers
-- Davos
+- FEMA
+- Nickel Boys
+- Mariano Rivera
+- Hegseth
 - Novak Djokovic
 - Ben Shelton
 - JFK
 - Garnacho
-- Flight Risk
 - Central Cee
-- Bowser
 - Traitors final
+- Flight Risk
+- Bowser
+- Flight radar
+- Rolls-Royce nuclear submarines
+- Joey Barton
 - Man United vs Rangers
 - Taylor Swift
-- Three network. Down
 - Oscar nominations 2025
+- Three network. Down
 - Hoffenheim vs Tottenham
 - Snow/ice warning
-- Ricin
+- Bruce Willis
 - Kyogo
 - Night Agent
-- Plymouth
-- Pagan
-- Denis Irwin
-- Akshay Kumar Veer Pahariya Sky Force
+- Akshay Kumar, Veer Pahariya Sky Force
 - Novak Djokovic
 - Virender Sehwag
 - Earthquake
@@ -85,11 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Rohit Sharma
 - Shardul Thakur
-- Ravindra Jadeja
 - Suryakumar Yadav
 - Oscar nominations 2025
 - Galaxy S25 Ultra
 - Guillain-Barre Syndrome
+- In vs Eng
 - epgview
 - best epg
 - epg for iptv
