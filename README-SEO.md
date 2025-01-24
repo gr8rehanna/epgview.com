@@ -34,60 +34,60 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Anora
 - Hoffenheim vs Tottenham
 - Mariano Rivera
-- Conclave
-- Spurs vs Pacers
 - Davos
+- Conclave
 - Rod Stewart
 - Night Agent Season 2
 - USMNT
 - ICE immigration
 - Presidents
 - Stranger things
-- CDC
 - Game of Thrones
 - Crypto
+- CDC
 - Al Golden
+- Pacers
 - Castaic fire
 - Oscar nominations 2025
 - Antioch High School
 - Man United vs Rangers
 - Southport
-- Oscar nominations 2025
 - Three network Down
+- Oscar nominations 2025
 - Hoffenheim vs Tottenham
-- The Night Agent
 - Kyogo
+- The Night Agent
 - Omar Marmoush
-- Plymouth
 - Wrexham vs Birmingham
+- Plymouth
 - Pagan
-- Kyle Walker
 - Denis Irwin
+- Kyle Walker
 - Marcus Rashford
-- Anora
-- Jack Butland
-- Europa League table
-- Sainsbury closing cafes
 - Billy Ray Cyrus
+- Sainsbury closing cafes
 - Besiktas
+- Russian spy ship UK waters
+- Rod Stewart
+- Chris Burney
 - Man United vs Rangers
 - Earthquake
 - Virender Sehwag
 - The Night Agent
 - Ranji Trophy
 - Rohit Sharma
+- Netaji subhash Chandra Bose
 - Ravindra Jadeja
 - Suryakumar Yadav
 - Mumbai vs Jammu and Kashmir
-- Subhash Chandra Bose Jayanti
 - Dominic and the Ladies' Purse
 - Shardul Thakur
-- Man City
+- Subhash Chandra Bose Jayanti
 - Oscar nominations 2025
-- अभिषेक शर्मा
+- क्रिकेट
 - PSG
 - Jalgaon
-- Guillain Barre Syndrome
+- In vs ENG
 - England vs India
 - Samsung
 - epgview
