@@ -32,24 +32,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Pagan
 - Night Agent Season 2
-- Anora
-- Billy Ray Cyrus
-- The Substance
-- Hoffenheim vs Tottenham
 - Spurs vs Pacers
+- Billy Ray Cyrus
+- Anora
+- Wordle hint
+- The Substance
+- Mariano Rivera
 - Davos
 - Nickel Boys
 - Conclave
-- Cavs
 - Rod Stewart
-- Arkansas basketball
-- FEMA
+- Tottenham
+- Hegseth
+- Bruins
 - Jurickson Profar
+- FEMA
+- Presidents
 - ICE Immigration
 - Crypto
-- Will Smith
-- Stranger things
-- Game of Thrones
+- The Substance
 - Man United vs Rangers
 - Southport
 - Three network Down
@@ -61,6 +62,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Omar Marmoush
 - Plymouth
 - Pagan
+- Taylor Swift
 - Denis Irwin
 - Kyle Walker
 - Marcus Rashford
@@ -68,11 +70,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sainsbury closing cafes
 - High Potential
 - Besiktas
-- Russian spy ship UK waters
-- Wordle hint
 - Earthquake
 - Virender Sehwag
 - The Night Agent
+- BPSC Result
 - Ranji Trophy
 - Netaji Subhas Chandra Bose
 - Rohit Sharma
@@ -80,11 +81,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mumbai vs Jammu and Kashmir
 - Oscar nominations 2025
 - Shardul Thakur
-- Dominic and the Ladies' Purse
-- अभिषेक शर्मा
+- Dominic and the ladies' purse
 - PSG
 - Guillain Barre Syndrome
-- England vs India
+- In vs ENG
 - Samsung
 - Cricket
 - Sports
