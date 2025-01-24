@@ -31,12 +31,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pagan
+- Spurs vs Pacers
 - Night Agent
+- Barack Obama and Jennifer Aniston
 - Billy Ray Cyrus
 - Djokovic
 - Anora
-- Spurs
-- Wordle hint
 - Davos
 - Mariano Rivera
 - Nuggets
@@ -45,19 +45,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hegseth
 - Jurickson Profar
 - Bruins
+- Illinois basketball
 - ICE Immigration
-- Barack Obama and Jennifer Aniston
 - FEMA
 - PRESIDENTS
 - Crypto
 - Novak Djokovic
+- The Substance
+- JFK
+- What is bubble tea
 - Man United vs Rangers
 - Taylor Swift
 - Oscar nominations 2025
-- Three network. Down
+- Three network Down
 - Hoffenheim vs Tottenham
-- The Night Agent
 - Kyogo
+- The Night Agent
 - Wrexham vs Birmingham
 - Plymouth
 - Pagan
@@ -67,15 +70,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Billy Ray Cyrus
 - Sainsbury closing cafes
 - High Potential
-- Russian spy ship UK waters
-- Wordle hint
-- Chris Burney
 - Novak Djokovic
 - Virender Sehwag
 - Earthquake
 - National Girl Child Day
 - The Night Agent
-- BPSC Result
+- National Girl Child Day 2025
 - Ranji Trophy
 - Real Madrid
 - Rohit Sharma
