@@ -31,33 +31,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pagan
-- Spurs vs Pacers
 - Night Agent
 - Billy Ray Cyrus
 - Djokovic
 - Anora
+- Spurs
 - Mariano Rivera
 - Conclave
 - Gilman Fire
-- Hegseth
 - Bulls vs Warriors
+- Hegseth
+- Tottenham
 - Nuggets
 - Jurickson Profar
-- Illinois basketball
 - Barack Obama and Jennifer Aniston
+- Illinois basketball
 - Bruins
-- Lumbee Tribe
-- FEMA
 - John Ratcliffe
-- Presidents
+- FEMA
+- Andy Ogles
 - Novak Djokovic
 - Garnacho
 - JFK
+- Flight radar
 - Man United vs Rangers
 - Taylor Swift
-- Oscar nominations 2025
 - Three network Down
 - Hoffenheim vs Tottenham
+- Oscar nominations 2025
 - Kyogo
 - Night Agent
 - Bubble tea
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Billy Ray Cyrus
 - Marcus Rashford
 - Sainsbury closing cafes
-- High Potential
 - Novak Djokovic
 - Virender Sehwag
+- BPSC
 - Earthquake
 - National Girl Child Day
+- Ben Shelton
+- Keeway K300 SF
 - The Night Agent
-- Cyient
-- JEE mains admit card
 - Ranji Trophy
+- Mumbai vs Jammu and Kashmir
 - Rohit Sharma
 - Ravindra Jadeja
-- Suryakumar Yadav
 - Shardul Thakur
+- Suryakumar Yadav
 - Oscar nominations 2025
-- Dominic and the Ladies' Purse
 - Netaji
 - Galaxy S25 Ultra
 - Guillain-Barre Syndrome
 - Samsung
 - Cricket
-- ICC
 - epgview
 - best epg
 - epg for iptv
