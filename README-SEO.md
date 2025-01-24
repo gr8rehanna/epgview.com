@@ -32,28 +32,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Pagan
 - Spurs vs Pacers
+- Night Agent
 - Billy Ray Cyrus
 - Anora
 - Djokovic
 - The Substance
 - Wordle hint
-- Night Agent Season 2
 - Davos
-- Nickel Boys
 - Mariano Rivera
-- Cavs
-- Rod Stewart
-- Hegseth
-- Tottenham
 - Nuggets
+- Conclave
+- Crypto
+- Gilman Fire
+- Hegseth
 - Jurickson Profar
-- Mavericks vs Thunder
+- Bulls vs Warriors
 - Bruins
 - ICE Immigration
+- FEMA
+- Novak Djokovic
 - The Substance
 - Windy
+- Glasgow Airport
 - Man United vs Rangers
-- Bebe King
+- Taylor Swift
 - Oscar nominations 2025
 - Hoffenheim vs Tottenham
 - Three network Down
@@ -63,33 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Omar Marmoush
 - Plymouth
 - Pagan
-- Taylor Swift
 - Denis Irwin
 - Kyle Walker
 - Marcus Rashford
 - Billy Ray Cyrus
 - Sainsbury closing cafes
-- High Potential
 - Novak Djokovic
 - Virender Sehwag
 - Earthquake
-- BPSC Result
+- The Night Agent
 - National Girl Child Day
-- JEE mains admit card
+- BPSC Result
 - Ranji Trophy
+- Rohit Sharma
 - Suryakumar Yadav
 - Oscar nominations 2025
 - Dominic and the Ladies' Purse
 - Shardul Thakur
+- Shivam Dube
 - Guillain-Barre Syndrome
-- IN vs ENG
-- Cricket
+- Galaxy S25 Ultra
+- In vs ENG
 - Samsung
+- Cricket
 - ICC
-- Sports
-- Barcelona
-- FC Barcelona
-- IND vs ENG
+- LIVE score
 - epgview
 - best epg
 - epg for iptv
