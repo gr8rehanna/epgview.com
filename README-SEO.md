@@ -31,55 +31,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pete Carroll
+- Lakers
 - Morgan Wallen
 - Flight Risk
 - Robert Saleh
-- NBA All-Star 2025
 - Tesla Model Y
-- Lakers
 - Pagan
 - Barack Obama and Jennifer Aniston
 - Djokovic
 - Pete Hegseth
-- Night Agent
 - Billy Ray Cyrus
 - Anora
 - Spurs
 - The substance
 - Ninja Gaiden
+- Night Agent Season 2
+- Wordle hint
 - Border 2 Fire
 - Man United vs Rangers
-- Nickel Boys
+- Davos
 - Novak Djokovic
+- Ben Shelton
 - JFK
 - Garnacho
 - Flight Risk
-- Bowser
 - Central Cee
+- Bowser
+- Traitors final
 - Man United vs Rangers
 - Taylor Swift
-- Three network Down
+- Three network. Down
 - Oscar nominations 2025
 - Hoffenheim vs Tottenham
 - Snow/ice warning
-- Night Agent
+- Ricin
 - Kyogo
-- Wrexham vs Birmingham
+- Night Agent
 - Plymouth
 - Pagan
 - Denis Irwin
-- Jota
-- Kyle Walker
 - Akshay Kumar Veer Pahariya Sky Force
 - Novak Djokovic
 - Virender Sehwag
 - Earthquake
 - Ben Shelton
 - National Girl Child Day
-- Kerala Blasters
 - The Night Agent
-- Keeway K300 SF
 - National Girl Child Day 2025
+- Keeway K300 SF
 - Cyient
 - JEE mains admit card
 - Dr Agarwal Healthcare IPO
@@ -88,8 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Shardul Thakur
 - Ravindra Jadeja
 - Suryakumar Yadav
-- Netaji subhash Chandra Bose
 - Oscar nominations 2025
+- Galaxy S25 Ultra
+- Guillain-Barre Syndrome
 - epgview
 - best epg
 - epg for iptv
