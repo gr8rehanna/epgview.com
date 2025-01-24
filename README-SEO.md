@@ -35,7 +35,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Morgan Wallen
 - Flight Risk
 - Robert Saleh
+- NBA All-Star 2025
 - Tesla Model Y
+- Spirit Airlines dress code
 - Pagan
 - Barack Obama and Jennifer Aniston
 - Djokovic
@@ -45,12 +47,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Anora
 - Spurs
 - The substance
-- Wordle hint
 - FEMA
-- Face moisturizer recalled nationwide
 - Border 2 Fire
-- Davos
-- Eowyn
+- Face moisturizer recalled nationwide
+- Sheffield United vs Hull City
 - Novak Djokovic
 - Ben Shelton
 - JFK
@@ -60,27 +60,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Flight Risk
 - Rolls-Royce nuclear submarines
 - Joey Barton
+- Hull City
+- Met Office
 - Man United vs Rangers
 - Taylor Swift
-- Three network. Down
 - Oscar nominations 2025
+- Three network. Down
 - Hoffenheim vs Tottenham
-- Snow/ice warning
 - Bruce Willis
 - Kyogo
 - Night Agent
-- Ricin
+- Akshay Kumar, Veer Pahariya Sky Force
 - Novak Djokovic
 - Virender Sehwag
 - Earthquake
-- National Girl Child Day
 - Ben Shelton
+- National Girl Child Day
+- Kerala Blasters
 - The Night Agent
+- National Girl Child Day 2025
 - Keeway K300 SF
-- Akshay Kumar, Veer Pahariya Sky Force
-- Cyient
-- Ranji Trophy
+- Dr Agarwal Healthcare IPO
 - Real Madrid
+- Rohit Sharma
 - Shardul Thakur
 - Suryakumar Yadav
 - Oscar nominations 2025
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Guillain-Barre Syndrome
 - In vs ENG
 - Samsung
-- Cricket
-- ICC
 - epgview
 - best epg
 - epg for iptv
