@@ -33,34 +33,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pagan
 - Spurs vs Pacers
 - Night Agent
-- Barack Obama and Jennifer Aniston
 - Billy Ray Cyrus
+- Barack Obama and Jennifer Aniston
 - Djokovic
 - Anora
-- Davos
 - Mariano Rivera
-- Nuggets
 - Conclave
 - Gilman Fire
 - Hegseth
+- Nuggets
 - Jurickson Profar
-- Bruins
 - Illinois basketball
 - ICE Immigration
+- Bruins
 - FEMA
 - PRESIDENTS
 - Crypto
+- John Ratcliffe
 - Novak Djokovic
-- The Substance
 - JFK
-- What is bubble tea
 - Man United vs Rangers
 - Taylor Swift
-- Oscar nominations 2025
 - Three network Down
+- Oscar nominations 2025
 - Hoffenheim vs Tottenham
 - Kyogo
-- The Night Agent
+- Night Agent
+- Bubble tea
 - Wrexham vs Birmingham
 - Plymouth
 - Pagan
@@ -70,26 +69,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Billy Ray Cyrus
 - Sainsbury closing cafes
 - High Potential
+- Russian spy ship UK waters
 - Novak Djokovic
 - Virender Sehwag
 - Earthquake
 - National Girl Child Day
 - The Night Agent
-- National Girl Child Day 2025
+- Cyient
+- JEE mains admit card
 - Ranji Trophy
-- Real Madrid
+- Mumbai vs Jammu and Kashmir
 - Rohit Sharma
 - Ravindra Jadeja
 - Suryakumar Yadav
 - Oscar nominations 2025
 - Shardul Thakur
 - Dominic and the Ladies' Purse
-- Mumbai vs Jammu and Kashmir Ranji
+- Netaji
 - Guillain-Barre Syndrome
 - Galaxy S25 Ultra
 - Samsung
 - Cricket
-- ICC
 - epgview
 - best epg
 - epg for iptv
