@@ -31,11 +31,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pete Carroll
-- Flight Risk
 - Morgan Wallen
+- Flight Risk
+- Robert Saleh
+- NBA All-Star 2025
 - Tesla Model Y
 - Lakers
 - Pagan
+- Barack Obama and Jennifer Aniston
 - Djokovic
 - Pete Hegseth
 - Night Agent
@@ -43,13 +46,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Anora
 - Spurs
 - The substance
-- Barack Obama and Jennifer Aniston
-- Gilman Fire
+- Ninja Gaiden
+- Border 2 Fire
 - Man United vs Rangers
-- Andy Ogles
-- Mariano Rivera
-- Conclave
-- Nuggets
+- Nickel Boys
 - Novak Djokovic
 - JFK
 - Garnacho
@@ -62,18 +62,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Oscar nominations 2025
 - Hoffenheim vs Tottenham
 - Snow/ice warning
-- Kyogo
 - Night Agent
+- Kyogo
 - Wrexham vs Birmingham
 - Plymouth
 - Pagan
 - Denis Irwin
+- Jota
 - Kyle Walker
-- Billy Ray Cyrus
-- Akshay Kumar, Veer Pahariya Sky Force
+- Akshay Kumar Veer Pahariya Sky Force
 - Novak Djokovic
 - Virender Sehwag
-- BPSC
 - Earthquake
 - Ben Shelton
 - National Girl Child Day
@@ -82,14 +81,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Keeway K300 SF
 - National Girl Child Day 2025
 - Cyient
+- JEE mains admit card
 - Dr Agarwal Healthcare IPO
-- Ranji Trophy
 - Real Madrid
 - Rohit Sharma
 - Shardul Thakur
 - Ravindra Jadeja
 - Suryakumar Yadav
-- Netaji Subhash Chandra Bose
+- Netaji subhash Chandra Bose
+- Oscar nominations 2025
 - epgview
 - best epg
 - epg for iptv
