@@ -30,39 +30,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Pete Carroll
 - Flight Risk
+- Morgan Wallen
 - Lakers
 - Pagan
 - Djokovic
+- Pete Hegseth
 - Night Agent
 - Billy Ray Cyrus
 - Anora
 - Spurs
 - Man United vs Rangers
-- Wordle hint
 - Mariano Rivera
 - Conclave
 - Gilman Fire
-- Hegseth
 - Nuggets
 - Jurickson Profar
 - Barack Obama and Jennifer Aniston
 - Illinois basketball
 - ICE Immigration
-- Bruins
 - Novak Djokovic
 - Garnacho
 - JFK
-- Flight radar
+- The Substance
 - Bowser
 - Man United vs Rangers
 - Taylor Swift
-- Three network. Down
-- Hoffenheim vs Tottenham
+- Three network Down
 - Oscar nominations 2025
+- Hoffenheim vs Tottenham
 - Kyogo
 - Night Agent
-- Bubble tea
 - Wrexham vs Birmingham
 - Plymouth
 - Pagan
@@ -70,6 +69,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kyle Walker
 - Billy Ray Cyrus
 - Marcus Rashford
+- Sainsbury closing cafes
+- Akshay Kumar, Veer Pahariya Sky Force
 - Novak Djokovic
 - Virender Sehwag
 - Earthquake
@@ -78,6 +79,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Keeway K300 SF
 - The Night Agent
 - National Girl Child Day 2025
+- Kerala Blasters
+- Cyient
 - Ranji Trophy
 - Real Madrid
 - Rohit Sharma
@@ -86,10 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Suryakumar Yadav
 - Oscar nominations 2025
 - Netaji
-- Shreyas Iyer
-- Mumbai vs Jammu and Kashmir ranji
 - Galaxy S25 Ultra
-- Guillain-Barre Syndrome
 - epgview
 - best epg
 - epg for iptv
