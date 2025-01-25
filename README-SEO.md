@@ -44,49 +44,49 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Robert Saleh
 - Target DEI
 - Gavin Newsom
+- NBA All-Star 2025
 - Tesla Model Y
-- Section 31
 - Fauci
+- Section 31
 - Spirit Airlines dress code
 - 76ers
-- Pete Hegseth
 - Snow/ice warning
 - Liverpool vs Ipswich Town
-- Sabalenka
 - Wolves vs Arsenal
+- Sabalenka
 - England vs India
 - Claudia Winkleman
+- Man City vs Chelsea
 - Kyle Walker
 - Reese Witherspoon
 - NatWest bank branch closures
+- Wolves
 - Nkunku
 - Morgan Whittaker
-- Adrien Brody
 - Will Ferrell
-- Aitch
-- EuroMillions jackpot
+- Adrien Brody
 - Pete Hegseth
+- Storm Herminia
+- EuroMillions jackpot
 - Traitors
 - Novak Djokovic
-- Ben Shelton
-- Sheffield United
 - England vs India
 - IND vs ENG
 - West Indies vs Pakistan
 - Republic Day
 - ICC
-- Barack Obama
+- Man City vs Chelsea
+- Planets alignment today
 - Coldplay Ahmedabad
-- Harry Brook
 - Identity
-- Sky Force Collection
 - Bengaluru
-- National Voters' Day
+- Padma Awards 2025
+- 26 January 2025 which Republic Day
 - Tahawwur Rana
-- Novak Djokovic
+- National Voters' Day
 - Akshay Kumar Veer Pahariya Sky Force
+- Novak Djokovic
 - National Girl Child Day
-- Dr Agarwal Healthcare IPO
 - Ranji Trophy
 - Real Madrid
 - Shardul Thakur
