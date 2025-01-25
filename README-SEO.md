@@ -40,8 +40,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mikko Rantanen
 - Border 2 Fire
 - Robert Saleh
-- Gavin Newsom
 - Target DEI
+- Gavin Newsom
 - Tesla Model Y
 - Section 31
 - Fauci
@@ -51,12 +51,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FEMA
 - Night Agent
 - Snow/ice warning
+- Sabalenka
 - Claudia Winkleman
+- Kyle Walker
 - Reese Witherspoon
 - NatWest bank branch closures
 - Morgan Whittaker
-- Adrien Brody
 - Nkunku
+- Adrien Brody
 - Will Ferrell
 - Traitors
 - Novak Djokovic
@@ -64,21 +66,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield United
 - JFK
 - Garnacho
+- Neil Diamond
 - Joey Barton
 - Central Cee
 - Hull City
-- FEMA
-- Manchester Airport
-- The substance
-- West Indies vs Pakistan
+- England vs India
+- Barack Obama
 - 26 January Republic Day
+- IND vs ENG Live
 - Sky Force Collection
 - Identity
+- Happy Republic Day
 - National Voters' Day
-- Sky Force box office collection day
+- Akshay Kumar Veer Pahariya Sky Force
 - Novak Djokovic
 - Ben Shelton
-- The Night Agent
+- National Girl Child Day
+- Dr Agarwal Healthcare IPO
 - Ranji Trophy
 - Real Madrid
 - Shardul Thakur
@@ -86,10 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - In vs ENG
 - Samsung
 - Cricket
-- ICC
-- Barcelona
-- FC Barcelona
-- IND vs ENG
 - epgview
 - best epg
 - epg for iptv
