@@ -30,8 +30,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Man City
 - United Airlines Flight emergency landing
-- Chiefs vs Bills
+- Cavs
+- NFC Championship Game
+- Wolves vs Arsenal
 - Brian Schottenheimer
 - Pete Carroll
 - DJ Unk
@@ -46,30 +49,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Gavin Newsom
 - NBA All-Star 2025
 - Tesla Model Y
-- Fauci
 - Section 31
-- Spirit Airlines dress code
-- 76ers
 - Snow/ice warning
 - Liverpool vs Ipswich Town
+- Man City vs Chelsea
 - Wolves vs Arsenal
 - Sabalenka
 - England vs India
+- Burns Night
 - Claudia Winkleman
-- Man City vs Chelsea
+- Everton
 - Kyle Walker
-- Reese Witherspoon
 - NatWest bank branch closures
 - Wolves
 - Nkunku
 - Morgan Whittaker
 - Will Ferrell
+- Frankie Traitors
 - Adrien Brody
 - Pete Hegseth
 - Storm Herminia
 - EuroMillions jackpot
-- Traitors
-- Novak Djokovic
 - England vs India
 - IND vs ENG
 - West Indies vs Pakistan
@@ -79,17 +79,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Planets alignment today
 - Coldplay Ahmedabad
 - Identity
-- Bengaluru
 - Padma Awards 2025
+- Bengaluru
 - 26 January 2025 which Republic Day
 - Tahawwur Rana
 - National Voters' Day
 - Akshay Kumar Veer Pahariya Sky Force
 - Novak Djokovic
 - National Girl Child Day
+- Dr Agarwal healthcare IPO
 - Ranji Trophy
 - Real Madrid
-- Shardul Thakur
 - epgview
 - best epg
 - epg for iptv
