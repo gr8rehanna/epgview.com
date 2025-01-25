@@ -44,18 +44,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Target DEI
 - Tesla Model Y
 - Section 31
-- Fauci
 - Tem
 - Spirit Airlines dress code
 - Pete Hegseth
 - FEMA
 - Djokovic
+- Night Agent
 - Snow/ice warning
 - Claudia Winkleman
 - Reese Witherspoon
 - NatWest bank branch closures
 - Morgan Whittaker
 - Adrien Brody
+- Will Ferrell
 - Traitors
 - Novak Djokovic
 - Ben Shelton
@@ -66,10 +67,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joey Barton
 - Hull City
 - Manchester Airport
-- The substance
 - FEMA
+- The substance
 - Flight Risk
-- Rolls-Royce nuclear submarines
+- West Indies vs Pakistan
 - 26 January Republic Day
 - Identity
 - National Voters' Day
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket
 - ICC
 - Barcelona
-- FC Barcelona
 - epgview
 - best epg
 - epg for iptv
