@@ -30,55 +30,56 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Real Madrid
 - Man City vs Chelsea
 - Bills vs Chiefs
-- Valladolid  Real Madrid
-- Cavs
+- Commanders vs Eagles
+- United Airlines Flight emergency landing
+- Michigan State basketball
 - Liverpool vs Ipswich Town
-- NFC Championship Game
-- Wolves vs Arsenal
+- Gasparilla
 - Brian Schottenheimer
 - Pete Carroll
 - DJ Unk
 - Morgan Wallen tour 2025
 - Flight Risk
+- Purdue basketball
 - LSU vs South Carolina
 - Mikko Rantanen
-- Michigan basketball
+- Cavs
 - Target DEI
 - Robert Saleh
 - Gavin Newsom
-- Purdue basketball
-- Border 2 Fire
 - Man City vs Chelsea
 - Liverpool vs Ipswich Town
 - Snow/ice warning
 - Wolves vs Arsenal
 - Sabalenka
 - England vs India
-- Khusanov
 - Burns Night
 - Michael Sheen
+- Khusanov
 - Bournemouth vs nottm Forest
+- Real Madrid
+- Omar Marmoush
 - Claudia Winkleman
 - Everton
 - Kyle Walker
+- Usman Nurmagomedov
 - Reese Witherspoon
-- NatWest bank branch closures
+- Tycoon
 - Sunderland vs Plymouth Argyle
-- Valladolid vs Real Madrid
-- Norwich City vs Swansea
 - Will Ferrell
-- Nkunku
 - England vs India
 - IND vs ENG
-- West Indies vs Pakistan
 - India Republic Day
+- West Indies vs Pakistan
 - ICC
 - Man City vs Chelsea
 - Barack Obama
 - Planets alignment today
 - 26 January 2025 which Republic Day
+- Sky Force Box Office Collection day
 - Padma Awards 2025
 - Coldplay Ahmedabad
 - Identity
@@ -86,7 +87,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bengaluru
 - Tahawwur Rana
 - National Voters' Day
-- Sky Force Box Office Collection day
 - Novak Djokovic
 - Ranji Trophy
 - Real Madrid
