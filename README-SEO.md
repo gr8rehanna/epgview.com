@@ -31,53 +31,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pete Carroll
-- Lakers
 - Morgan Wallen tour 2025
-- Trump 3rd term
+- Lakers
 - Flight Risk
+- DJ Unk
 - Robert Saleh
-- NBA All-Star 2025
+- LSU vs South Carolina
 - Tesla Model Y
 - Spirit Airlines dress code
 - Pagan
-- Barack Obama and Jennifer Aniston
-- Djokovic
 - Pete Hegseth
+- Djokovic
 - Night Agent
 - Billy Ray Cyrus
 - FEMA
 - Anora
-- Spurs
+- Barack Obama and Jennifer Aniston
 - The substance
 - Border 2 Fire
+- Face moisturizer recalled nationwide
+- Claudia Winkleman
 - Reese Witherspoon
+- Adrien Brody
+- Charlotte Traitors
 - Traitors
-- Sheffield United vs Hull City
 - Novak Djokovic
 - Ben Shelton
+- Sheffield United
 - JFK
 - Garnacho
+- Neil Diamond
 - Central Cee
+- Hull City
 - Flight Risk
 - Joey Barton
 - Rolls-Royce nuclear submarines
 - FEMA
+- NatWest branch closures 2025
 - Brian Brobbey
 - Met Office
-- Man United vs Rangers
-- Taylor Swift
-- Oscar nominations 2025
-- Three network. Down
-- Kyogo
-- Adrien Brody
 - Novak Djokovic
 - Virender Sehwag
 - National Girl Child Day
 - Ben Shelton
-- Kerala Blasters
 - The Night Agent
+- Akshay Kumar Veer Pahariya Sky Force
 - Keeway K300 SF
-- Akshay Kumar, Veer Pahariya Sky Force
 - Dr Agarwal Healthcare IPO
 - Ranji Trophy
 - Real Madrid
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket
 - ICC
 - Barcelona
+- FC Barcelona
 - epgview
 - best epg
 - epg for iptv
