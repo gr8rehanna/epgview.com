@@ -30,7 +30,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Pete Carroll
 - Brian Schottenheimer
 - DJ Unk
 - Morgan Wallen tour 2025
@@ -40,8 +39,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mikko Rantanen
 - Border 2 Fire
 - Robert Saleh
+- Raiders
 - Target DEI
 - Gavin Newsom
+- NBA All-Star 2025
 - Tesla Model Y
 - Section 31
 - Fauci
@@ -49,47 +50,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Spirit Airlines dress code
 - Pete Hegseth
 - FEMA
-- Night Agent
 - Snow/ice warning
 - Sabalenka
+- Liverpool vs Ipswich Town
 - Claudia Winkleman
+- Wolves vs Arsenal
+- England vs India
 - Kyle Walker
 - Reese Witherspoon
 - NatWest bank branch closures
-- Morgan Whittaker
 - Nkunku
+- Morgan Whittaker
 - Adrien Brody
 - Will Ferrell
+- Aitch
+- EuroMillions jackpot
 - Traitors
 - Novak Djokovic
 - Ben Shelton
 - Sheffield United
 - JFK
-- Garnacho
-- Neil Diamond
-- Joey Barton
-- Central Cee
-- Hull City
 - England vs India
+- IND vs ENG
+- West Indies vs Pakistan
+- Republic Day 2025
 - Barack Obama
-- 26 January Republic Day
-- IND vs ENG Live
-- Sky Force Collection
+- Arshdeep Singh
+- Coldplay Ahmedabad
 - Identity
-- Happy Republic Day
+- Sky Force Collection
 - National Voters' Day
-- Akshay Kumar Veer Pahariya Sky Force
+- Sky Force Box Office Collection Day
 - Novak Djokovic
 - Ben Shelton
 - National Girl Child Day
-- Dr Agarwal Healthcare IPO
 - Ranji Trophy
 - Real Madrid
 - Shardul Thakur
 - Guillain-Barre Syndrome
 - In vs ENG
 - Samsung
-- Cricket
 - epgview
 - best epg
 - epg for iptv
