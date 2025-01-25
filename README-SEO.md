@@ -34,45 +34,47 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brian Schottenheimer
 - DJ Unk
 - Lakers
-- Flight Risk
 - Morgan Wallen
-- Purdue basketball
 - LSU vs South Carolina
-- Robert Saleh
 - Mikko Rantanen
-- Target DEI
+- Robert Saleh
+- Purdue basketball
 - Gavin Newsom
+- Target DEI
 - Tesla Model Y
 - Section 31
 - Tem
 - 76ers
 - Spirit Airlines dress code
 - Pete Hegseth
-- Pagan
+- FEMA
 - Djokovic
+- Night Agent
 - Claudia Winkleman
 - Reese Witherspoon
 - Adrien Brody
+- Morgan Whittaker
 - Charlotte Traitors
+- NatWest bank branch closures
 - Traitors
 - Novak Djokovic
 - Ben Shelton
 - Sheffield United
 - JFK
 - Garnacho
-- Neil Diamond
 - Central Cee
 - Hull City
 - Manchester Airport
-- The substance
 - Joey Barton
+- The substance
 - Flight Risk
-- Rolls-Royce nuclear submarines
 - FEMA
-- Brian Brobbey
+- Rolls-Royce nuclear submarines
+- West Indies vs Pakistan
+- Noman Ali
+- 26 January Republic Day
 - Akshay Kumar Veer Pahariya Sky Force
 - Novak Djokovic
-- Virender Sehwag
 - National Girl Child Day
 - Ben Shelton
 - The Night Agent
@@ -81,15 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Shardul Thakur
 - Oscar nominations 2025
+- Galaxy S25 Ultra
 - Guillain-Barre Syndrome
 - In vs ENG
 - Samsung
 - Cricket
 - ICC
 - Barcelona
-- FC Barcelona
-- IND vs ENG
-- India vs England
 - epgview
 - best epg
 - epg for iptv
