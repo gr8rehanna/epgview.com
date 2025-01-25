@@ -31,38 +31,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pete Carroll
+- Brian Schottenheimer
 - Lakers
 - Morgan Wallen tour 2025
 - DJ Unk
-- Flight Risk
-- Robert Saleh
-- LSU vs South Carolina
-- Mikko Rantanen
-- NBA All-Star 2025
 - Purdue basketball
+- Robert Saleh
+- Mikko Rantanen
+- LSU vs South Carolina
+- NBA All-Star 2025
 - Don Julio Popeyes collaboration
 - Tesla Model Y
 - Target DEI
 - Gavin Newsom
 - Section 31
-- Spirit Airlines dress code
 - Tem
+- Spirit Airlines dress code
+- 76ers
 - Pete Hegseth
 - Pagan
-- Djokovic
 - Claudia Winkleman
 - Reese Witherspoon
 - Adrien Brody
 - Charlotte Traitors
 - Traitors
 - Novak Djokovic
-- Ben Shelton
 - Sheffield United
+- Ben Shelton
 - JFK
 - Garnacho
 - Neil Diamond
 - Central Cee
-- Hull City
 - The substance
 - Joey Barton
 - Flight Risk
@@ -70,6 +69,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FEMA
 - Brian Brobbey
 - Met Office
+- Man United vs Rangers
 - Akshay Kumar Veer Pahariya Sky Force
 - Novak Djokovic
 - Virender Sehwag
