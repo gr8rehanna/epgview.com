@@ -33,26 +33,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pete Carroll
 - Lakers
 - Morgan Wallen tour 2025
+- Trump 3rd term
 - Flight Risk
 - Robert Saleh
+- NBA All-Star 2025
 - Tesla Model Y
 - Spirit Airlines dress code
 - Pagan
-- Pete Hegseth
+- Barack Obama and Jennifer Aniston
 - Djokovic
+- Pete Hegseth
 - Night Agent
 - Billy Ray Cyrus
-- Barack Obama and Jennifer Aniston
-- Anora
 - FEMA
+- Anora
 - Spurs
 - The substance
-- Andy Ogles
 - Border 2 Fire
-- Face moisturizer recalled nationwide
+- Reese Witherspoon
+- Traitors
 - Sheffield United vs Hull City
 - Novak Djokovic
-- Traitors final
 - Ben Shelton
 - JFK
 - Garnacho
@@ -60,28 +61,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Flight Risk
 - Joey Barton
 - Rolls-Royce nuclear submarines
-- Neil Diamond
 - FEMA
+- Brian Brobbey
 - Met Office
 - Man United vs Rangers
 - Taylor Swift
 - Oscar nominations 2025
 - Three network. Down
-- Tottenham
-- Bruce Willis
 - Kyogo
-- Akshay Kumar, Veer Pahariya Sky Force
+- Adrien Brody
 - Novak Djokovic
 - Virender Sehwag
-- Earthquake
 - National Girl Child Day
 - Ben Shelton
 - Kerala Blasters
 - The Night Agent
 - Keeway K300 SF
+- Akshay Kumar, Veer Pahariya Sky Force
 - Dr Agarwal Healthcare IPO
+- Ranji Trophy
 - Real Madrid
-- Rohit Sharma
 - Shardul Thakur
 - Oscar nominations 2025
 - Galaxy S25 Ultra
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Samsung
 - Cricket
 - ICC
+- Barcelona
 - epgview
 - best epg
 - epg for iptv
