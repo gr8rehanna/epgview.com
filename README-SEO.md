@@ -30,7 +30,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- United Airlines Flight emergency landing
+- Chiefs vs Bills
 - Brian Schottenheimer
+- Pete Carroll
 - DJ Unk
 - Morgan Wallen tour 2025
 - Flight Risk
@@ -39,23 +42,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mikko Rantanen
 - Border 2 Fire
 - Robert Saleh
-- Raiders
 - Target DEI
 - Gavin Newsom
-- NBA All-Star 2025
 - Tesla Model Y
 - Section 31
 - Fauci
-- Tem
 - Spirit Airlines dress code
+- 76ers
 - Pete Hegseth
-- FEMA
 - Snow/ice warning
-- Sabalenka
 - Liverpool vs Ipswich Town
-- Claudia Winkleman
+- Sabalenka
 - Wolves vs Arsenal
 - England vs India
+- Claudia Winkleman
 - Kyle Walker
 - Reese Witherspoon
 - NatWest bank branch closures
@@ -65,31 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Will Ferrell
 - Aitch
 - EuroMillions jackpot
+- Pete Hegseth
 - Traitors
 - Novak Djokovic
 - Ben Shelton
 - Sheffield United
-- JFK
 - England vs India
 - IND vs ENG
 - West Indies vs Pakistan
-- Republic Day 2025
+- Republic Day
+- ICC
 - Barack Obama
-- Arshdeep Singh
 - Coldplay Ahmedabad
+- Harry Brook
 - Identity
 - Sky Force Collection
+- Bengaluru
 - National Voters' Day
-- Sky Force Box Office Collection Day
+- Tahawwur Rana
 - Novak Djokovic
-- Ben Shelton
+- Akshay Kumar Veer Pahariya Sky Force
 - National Girl Child Day
+- Dr Agarwal Healthcare IPO
 - Ranji Trophy
 - Real Madrid
 - Shardul Thakur
-- Guillain-Barre Syndrome
-- In vs ENG
-- Samsung
 - epgview
 - best epg
 - epg for iptv
