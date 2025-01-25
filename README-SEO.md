@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Pete Carroll
-- Morgan Wallen tour 2025
 - Lakers
-- Flight Risk
+- Morgan Wallen tour 2025
 - DJ Unk
+- Flight Risk
 - Robert Saleh
 - LSU vs South Carolina
+- NBA All-Star 2025
 - Tesla Model Y
+- Purdue basketball
+- Don Julio Popeyes collaboration
+- Target DEI
 - Spirit Airlines dress code
 - Pagan
-- Pete Hegseth
-- Djokovic
-- Night Agent
-- Billy Ray Cyrus
-- FEMA
-- Anora
 - Barack Obama and Jennifer Aniston
+- Djokovic
+- FEMA
+- Billy Ray Cyrus
 - The substance
-- Border 2 Fire
-- Face moisturizer recalled nationwide
+- Night Agent' Season 2
 - Claudia Winkleman
 - Reese Witherspoon
 - Adrien Brody
@@ -63,19 +63,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Neil Diamond
 - Central Cee
 - Hull City
+- The substance
 - Flight Risk
 - Joey Barton
 - Rolls-Royce nuclear submarines
 - FEMA
-- NatWest branch closures 2025
 - Brian Brobbey
 - Met Office
+- Akshay Kumar Veer Pahariya Sky Force
 - Novak Djokovic
-- Virender Sehwag
 - National Girl Child Day
 - Ben Shelton
 - The Night Agent
-- Akshay Kumar Veer Pahariya Sky Force
 - Keeway K300 SF
 - Dr Agarwal Healthcare IPO
 - Ranji Trophy
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICC
 - Barcelona
 - FC Barcelona
+- IND vs ENG
 - epgview
 - best epg
 - epg for iptv
