@@ -31,14 +31,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Real Madrid
-- Man City vs Chelsea
 - Bills vs Chiefs
 - Eagles vs Commanders
+- Man City vs Chelsea
 - Kristi Noem
 - United Airlines flight emergency landing
+- Saturday Night Main Event
+- Man City
 - Gulf of Mexico
-- Saturday Night's Main Event
-- Cavs
 - Pacers vs Spurs
 - PFL
 - Gasparilla
@@ -49,47 +49,47 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mikko Rantanen
 - Flight Risk
 - Michigan basketball
-- LSU vs South Carolina
+- Target DEI
 - WHSmith
 - Man City vs Chelsea
 - Liverpool vs Ipswich Town
 - Wolves vs Arsenal
 - Chelsea
 - Sabalenka
-- England vs India
 - Valladolid vs Real Madrid
 - Burns Night
-- Michael Sheen
 - Omar Marmoush
 - Claudia Winkleman
-- Sunderland vs Plymouth Argyle
 - Everton
+- IND vs ENG
 - Kyle Walker
 - Usman Nurmagomedov
 - Reese Witherspoon
+- Sunderland
 - Will Ferrell
 - Paul McCartney
 - Nkunku
+- Pete Hegseth
 - Valladolid vs Real Madrid
-- Man City
+- Republic Day Speech
 - England vs India
 - IND vs ENG
 - West Indies vs Pakistan
-- Republic Day 2025
-- INDIA Republic Day
-- ICC
-- Cricket
 - Republic Day
+- India Republic Day
+- ICC
 - Man City vs Chelsea
+- Arshdeep Singh
 - Barack Obama
 - Planets alignment today
 - Padma Awards 2025
 - Coldplay Ahmedabad
-- Harry Brook
-- Identity
+- Chelsea
 - Tahawwur Rana
 - Sky Force Box Office Collection
 - National Voters' Day
+- Sky Force Box Office Collection day
+- Novak Djokovic
 - epgview
 - best epg
 - epg for iptv
