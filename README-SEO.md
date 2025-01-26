@@ -32,53 +32,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Lakers
 - Bucks
+- Tottenham vs Leicester City
+- Eagles vs Commanders
 - Bills vs Chiefs
 - Sabalenka
-- Eagles vs Commanders
 - Real Madrid
-- Man City
 - Kristi Noem
 - Tycoon
 - Saturday Night Main Event
+- Man City
 - Timothee Chalamet
-- Lakers vs Warriors
-- Gulf of Mexico
-- Knicks
+- Auburn basketball
 - Kobe Bryant
+- Knicks
 - Dan Snyder
 - BKFC
 - Kansas basketball
 - Tuskegee Airmen
 - Spurs
+- Wind warning
 - Tottenham vs Leicester City
 - Zverev
-- Nick Cave
+- Crystal Palace vs Brentford
+- Aston Villa vs West Ham
 - Spain tourist ban
+- Nick Cave
 - Tom Parker
 - AC MILAN
-- Aston Villa vs West Ham
-- PSG
 - Kirstie Allsopp
+- PSG
 - Chelsea vs Arsenal
 - WHSmith
-- Man City
 - Man City vs Chelsea
+- Man City
 - Liverpool vs Ipswich Town
 - Wolves vs Arsenal
 - Sabalenka
+- Chelsea
 - Michael Sheen
-- Burns Night
-- Omar Marmoush
+- भारत का गणतंत्र दिवस
 - Real Madrid
-- Real Madrid
-- Republic Day in Hindi
 - Alexander Zverev
-- Suryakumar Yadav
 - Thalapathy Vijay
+- Suryakumar Yadav
 - Today
 - Indonesia
 - UPS Unified Pension Scheme
 - IND Vs ENG 2nd T20
+- Why Republic Day is celebrated
 - England vs India
 - India Republic Day
 - IND vs ENG
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Padma Awards 2025
 - Arshdeep Singh
 - Sabalenka
-- Hardik Pandya
 - epgview
 - best epg
 - epg for iptv
