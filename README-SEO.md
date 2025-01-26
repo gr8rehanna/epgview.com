@@ -40,19 +40,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saturday Night Main Event
 - Timothee Chalamet
 - United Airlines flight emergency landing
-- Lakers vs Warriors
 - Gulf of Mexico
 - Gasparilla
 - Knicks
 - Kobe Bryant
+- Dan Snyder
 - BKFC
 - Kansas basketball
 - Spurs
 - Tuskegee Airmen
 - Inspector general
 - Zverev
+- Tottenham vs Leicester City
 - Nick Cave
 - Tom Parker
+- AC MILAN
+- PSG
 - Kirstie Allsopp
 - WHSmith
 - Man City
@@ -67,29 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Claudia Winkleman
 - Everton
 - Usman Nurmagomedov
-- IND vs ENG
-- Manchester City
-- Kyle Walker
+- भारत का गणतंत्र दिवस
 - Real Madrid
+- Republic Day in Hindi
 - Alexander Zverev
 - Suryakumar Yadav
 - Today
+- Thalapathy Vijay
 - Indonesia
 - UPS Unified Pension Scheme
+- Constitution of India
 - England vs India
 - India Republic Day
 - IND vs ENG
-- Republic Day
 - Cricket
-- 26 January
 - ICC
 - Live Score
 - 26 January 2025
 - Padma Awards 2025
 - Arshdeep Singh
 - Sabalenka
-- Man City
-- Hardik Pandya
 - epgview
 - best epg
 - epg for iptv
