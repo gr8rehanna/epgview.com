@@ -30,59 +30,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Barcelona
+- Saquon Barkley
 - Lakers
 - Fulham vs Man United
-- Tottenham vs Leicester City
+- FC Barcelona
+- Columbia
 - Colombia
+- Tottenham vs Leicester City
+- Cam Jurgens
+- AfD
+- What time are the NFL games today
 - Commanders vs Eagles
 - Bills vs Chiefs
+- Sabalenka
 - Real Madrid
 - Timothee Chalamet
-- Man City
 - Kristi Noem
+- Auburn basketball
 - Saturday Night Main Event
-- Sabalenka
-- Kobe Bryant
-- Gulf of Mexico
-- Michigan State basketball
-- Knicks
-- BKFC
-- Kansas basketball
-- Tuskegee Airmen
-- Spurs
-- Wind warning
+- Man City
 - Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
 - Zverev
-- Crystal Palace vs Brentford
 - Spain tourist ban
-- Nick Cave
+- Crystal Palace vs Brentford
+- Dundee United vs Rangers
 - Barcelona vs Valencia
+- Nick Cave
 - Tom Parker
 - Kirstie Allsopp
 - AC Milan
+- Stephen Fry
 - PSG
 - Chelsea vs Arsenal
+- Eagles vs Commanders
+- The Castaways
 - WHSmith
 - Man City vs Chelsea
 - Man City
-- Wolves vs Arsenal
-- Sabalenka
-- Chelsea
-- भारत का गणतंत्र दिवस
 - Real Madrid
 - Alexander Zverev
 - Suryakumar Yadav
-- Flag
 - Today
 - Indonesia
+- 26 जनवरी गणतंत्र दिवस
 - UPS Unified Pension Scheme
 - IND Vs ENG 2nd T20
-- Bigg Boss 11 Kannada Winner
+- Why Republic Day is celebrated
 - India Republic Day
-- England vs India
 - IND vs ENG
+- India vs England
 - Cricket
 - ICC
 - 26 January
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Padma Awards 2025
 - Arshdeep Singh
 - Sabalenka
+- Coldplay Ahmedabad
 - epgview
 - best epg
 - epg for iptv
