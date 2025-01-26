@@ -31,11 +31,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Lakers
+- Fulham vs Man United
 - Tottenham vs Leicester City
 - AfD
 - Eagles vs Commanders
 - Bills vs Chiefs
-- Sabalenka
 - Real Madrid
 - Timothee Chalamet
 - Man City
@@ -43,22 +43,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Saturday Night Main Event
 - Kobe Bryant
 - Gulf of Mexico
-- Michigan State basketball
 - Knicks
+- BKFC
 - Kansas basketball
 - Tuskegee Airmen
 - Spurs
+- Michigan State basketball
 - Gasparilla
-- Harris English
 - Wind warning
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
 - Fulham vs Man United
 - Zverev
+- Crystal Palace vs Brentford
 - Spain tourist ban
 - Nick Cave
 - Tom Parker
-- Crystal Palace
 - AC Milan
 - Kirstie Allsopp
 - PSG
@@ -70,14 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sabalenka
 - Chelsea
 - Michael Sheen
+- भारत का गणतंत्र दिवस
 - Real Madrid
 - Alexander Zverev
-- Republic Day in Hindi
 - Suryakumar Yadav
 - Today
 - Indonesia
 - UPS Unified Pension Scheme
-- SSC GD Exam City 2025
+- IND Vs ENG 2nd T20
 - India Republic Day
 - England vs India
 - IND vs ENG
