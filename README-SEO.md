@@ -31,6 +31,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Bucks
+- Sabalenka
 - Man City vs Chelsea
 - Bills vs Chiefs
 - Eagles vs Commanders
@@ -49,10 +50,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - BKFC
 - Kansas basketball
 - Spurs
-- Tuskegee Airmen
+- Nick Cave
 - Tom Parker
 - WHSmith
-- Man City
+- Kirstie Allsopp
 - Man City vs Chelsea
 - Liverpool vs Ipswich Town
 - Wolves vs Arsenal
@@ -67,29 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND vs ENG
 - Manchester City
 - Kyle Walker
-- West Indies vs Pakistan
 - Reese Witherspoon
-- Tycoon
+- Wolves
 - Real Madrid
 - Suryakumar Yadav
 - Today
 - Indonesia
 - UPS Unified Pension Scheme
-- Padma Awards
+- IND vs ENG 2nd T20
 - England vs India
 - India Republic Day
 - IND vs ENG
 - Republic Day
+- West Indies vs Pakistan
+- Cricket
 - 26 January
-- ICC
 - 26 January 2025
 - Padma Awards 2025
+- Arshdeep Singh
 - Sabalenka
 - Man City
 - Hardik Pandya
 - Coldplay Ahmedabad
-- Identity
-- Score
 - epgview
 - best epg
 - epg for iptv
