@@ -33,34 +33,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - Fulham vs Man United
 - Tottenham vs Leicester City
-- AfD
-- Eagles vs Commanders
+- Colombia
+- Commanders vs Eagles
 - Bills vs Chiefs
 - Real Madrid
 - Timothee Chalamet
 - Man City
 - Kristi Noem
 - Saturday Night Main Event
+- Sabalenka
 - Kobe Bryant
 - Gulf of Mexico
+- Michigan State basketball
 - Knicks
 - BKFC
 - Kansas basketball
 - Tuskegee Airmen
 - Spurs
-- Michigan State basketball
-- Gasparilla
 - Wind warning
+- Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
-- Fulham vs Man United
 - Zverev
 - Crystal Palace vs Brentford
 - Spain tourist ban
 - Nick Cave
+- Barcelona vs Valencia
 - Tom Parker
-- AC Milan
 - Kirstie Allsopp
+- AC Milan
 - PSG
 - Chelsea vs Arsenal
 - WHSmith
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Wolves vs Arsenal
 - Sabalenka
 - Chelsea
-- Michael Sheen
 - भारत का गणतंत्र दिवस
 - Real Madrid
 - Alexander Zverev
 - Suryakumar Yadav
+- Flag
 - Today
 - Indonesia
 - UPS Unified Pension Scheme
 - IND Vs ENG 2nd T20
+- Bigg Boss 11 Kannada Winner
 - India Republic Day
 - England vs India
 - IND vs ENG
 - Cricket
 - ICC
+- 26 January
 - 26 January 2025
 - Padma Awards 2025
 - Arshdeep Singh
 - Sabalenka
-- Coldplay Ahmedabad
-- Sky force collection
-- Identity
 - epgview
 - best epg
 - epg for iptv
