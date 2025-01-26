@@ -32,51 +32,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Bucks
 - Man City vs Chelsea
+- Bills vs Chiefs
 - Eagles vs Commanders
 - Real Madrid
 - Kristi Noem
-- Chiefs vs Bills
 - Saturday Night Main Event
+- Auburn basketball
 - United Airlines flight emergency landing
-- Sabalenka
 - Timothee Chalamet
+- Sabalenka
+- Lakers vs Warriors
+- Spurs
 - Gulf of Mexico
+- Gasparilla
 - Knicks
 - Cavs
 - Kobe Bryant
 - BKFC
 - Kansas basketball
-- Spurs
-- Tuskegee Airmen
-- Gasparilla
-- Usman Nurmagomedov
 - WHSmith
-- Man City vs Chelsea
 - Man City
+- Man City vs Chelsea
 - Liverpool vs Ipswich Town
 - Wolves vs Arsenal
-- Chelsea
 - Sabalenka
+- Michael Sheen
 - Burns Night
+- Valladolid vs Real Madrid
 - Omar Marmoush
 - Real Madrid
 - Claudia Winkleman
 - Everton
-- IND vs ENG
 - Usman Nurmagomedov
+- IND vs ENG
+- Manchester City
 - Kyle Walker
 - Reese Witherspoon
 - Tycoon
 - Wolves
-- Sunderland
-- Will Ferrell
 - Real Madrid
+- Today
 - Indonesia
 - UPS Unified Pension Scheme
 - England vs India
 - India Republic Day
 - IND vs ENG
-- Happy Republic Day
+- Republic Day
+- West Indies vs Pakistan
+- Cricket
 - 26 January
 - ICC
 - 26 January 2025
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hardik Pandya
 - Coldplay Ahmedabad
 - Identity
-- Bengaluru
-- Planet Parade 2025
-- Tahawwur Rana
 - epgview
 - best epg
 - epg for iptv
