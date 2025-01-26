@@ -30,39 +30,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Lakers
 - Bucks
-- Sabalenka
 - Bills vs Chiefs
+- Sabalenka
 - Eagles vs Commanders
 - Real Madrid
 - Man City
 - Kristi Noem
 - Tycoon
 - Saturday Night Main Event
-- Auburn basketball
 - Timothee Chalamet
 - Lakers vs Warriors
-- United Airlines flight emergency landing
 - Gulf of Mexico
 - Knicks
 - Kobe Bryant
+- Dan Snyder
 - BKFC
 - Kansas basketball
-- Spurs
 - Tuskegee Airmen
+- Spurs
 - Tottenham vs Leicester City
 - Zverev
 - Nick Cave
+- Spain tourist ban
 - Tom Parker
 - AC MILAN
-- Spain tourist ban
+- Aston Villa vs West Ham
 - PSG
 - Kirstie Allsopp
 - Chelsea vs Arsenal
 - WHSmith
 - Man City
 - Man City vs Chelsea
-- Wind warning
 - Liverpool vs Ipswich Town
 - Wolves vs Arsenal
 - Sabalenka
@@ -73,23 +73,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Republic Day in Hindi
 - Alexander Zverev
-- Thalapathy Vijay
 - Suryakumar Yadav
+- Thalapathy Vijay
 - Today
 - Indonesia
 - UPS Unified Pension Scheme
-- Constitution of India
+- IND Vs ENG 2nd T20
 - England vs India
 - India Republic Day
 - IND vs ENG
 - Republic Day
 - Cricket
 - ICC
-- Live Score
 - 26 January 2025
 - Padma Awards 2025
 - Arshdeep Singh
 - Sabalenka
+- Hardik Pandya
 - epgview
 - best epg
 - epg for iptv
