@@ -35,61 +35,61 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Eagles vs Commanders
 - Man City vs Chelsea
 - Kristi Noem
+- Man City
 - United Airlines flight emergency landing
 - Saturday Night Main Event
-- Man City
 - Gulf of Mexico
 - Pacers vs Spurs
-- PFL
+- Kansas basketball
 - Gasparilla
 - Inspector general
+- Usman Nurmagomedov
+- BKFC
+- Tuskegee Airmen
+- Pete Hegseth
 - Brian Schottenheimer
+- Pete Carroll
 - DJ Unk
-- Morgan Wallen tour 2025
-- Mikko Rantanen
-- Flight Risk
-- Michigan basketball
-- Target DEI
 - WHSmith
 - Man City vs Chelsea
 - Liverpool vs Ipswich Town
 - Wolves vs Arsenal
 - Chelsea
-- Sabalenka
 - Valladolid vs Real Madrid
+- Sabalenka
 - Burns Night
 - Omar Marmoush
-- Claudia Winkleman
 - Everton
 - IND vs ENG
 - Kyle Walker
 - Usman Nurmagomedov
 - Reese Witherspoon
+- Tycoon
+- Wolves
 - Sunderland
 - Will Ferrell
 - Paul McCartney
 - Nkunku
-- Pete Hegseth
 - Valladolid vs Real Madrid
 - Republic Day Speech
+- Today
+- 26 जनवरी
 - England vs India
 - IND vs ENG
+- India Republic Day
 - West Indies vs Pakistan
 - Republic Day
-- India Republic Day
 - ICC
 - Man City vs Chelsea
 - Arshdeep Singh
-- Barack Obama
 - Planets alignment today
 - Padma Awards 2025
 - Coldplay Ahmedabad
+- Identity
 - Chelsea
 - Tahawwur Rana
 - Sky Force Box Office Collection
 - National Voters' Day
-- Sky Force Box Office Collection day
-- Novak Djokovic
 - epgview
 - best epg
 - epg for iptv
