@@ -40,7 +40,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Auburn basketball
 - United Airlines flight emergency landing
 - Timothee Chalamet
-- Sabalenka
 - Lakers vs Warriors
 - Gulf of Mexico
 - Gasparilla
@@ -50,6 +49,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - BKFC
 - Kansas basketball
 - Spurs
+- Tuskegee Airmen
 - Tom Parker
 - WHSmith
 - Man City
@@ -67,29 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND vs ENG
 - Manchester City
 - Kyle Walker
+- West Indies vs Pakistan
 - Reese Witherspoon
 - Tycoon
-- Wolves
 - Real Madrid
 - Suryakumar Yadav
+- Today
 - Indonesia
 - UPS Unified Pension Scheme
+- Padma Awards
 - England vs India
 - India Republic Day
 - IND vs ENG
 - Republic Day
 - 26 January
 - ICC
-- Live Score
 - 26 January 2025
-- Arshdeep Singh
 - Padma Awards 2025
 - Sabalenka
 - Man City
 - Hardik Pandya
 - Coldplay Ahmedabad
 - Identity
-- Bengaluru
+- Score
 - epgview
 - best epg
 - epg for iptv
