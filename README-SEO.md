@@ -42,7 +42,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Timothee Chalamet
 - Sabalenka
 - Lakers vs Warriors
-- Spurs
 - Gulf of Mexico
 - Gasparilla
 - Knicks
@@ -50,6 +49,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kobe Bryant
 - BKFC
 - Kansas basketball
+- Spurs
+- Tom Parker
 - WHSmith
 - Man City
 - Man City vs Chelsea
@@ -58,7 +59,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sabalenka
 - Michael Sheen
 - Burns Night
-- Valladolid vs Real Madrid
 - Omar Marmoush
 - Real Madrid
 - Claudia Winkleman
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tycoon
 - Wolves
 - Real Madrid
-- Today
+- Suryakumar Yadav
 - Indonesia
 - UPS Unified Pension Scheme
 - England vs India
 - India Republic Day
 - IND vs ENG
 - Republic Day
-- West Indies vs Pakistan
-- Cricket
 - 26 January
 - ICC
+- Live Score
 - 26 January 2025
 - Arshdeep Singh
-- Sabalenka
 - Padma Awards 2025
+- Sabalenka
 - Man City
 - Hardik Pandya
 - Coldplay Ahmedabad
 - Identity
+- Bengaluru
 - epgview
 - best epg
 - epg for iptv
