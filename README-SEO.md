@@ -37,29 +37,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Man City
 - Kristi Noem
+- Tycoon
 - Saturday Night Main Event
+- Auburn basketball
 - Timothee Chalamet
+- Lakers vs Warriors
 - United Airlines flight emergency landing
 - Gulf of Mexico
-- Gasparilla
 - Knicks
 - Kobe Bryant
-- Dan Snyder
 - BKFC
 - Kansas basketball
 - Spurs
 - Tuskegee Airmen
-- Inspector general
-- Zverev
 - Tottenham vs Leicester City
+- Zverev
 - Nick Cave
 - Tom Parker
 - AC MILAN
+- Spain tourist ban
 - PSG
 - Kirstie Allsopp
+- Chelsea vs Arsenal
 - WHSmith
 - Man City
 - Man City vs Chelsea
+- Wind warning
 - Liverpool vs Ipswich Town
 - Wolves vs Arsenal
 - Sabalenka
@@ -67,22 +70,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Burns Night
 - Omar Marmoush
 - Real Madrid
-- Claudia Winkleman
-- Everton
-- Usman Nurmagomedov
-- भारत का गणतंत्र दिवस
 - Real Madrid
 - Republic Day in Hindi
 - Alexander Zverev
+- Thalapathy Vijay
 - Suryakumar Yadav
 - Today
-- Thalapathy Vijay
 - Indonesia
 - UPS Unified Pension Scheme
 - Constitution of India
 - England vs India
 - India Republic Day
 - IND vs ENG
+- Republic Day
 - Cricket
 - ICC
 - Live Score
