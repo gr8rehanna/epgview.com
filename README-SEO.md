@@ -34,47 +34,49 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man City vs Chelsea
 - Bills vs Chiefs
 - Eagles vs Commanders
+- Kristi Noem
 - United Airlines Flight emergency landing
-- Gulf of Mexico
 - Michigan State basketball
+- Cavs
 - Liverpool vs Ipswich Town
+- Nuggets vs Timberwolves
 - Pacers vs Spurs
-- Gasparilla
+- Saturday Night's Main Event
 - PFL
+- Gasparilla
 - Brian Schottenheimer
+- Pete Carroll
 - DJ Unk
 - Morgan Wallen tour 2025
 - Flight Risk
 - Mikko Rantanen
-- Purdue basketball
-- LSU vs South Carolina
-- Cavs
-- Target DEI
+- WHSmith
 - Man City vs Chelsea
-- Liverpool vs Ipswich Town
 - Man City
+- Liverpool vs Ipswich Town
 - Wolves vs Arsenal
+- Chelsea
 - Sabalenka
+- England vs India
 - Valladolid vs Real Madrid
-- Michael Sheen
 - Burns Night
+- Michael Sheen
 - Omar Marmoush
 - Claudia Winkleman
-- Usman Nurmagomedov
 - Sunderland vs Plymouth Argyle
 - Everton
-- IND vs ENG
 - Kyle Walker
+- Usman Nurmagomedov
 - Reese Witherspoon
 - Tycoon
 - Will Ferrell
-- Paul McCartney
-- Nkunku
+- Man City
 - England vs India
 - IND vs ENG
 - India Republic Day
 - West Indies vs Pakistan
 - ICC
+- Cricket
 - Man City vs Chelsea
 - Barack Obama
 - Planets alignment today
@@ -82,14 +84,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Padma Awards 2025
 - Coldplay Ahmedabad
 - Identity
-- Bengaluru
 - Tahawwur Rana
 - National Voters' Day
 - Sky Force box office collection day
 - Novak Djokovic
 - Ranji Trophy
 - Real Madrid
-- Shardul Thakur
 - epgview
 - best epg
 - epg for iptv
