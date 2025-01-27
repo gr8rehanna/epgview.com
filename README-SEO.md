@@ -36,26 +36,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Colombia
 - Barcelona
 - Zverev
+- Super Bowl tickets
 - Columbia
 - Will Shipley
+- James Cook
 - Columbia tariffs
-- Super Bowl tickets
 - Tom Brady
+- FC Barcelona
 - Kelsey Plum
 - Declan Doyle
 - Deandre hopkins
-- Patrick Mahomes stats
 - Watson
 - Cam Jurgens
 - Bills vs Chiefs
 - Commanders vs Eagles
-- Timothee Chalamet
 - Nvidia
-- Super Bowl 2025
 - Chiefs
+- Super Bowl 2025
 - Auschwitz
 - Pauline Quirke
 - Colombia
+- Jamie Vardy
 - Fulham vs Man United
 - Aston Villa vs West Ham
 - Tottenham vs Leicester City
@@ -66,15 +67,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Nick Cave
 - Eagles vs Commanders
-- Leicester City
 - Kirstie Allsopp
 - Stephen Fry
 - AC Milan
-- Guillain Barre Syndrome
+- Nvidia share price
+- Mitchell Owen
+- Guillain-Barre Syndrome
 - Denta Water IPO Allotment Status
 - CDSL share price
-- Mitchell Owen
 - Budget 2025 date
+- FC Barcelona
 - UCC
 - Jasprit Bumrah
 - Colombia
@@ -86,10 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - SURYAKUMAR YADAV
 - Indonesia
 - UPS Unified Pension Scheme
-- Sabalenka
 - India Republic Day
 - IND vs ENG
-- Cricket
 - epgview
 - best epg
 - epg for iptv
