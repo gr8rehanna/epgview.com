@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Barcelona
-- FC Barcelona
-- Will Shipley
-- Fulham vs Man United
-- Columbia
+- Patrick Mahomes
+- Zverev
 - Colombia
-- Tennessee basketball
+- Will Shipley
+- Columbia
+- Fulham vs Man United
+- FC Barcelona
 - Tottenham vs Leicester City
 - Cam Jurgens
-- Patrick Mahomes stats
+- What time are the NFL games today
+- Is Taylor Swift at the Chiefs game today
 - Commanders vs Eagles
 - Bills vs Chiefs
 - Sabalenka
 - Timothee Chalamet
 - Real Madrid
 - Kristi Noem
+- Auburn basketball
 - Saturday Night Main Event
-- Man City
-- Kobe Bryant
-- BKFC
 - Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
@@ -61,8 +61,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nick Cave
 - Tom Parker
 - Kirstie Allsopp
-- AC Milan
 - Eagles vs Commanders
+- AC Milan
 - Stephen Fry
 - PSG
 - The Castaways
@@ -84,12 +84,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND vs ENG
 - India vs England
 - Republic Day
-- Cricket
-- ICC
 - 26 January
-- 26 January 2025
+- Cricket
 - Padma Awards 2025
 - Arshdeep Singh
+- Sabalenka
+- Coldplay Ahmedabad
 - epgview
 - best epg
 - epg for iptv
