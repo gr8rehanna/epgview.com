@@ -30,33 +30,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Super Bowl 59
 - Super Bowl 2025 date
 - Nvidia stock
 - Taylor Swift
 - Colombia
 - Barcelona
 - Zverev
-- Super Bowl tickets
 - Columbia
+- Super Bowl tickets
 - Will Shipley
-- James Cook
 - Columbia tariffs
 - Tom Brady
-- FC Barcelona
 - Kelsey Plum
 - Declan Doyle
-- Deandre hopkins
+- DeAndre Hopkins
 - Watson
 - Cam Jurgens
 - Bills vs Chiefs
 - Commanders vs Eagles
-- Nvidia
-- Chiefs
+- Sabalenka
+- Nvidia stock
 - Super Bowl 2025
 - Auschwitz
+- Chiefs
 - Pauline Quirke
 - Colombia
+- Marcus Rashford
 - Jamie Vardy
+- Holocaust Memorial Day 2025
 - Fulham vs Man United
 - Aston Villa vs West Ham
 - Tottenham vs Leicester City
@@ -67,12 +69,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Nick Cave
 - Eagles vs Commanders
-- Kirstie Allsopp
-- Stephen Fry
-- AC Milan
+- Leicester City
 - Nvidia share price
 - Mitchell Owen
-- Guillain-Barre Syndrome
+- Guillain Barre Syndrome
 - Denta Water IPO Allotment Status
 - CDSL share price
 - Budget 2025 date
@@ -80,8 +80,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - UCC
 - Jasprit Bumrah
 - Colombia
-- Real Madrid
 - SSC GD
+- Real Madrid
 - Alexander Zverev
 - SSC GD Admit Card 2025
 - Today
