@@ -30,8 +30,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Barcelona
 - Patrick Mahomes
+- Travis Kelce
 - Zverev
 - Colombia
 - Will Shipley
@@ -40,16 +40,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FC Barcelona
 - Tottenham vs Leicester City
 - Cam Jurgens
+- Super Bowl tickets
+- AfD
 - What time are the NFL games today
-- Is Taylor Swift at the Chiefs game today
-- Commanders vs Eagles
+- Deandre hopkins
+- Columbia tariffs
 - Bills vs Chiefs
+- Commanders vs Eagles
 - Sabalenka
 - Timothee Chalamet
 - Real Madrid
-- Kristi Noem
-- Auburn basketball
-- Saturday Night Main Event
+- Chiefs vs Bills
+- Al-Nassr
 - Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
@@ -68,15 +70,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Castaways
 - Chelsea vs Arsenal
 - WHSmith
-- Man City vs Chelsea
-- Man City
 - Barcelona vs Valencia
 - Real Madrid
 - Alexander Zverev
 - Suryakumar Yadav
 - Today
 - Indonesia
-- 26 जनवरी गणतंत्र दिवस
 - UPS Unified Pension Scheme
 - IND Vs ENG 2nd T20
 - Why Republic Day is celebrated
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arshdeep Singh
 - Sabalenka
 - Coldplay Ahmedabad
+- Identity
 - epgview
 - best epg
 - epg for iptv
