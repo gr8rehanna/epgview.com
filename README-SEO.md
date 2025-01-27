@@ -32,7 +32,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Taylor Swift
 - Superbowl 2025
-- Super Bowl 2025 Date
+- Super Bowl 2025 date
 - Colombia
 - Barcelona
 - Zverev
@@ -41,18 +41,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Columbia tariffs
 - Fulham vs Man United
 - Super Bowl tickets
-- Watson
-- Declan Doyle
 - Kelsey Plum
 - Patrick Mahomes stats
 - Deandre hopkins
+- Watson
 - Tottenham vs Leicester City
 - Cam Jurgens
+- AfD
 - Bills vs Chiefs
 - Commanders vs Eagles
 - Chiefs vs Bills
 - Super Bowl 2025
-- Jamie Vardy
 - Pauline Quirke
 - Fulham vs Man United
 - Tottenham vs Leicester City
@@ -60,20 +59,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona vs Valencia
 - Spain tourist ban
 - Zverev
-- Crystal Palace vs Brentford
 - Nick Cave
 - Eagles vs Commanders
 - Kirstie Allsopp
+- Crystal Palace
 - AC Milan
 - Stephen Fry
 - The Castaways
 - Psg
 - Bournemouth
 - Chelsea vs Arsenal
+- WHSmith
 - Barcelona vs Valencia
 - Guillain-Barre Syndrome
 - Denta Water IPO allotment status
 - CDSL share price
+- SSC GD Constable Exam city admit card
 - 26 January Republic Day parade
 - Alexander Zverev
 - SSC GD
@@ -81,7 +82,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - SURYAKUMAR YADAV
 - Indonesia
 - UPS Unified Pension Scheme
-- IND Vs ENG 2nd T20
 - Sabalenka
 - India Republic Day
 - IND vs ENG
