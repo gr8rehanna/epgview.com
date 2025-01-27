@@ -32,33 +32,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Earthquake
 - Manchester United
-- CNBC
-- Kevin Costner
-- Brightspace
 - Holocaust Remembrance Day
+- Brightspace
+- Kevin Costner
 - SOFI) stock
+- Clock
+- Chiefs
 - Super Bowl 2025
 - Nvidia stock
 - Taylor Swift
+- Colombia
 - Barcelona
 - Zverev
 - Columbia
 - Columbia tariffs
 - Will Shipley
-- Spain tourist ban
 - Tom Brady
 - Watson
 - Kareem Hunt
-- Kelsey Plum
 - Nvidia stock
 - Man Utd
-- Super Bowl 2025
 - Auschwitz
+- Super Bowl 2025
 - Chiefs
 - Pauline Quirke
-- Marcus Rashford
-- Jota
 - HMPV virus cases
+- Jota
+- Marcus Rashford
+- Burnley vs Leeds United
 - Colombia
 - Holocaust Memorial Day 2025
 - The Vivienne
@@ -69,7 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Spain tourist ban
 - Zverev
 - Vitamin a
-- Eagles vs Commanders
 - Waqf (Amendment) Bill
 - Nvidia share price
 - Mitchell Owen
