@@ -33,8 +33,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Saquon Barkley
 - Lakers
-- Fulham vs Man United
 - FC Barcelona
+- Fulham vs Man United
 - Columbia
 - Colombia
 - Tottenham vs Leicester City
@@ -44,32 +44,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Commanders vs Eagles
 - Bills vs Chiefs
 - Sabalenka
-- Real Madrid
 - Timothee Chalamet
+- Real Madrid
+- Man City
 - Kristi Noem
 - Auburn basketball
 - Saturday Night Main Event
-- Man City
 - Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
 - Zverev
+- Barcelona vs Valencia
 - Spain tourist ban
 - Crystal Palace vs Brentford
 - Dundee United vs Rangers
-- Barcelona vs Valencia
 - Nick Cave
 - Tom Parker
 - Kirstie Allsopp
 - AC Milan
 - Stephen Fry
+- Eagles vs Commanders
+- Storm Herminia weather warning
 - PSG
 - Chelsea vs Arsenal
-- Eagles vs Commanders
 - The Castaways
 - WHSmith
 - Man City vs Chelsea
-- Man City
+- Barcelona vs Valencia
 - Real Madrid
 - Alexander Zverev
 - Suryakumar Yadav
@@ -82,14 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - India Republic Day
 - IND vs ENG
 - India vs England
+- Republic Day
 - Cricket
 - ICC
 - 26 January
 - 26 January 2025
 - Padma Awards 2025
 - Arshdeep Singh
-- Sabalenka
-- Coldplay Ahmedabad
 - epgview
 - best epg
 - epg for iptv
