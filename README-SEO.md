@@ -31,43 +31,43 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Taylor Swift
-- Patrick Mahomes
 - Superbowl 2025
 - Super Bowl 2025 Date
 - Colombia
 - Barcelona
+- Zverev
 - Columbia
 - Will Shipley
 - Columbia tariffs
 - Fulham vs Man United
-- Tom Brady
-- FC Barcelona
 - Super Bowl tickets
+- Watson
+- Declan Doyle
 - Kelsey Plum
+- Patrick Mahomes stats
 - Deandre hopkins
 - Tottenham vs Leicester City
 - Cam Jurgens
-- Morris Chestnut
-- AfD
 - Bills vs Chiefs
+- Commanders vs Eagles
 - Chiefs vs Bills
 - Super Bowl 2025
 - Jamie Vardy
+- Pauline Quirke
 - Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
 - Barcelona vs Valencia
-- Zverev
 - Spain tourist ban
+- Zverev
+- Crystal Palace vs Brentford
 - Nick Cave
-- Tom Parker
 - Eagles vs Commanders
 - Kirstie Allsopp
-- Crystal Palace
 - AC Milan
 - Stephen Fry
-- Psg
 - The Castaways
+- Psg
 - Bournemouth
 - Chelsea vs Arsenal
 - Barcelona vs Valencia
@@ -75,14 +75,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Denta Water IPO allotment status
 - CDSL share price
 - 26 January Republic Day parade
-- Real Madrid
 - Alexander Zverev
 - SSC GD
-- SURYAKUMAR YADAV
 - Today
+- SURYAKUMAR YADAV
 - Indonesia
 - UPS Unified Pension Scheme
 - IND Vs ENG 2nd T20
+- Sabalenka
 - India Republic Day
 - IND vs ENG
 - India vs England
