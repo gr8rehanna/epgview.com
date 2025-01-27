@@ -30,36 +30,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Taylor Swift
 - Super Bowl 2025 date
+- Nvidia stock
+- Taylor Swift
 - Colombia
 - Barcelona
 - Zverev
 - Columbia
 - Will Shipley
 - Columbia tariffs
-- Tom Brady
-- FC Barcelona
 - Super Bowl tickets
+- Tom Brady
 - Kelsey Plum
 - Declan Doyle
-- Patrick Mahomes stats
 - Deandre hopkins
+- Patrick Mahomes stats
 - Watson
-- Super Bowl 2025 Date and location
 - Cam Jurgens
 - Bills vs Chiefs
 - Commanders vs Eagles
-- Chiefs vs Bills
+- Timothee Chalamet
+- Nvidia
 - Super Bowl 2025
-- Pauline Quirke
+- Chiefs
 - Auschwitz
+- Pauline Quirke
 - Colombia
-- Marcus Rashford
-- Holocaust Memorial Day
 - Fulham vs Man United
-- Tottenham vs Leicester City
 - Aston Villa vs West Ham
+- Tottenham vs Leicester City
 - Spain tourist ban
 - Zverev
 - Crystal Palace vs Brentford
@@ -67,16 +66,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Nick Cave
 - Eagles vs Commanders
-- Tom Parker
+- Leicester City
 - Kirstie Allsopp
 - Stephen Fry
+- AC Milan
 - Guillain Barre Syndrome
 - Denta Water IPO Allotment Status
 - CDSL share price
-- Budget 2025 date
 - Mitchell Owen
-- Barca
+- Budget 2025 date
 - UCC
+- Jasprit Bumrah
+- Colombia
 - Real Madrid
 - SSC GD
 - Alexander Zverev
@@ -87,9 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - UPS Unified Pension Scheme
 - Sabalenka
 - India Republic Day
+- IND vs ENG
 - Cricket
-- IND vs ENG T20
-- Tilak Varma
 - epgview
 - best epg
 - epg for iptv
