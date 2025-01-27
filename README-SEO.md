@@ -30,28 +30,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Patrick Mahomes
-- Travis Kelce
-- Zverev
+- Taylor Swift
 - Colombia
+- Lakers
+- Barcelona
+- Zverev
 - Will Shipley
 - Columbia
 - Fulham vs Man United
 - FC Barcelona
+- Terry McLaurin
+- Tennessee basketball
+- Kelsey Plum
+- Patrick Mahomes stats
+- Declan Doyle
 - Tottenham vs Leicester City
-- Cam Jurgens
 - Super Bowl tickets
-- AfD
-- What time are the NFL games today
+- Cam Jurgens
 - Deandre hopkins
 - Columbia tariffs
-- Bills vs Chiefs
-- Commanders vs Eagles
-- Sabalenka
-- Timothee Chalamet
-- Real Madrid
+- AfD
 - Chiefs vs Bills
-- Al-Nassr
+- Al Nassr
 - Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
@@ -61,7 +61,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Crystal Palace vs Brentford
 - Dundee United vs Rangers
 - Nick Cave
-- Tom Parker
 - Kirstie Allsopp
 - Eagles vs Commanders
 - AC Milan
@@ -70,21 +69,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Castaways
 - Chelsea vs Arsenal
 - WHSmith
+- Man City vs Chelsea
 - Barcelona vs Valencia
 - Real Madrid
 - Alexander Zverev
 - Suryakumar Yadav
+- Flag
 - Today
 - Indonesia
 - UPS Unified Pension Scheme
 - IND Vs ENG 2nd T20
-- Why Republic Day is celebrated
 - India Republic Day
 - IND vs ENG
-- India vs England
 - Republic Day
-- 26 January
+- India vs England
 - Cricket
+- 26 January 2025
 - Padma Awards 2025
 - Arshdeep Singh
 - Sabalenka
