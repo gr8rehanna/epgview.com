@@ -31,8 +31,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Taylor Swift
-- Super Bowl 2025 date
 - Superbowl 2025
+- Super Bowl 2025 date
 - Colombia
 - Barcelona
 - Zverev
@@ -46,10 +46,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Patrick Mahomes stats
 - Deandre hopkins
 - Watson
-- Tottenham vs Leicester City
 - Cam Jurgens
 - Bills vs Chiefs
 - Commanders vs Eagles
+- Sabalenka
 - Chiefs vs Bills
 - Super Bowl 2025
 - Pauline Quirke
@@ -62,34 +62,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Spain tourist ban
 - Zverev
 - Crystal Palace vs Brentford
+- Vitamin a
 - Nick Cave
 - Eagles vs Commanders
-- Tom Parker
 - Kirstie Allsopp
 - Crystal Palace
-- AC Milan
 - Stephen Fry
+- AC Milan
 - The Castaways
-- Barcelona vs Valencia
-- Guillain Barre Syndrome
 - Denta Water IPO allotment status
+- Guillain Barre Syndrome
 - CDSL share price
 - Budget 2025 date
-- 26 January Republic Day parade
+- Barca
+- UCC
 - Real Madrid
 - Alexander Zverev
 - SSC GD
 - Today
-- SURYAKUMAR YADAV
 - SSC GD exam city 2025
+- SURYAKUMAR YADAV
 - Indonesia
 - UPS Unified Pension Scheme
 - Sabalenka
 - India Republic Day
-- IND vs ENG
-- India vs England
 - Cricket
 - 26 January
+- Tilak Varma
+- 26 January 2025
 - epgview
 - best epg
 - epg for iptv
