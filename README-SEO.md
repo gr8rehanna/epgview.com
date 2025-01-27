@@ -31,30 +31,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Barcelona
-- Saquon Barkley
-- Lakers
 - FC Barcelona
+- Will Shipley
 - Fulham vs Man United
 - Columbia
 - Colombia
+- Tennessee basketball
 - Tottenham vs Leicester City
 - Cam Jurgens
-- AfD
-- What time are the NFL games today
+- Patrick Mahomes stats
 - Commanders vs Eagles
 - Bills vs Chiefs
 - Sabalenka
 - Timothee Chalamet
 - Real Madrid
-- Man City
 - Kristi Noem
-- Auburn basketball
 - Saturday Night Main Event
+- Man City
+- Kobe Bryant
+- BKFC
 - Fulham vs Man United
 - Tottenham vs Leicester City
 - Aston Villa vs West Ham
-- Zverev
 - Barcelona vs Valencia
+- Zverev
 - Spain tourist ban
 - Crystal Palace vs Brentford
 - Dundee United vs Rangers
@@ -62,14 +62,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tom Parker
 - Kirstie Allsopp
 - AC Milan
-- Stephen Fry
 - Eagles vs Commanders
-- Storm Herminia weather warning
+- Stephen Fry
 - PSG
-- Chelsea vs Arsenal
 - The Castaways
+- Chelsea vs Arsenal
 - WHSmith
 - Man City vs Chelsea
+- Man City
 - Barcelona vs Valencia
 - Real Madrid
 - Alexander Zverev
