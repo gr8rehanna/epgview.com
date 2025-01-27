@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
-- Tesla stock
 - Manchester United
 - CNBC
+- Kevin Costner
 - Brightspace
 - Holocaust Remembrance Day
+- SOFI) stock
 - Super Bowl 2025
 - Nvidia stock
 - Taylor Swift
-- Colombia
 - Barcelona
 - Zverev
 - Columbia
-- Spain tourist ban
-- Will Shipley
 - Columbia tariffs
+- Will Shipley
+- Spain tourist ban
 - Tom Brady
 - Watson
 - Kareem Hunt
-- FC Barcelona
+- Kelsey Plum
 - Nvidia stock
 - Man Utd
 - Super Bowl 2025
@@ -57,10 +57,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chiefs
 - Pauline Quirke
 - Marcus Rashford
+- Jota
 - HMPV virus cases
 - Colombia
 - Holocaust Memorial Day 2025
 - The Vivienne
+- Columbia
 - Fulham vs Man United
 - Aston Villa vs West Ham
 - Tottenham vs Leicester City
@@ -68,11 +70,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Zverev
 - Vitamin a
 - Eagles vs Commanders
-- Nick Cave
-- Storm Herminia weather warning
+- Waqf (Amendment) Bill
 - Nvidia share price
 - Mitchell Owen
-- Denta Water IPO allotment status
+- Denta Water IPO Allotment Status
 - Guillain-Barre Syndrome
 - Budget 2025 date
 - CDSL share price
@@ -81,15 +82,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jasprit Bumrah
 - Colombia
 - Chinese New Year 2025
+- Sridhar Vembu
 - SSC GD
 - Today
 - Alexander Zverev
-- SSC GD Admit Card 2025
 - SURYAKUMAR YADAV
 - Indonesia
 - Republic
 - India Republic Day
-- IND vs ENG
 - epgview
 - best epg
 - epg for iptv
