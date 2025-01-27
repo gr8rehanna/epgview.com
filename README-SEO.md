@@ -43,22 +43,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Columbia tariffs
 - Will Shipley
 - Tom Brady
+- Watson
+- FC Barcelona
 - Kelsey Plum
 - Declan Doyle
-- DeAndre Hopkins
-- Watson
+- Deandre hopkins
 - Cam Jurgens
 - Bills vs Chiefs
-- Commanders vs Eagles
 - Nvidia stock
+- Man Utd
 - Super Bowl 2025
 - Auschwitz
 - Chiefs
 - Pauline Quirke
 - Marcus Rashford
 - Colombia
-- Jamie Vardy
 - Holocaust Memorial Day 2025
+- HMPV virus cases
 - Fulham vs Man United
 - Aston Villa vs West Ham
 - Tottenham vs Leicester City
@@ -67,29 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Vitamin a
 - Eagles vs Commanders
 - Nick Cave
+- Storm Herminia weather warning
 - Kirstie Allsopp
-- Crystal Palace
-- Stephen Fry
 - Nvidia share price
 - Mitchell Owen
 - Guillain Barre Syndrome
 - Denta Water IPO Allotment Status
 - Budget 2025 date
 - CDSL share price
-- FC Barcelona
 - UCC
+- FC Barcelona
 - Jasprit Bumrah
 - Colombia
 - SSC GD
-- Real Madrid
 - Today
 - Alexander Zverev
 - SSC GD Admit Card 2025
 - SURYAKUMAR YADAV
 - Indonesia
-- UPS Unified Pension Scheme
+- Republic
 - India Republic Day
 - IND vs ENG
+- Cricket
 - epgview
 - best epg
 - epg for iptv
