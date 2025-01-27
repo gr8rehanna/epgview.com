@@ -31,12 +31,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
-- Manchester United
+- Dow Jones
+- Social Security
+- Where's my refund
 - Holocaust Remembrance Day
+- Chess
 - Brightspace
 - Kevin Costner
 - SOFI) stock
 - Clock
+- Music
 - Chiefs
 - Super Bowl 2025
 - Nvidia stock
@@ -46,35 +50,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Zverev
 - Columbia
 - Columbia tariffs
-- Will Shipley
-- Tom Brady
-- Watson
-- Kareem Hunt
 - Nvidia stock
 - Man Utd
 - Auschwitz
 - Super Bowl 2025
+- Leeds United
+- Burnley vs Leeds United
 - Chiefs
-- Pauline Quirke
 - HMPV virus cases
+- Pauline Quirke
 - Jota
 - Marcus Rashford
-- Burnley vs Leeds United
-- Colombia
 - Holocaust Memorial Day 2025
 - The Vivienne
+- Nasdaq
+- Colombia
 - Columbia
 - Fulham vs Man United
 - Aston Villa vs West Ham
-- Tottenham vs Leicester City
 - Spain tourist ban
 - Zverev
-- Vitamin a
-- Waqf (Amendment) Bill
+- Waqf Amendment Bill
 - Nvidia share price
 - Mitchell Owen
-- Denta Water IPO Allotment Status
 - Guillain-Barre Syndrome
+- Denta Water IPO Allotment Status
 - Budget 2025 date
 - CDSL share price
 - UCC
