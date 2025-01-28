@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
+- IRS
 - Social Security
 - Games
 - Jimmy Butler
+- The Bachelor
 - Lunar New Year
+- Amd stock
 - Holocaust Remembrance Day
 - Chess
-- Brightspace
+- QQQ
+- Matthew Huttle
 - SOFI) stock
 - Perplexity
 - Kevin Costner
 - Music
-- The Bachelor
+- TGL
 - Aspen
+- Basketball
 - Super Bowl 2025
-- Chiefs
-- Nvidia stock
-- Commanders
-- Taylor Swift
-- Colombia
 - David Coote
 - Nvidia stock
 - Man Utd
@@ -59,17 +59,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Man United
 - HMPV virus cases
 - Saquon Barkley
-- Chiefs
 - Pauline Quirke
+- Chiefs
 - The Vivienne
 - Nasdaq
-- Holocaust Memorial Day 2025
 - Jota
+- Holocaust Memorial Day 2025
 - Colombia
-- Al-Nassr
 - Leeds
 - Columbia
 - Wind warning
+- Fulham vs Man United
 - Waqf Amendment Bill
 - Nvidia share price
 - Mitchell Owen
@@ -83,13 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jasprit Bumrah
 - Colombia
 - Chinese New Year 2025
-- Sridhar Vembu
 - Alexander Zverev
 - SURYAKUMAR YADAV
 - Indonesia
 - Republic
 - India Republic Day
 - IND vs ENG
+- Cricket
 - epgview
 - best epg
 - epg for iptv
