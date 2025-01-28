@@ -32,13 +32,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Earthquake
 - The Bachelor
-- Dow Jones
 - IRS
-- Social Security
 - Jimmy Butler
+- Social Security
+- Matthew Huttle
 - Lunar New Year
 - Amd stock
-- Matthew Huttle
+- Duke basketball
 - Holocaust Remembrance Day
 - TGL
 - Bird flu
@@ -47,9 +47,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Perplexity
 - Kevin Costner
 - Michigan basketball
+- Rockets vs Celtics
 - Music
-- Uncle Si Duck Dynasty
-- Aspen
+- Teddy Swims
 - David Coote
 - Almost Famous
 - Nvidia stock
@@ -68,17 +68,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Colombia
 - Leeds
 - Columbia
-- Wind warning
 - Fulham vs Man United
+- Wind warning
 - Waqf Amendment Bill
 - Bajaj Housing Finance share
 - Nvidia share price
-- Mitchell Owen
-- Guillain-Barre Syndrome
 - Denta Water IPO Allotment Status
+- Guillain-Barre Syndrome
 - CDSL share price
 - UCC
 - FC Barcelona
+- Share market Today
 - Colombia
 - Sridhar Vembu
 - Budget 2025
