@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
+- Snake
 - The Bachelor
 - IRS
 - Jimmy Butler
 - Social Security
+- Duke basketball
 - Matthew Huttle
 - Lunar New Year
 - Amd stock
-- Duke basketball
+- LaMelo Ball
 - Holocaust Remembrance Day
 - TGL
 - Bird flu
+- VOO
 - QQQ
+- Chess
 - SOFI) stock
 - Perplexity
-- Kevin Costner
 - Michigan basketball
-- Rockets vs Celtics
-- Music
-- Teddy Swims
 - David Coote
 - Almost Famous
 - Nvidia stock
@@ -59,9 +59,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Super Bowl 2025
 - HMPV virus cases
 - Pauline Quirke
-- Saquon Barkley
 - Chiefs
 - Marcus Rashford
+- Philadelphia Eagles
 - The Vivienne
 - Jota
 - Holocaust Memorial Day 2025
@@ -69,20 +69,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Leeds
 - Columbia
 - Fulham vs Man United
-- Wind warning
-- Waqf Amendment Bill
+- Aston Villa vs West Ham
+- Nothing Phone 3a
+- Waqf (Amendment) Bill
 - Bajaj Housing Finance share
 - Nvidia share price
 - Denta Water IPO Allotment Status
 - Guillain-Barre Syndrome
+- Share Market Today
+- Budget 2025 date
 - CDSL share price
 - UCC
 - FC Barcelona
-- Share market Today
 - Colombia
-- Sridhar Vembu
-- Budget 2025
-- Alexander Zverev
+- Idfc first bank share price
 - SURYAKUMAR YADAV
 - Indonesia
 - Republic
