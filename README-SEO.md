@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Citizens Bank
 - Mar
+- Citizens Bank
 - Tuberculosis
-- Bucks
 - Jim Acosta
+- Bucks
 - Neymar
-- Earthquake
+- Snake
+- Earthquake Boston
 - Dow Jones
-- Afc championship game
 - Jimmy Butler
+- Nfc championship game
 - IRS
 - Social Security
+- Games
 - The Bachelor
 - Duke Basketball
-- Games
-- Nasdaq
-- Lunar New Year
-- Amd stock
+- Rockets vs Celtics
 - LaMelo Ball
-- Holocaust Remembrance Day
+- Amd stock
+- Arizona basketball
 - David Coote
+- England vs India
 - Coca-Cola recalls drinks
 - Neymar
-- England vs India
-- Almost Famous
 - Radio 1 Big Weekend 2025
-- Nvidia stock
-- Man Utd
+- Almost Famous
+- NVIDIA stock
 - Leeds United
+- Man Utd
 - Auschwitz
 - Super Bowl 2025
 - HMPV virus cases
 - Chiefs
+- Man United
 - Eagles
 - Marcus Rashford
 - The Vivienne
-- Nasdaq
 - Hedge maze
+- Jota
 - Holocaust Memorial Day 2025
-- NVDA
 - England vs India
-- Kris Gopalakrishnan
+- IND vs ENG
 - Mohammed Shami
+- Kris Gopalakrishnan
 - Nothing Phone (3a
 - Bajaj Housing Finance share
 - Waqf Amendment Bill
 - Zoho Sridhar Vembu
 - Mauni amavasya kab hai
-- IND vs ENG Live
 - AIBE 19 Exam result
 - Neymar
 - Nvidia share price
 - Denta Water IPO Allotment Status
 - Guillain-Barre Syndrome
-- Share Market Today
-- CDSL share price
 - UCC
-- Nasdaq
 - Jasprit Bumrah
+- Chinese New Year 2025
 - Colombia
+- Share Market Today
+- Budget 2025
 - epgview
 - best epg
 - epg for iptv
