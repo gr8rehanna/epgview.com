@@ -31,26 +31,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Earthquake
+- Dow Jones
 - IRS
+- The Bachelor
 - Social Security
 - Games
 - Jimmy Butler
-- The Bachelor
 - Lunar New Year
 - Amd stock
 - Holocaust Remembrance Day
-- Chess
-- QQQ
 - Matthew Huttle
+- TGL
+- QQQ
 - SOFI) stock
 - Perplexity
 - Kevin Costner
 - Music
-- TGL
+- Michigan basketball
 - Aspen
 - Basketball
-- Super Bowl 2025
 - David Coote
+- Almost Famous
 - Nvidia stock
 - Man Utd
 - Leeds United
@@ -58,24 +59,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Super Bowl 2025
 - Man United
 - HMPV virus cases
-- Saquon Barkley
 - Pauline Quirke
+- Saquon Barkley
 - Chiefs
 - The Vivienne
 - Nasdaq
-- Jota
 - Holocaust Memorial Day 2025
 - Colombia
 - Leeds
 - Columbia
-- Wind warning
 - Fulham vs Man United
+- Aston Villa vs West Ham
 - Waqf Amendment Bill
 - Nvidia share price
 - Mitchell Owen
 - Denta Water IPO Allotment Status
-- SSC GD
 - Guillain-Barre Syndrome
+- SSC GD
 - Budget 2025 date
 - CDSL share price
 - UCC
