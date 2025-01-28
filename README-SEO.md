@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Lakers
+- Federal grants paused
 - Mar
 - Jim Acosta
-- Citizens Bank
 - Tuberculosis
+- Citizens Bank
 - Bucks
-- Neymar
 - Google Maps Gulf of Mexico
+- Neymar
 - Earthquake
-- Social Security
 - Dow Jones
 - Jimmy Butler
 - Nfc championship game
 - IRS
+- Social Security
 - The Bachelor
 - Matthew Huttle
 - Games
 - S&P 500
-- Duke Basketball
-- Nasdaq
+- Duke basketball
 - England vs India
 - David Coote
 - Coca-Cola recalls drinks
@@ -72,24 +72,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Holocaust Memorial Day 2025
 - England vs India
 - Hotstar
-- IND vs ENG T20
 - Mohammed Shami
-- Kris Gopalakrishnan
+- IND vs ENG T20
+- Nothing Phone (3a
 - Bajaj Housing Finance share
 - Waqf Amendment Bill
-- Zoho Sridhar Vembu
 - AIBE 19 Exam result
-- Live Score Cricket
+- Zoho Sridhar Vembu
 - Neymar
 - Nvidia share price
-- ICC
 - Denta Water IPO Allotment Status
+- ICC
 - Guillain-Barre Syndrome
 - UCC
 - Mauni Amavasya 2025
-- Chinese New Year 2025
-- Colombia
+- Chinese New Year 2025!
 - Share Market Today
+- Colombia
+- Budget 2025
 - epgview
 - best epg
 - epg for iptv
