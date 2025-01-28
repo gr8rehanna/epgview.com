@@ -32,7 +32,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Earthquake
 - Social Security
-- Where's my refund
 - Games
 - Jimmy Butler
 - Lunar New Year
@@ -42,21 +41,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - SOFI) stock
 - Perplexity
 - Kevin Costner
-- Clock
 - Music
+- The Bachelor
 - Aspen
-- Chiefs
 - Super Bowl 2025
+- Chiefs
 - Nvidia stock
 - Commanders
 - Taylor Swift
+- Colombia
+- David Coote
 - Nvidia stock
 - Man Utd
-- Auschwitz
 - Leeds United
+- Auschwitz
 - Super Bowl 2025
 - Man United
-- Burnley vs Leeds United
 - HMPV virus cases
 - Saquon Barkley
 - Chiefs
@@ -64,17 +64,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Vivienne
 - Nasdaq
 - Holocaust Memorial Day 2025
+- Jota
 - Colombia
-- Jota Celtic
-- Columbia
+- Al-Nassr
 - Leeds
-- Fulham vs Man United
-- Aston Villa vs West Ham
+- Columbia
+- Wind warning
 - Waqf Amendment Bill
 - Nvidia share price
 - Mitchell Owen
-- Guillain-Barre Syndrome
 - Denta Water IPO Allotment Status
+- SSC GD
+- Guillain-Barre Syndrome
 - Budget 2025 date
 - CDSL share price
 - UCC
@@ -83,13 +84,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Colombia
 - Chinese New Year 2025
 - Sridhar Vembu
-- SSC GD
 - Alexander Zverev
-- Today
 - SURYAKUMAR YADAV
 - Indonesia
 - Republic
 - India Republic Day
+- IND vs ENG
 - epgview
 - best epg
 - epg for iptv
