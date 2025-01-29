@@ -30,46 +30,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Lunar New Year 2025
 - Laken Riley
-- Barcelona  Atalanta
+- Lunar New Year 2025
+- Barcelona vs Atalanta
+- Cheryl Hines
+- Guantanamo Bay
 - Mark Milley
-- Federal employee buyout
 - Brest vs Real Madrid
+- Bob Menendez
+- Federal employee buyout
 - F-35 crash Alaska
 - FOMC
 - Amber Alert
+- Man City vs Club Brugge
+- PSV vs Liverpool
 - Medicaid
+- Lunar New Year
 - RFK Jr
-- Press secretary
 - Caroline Kennedy
 - Lakers
 - FAFSA
-- Jim Acosta
-- Lay's potato chips recall
-- Doomsday Clock
-- Mar
-- Kristi Noem
 - Chinese New Year 2025
 - Aston Villa vs Celtic
 - PSV vs Liverpool
-- Michael Baggott
-- Girona vs Arsenal
 - Man City vs Club Brugge
-- Ollie Watkins
+- Girona vs Arsenal
+- Michael Baggott
 - Danielle Sellers
-- Happy New Year in Chinese
+- Ollie Watkins
+- Brian Walden
 - Barcelona vs Atalanta
 - Jhon Duran
 - Brest vs Real Madrid
-- Rfk Jr
+- Liverpool FC
+- Happy New Year in Chinese
 - Lloyds Banking Group branch closures
-- Cardiff University
-- Caroline Kennedy
 - Idris Elba
-- What did Wynne Evans say
-- Coca-Cola recalls drinks
-- David Coote
+- RFK Jr
+- Cardiff University
+- TNT Sports
+- Caroline Kennedy
 - Barcelona vs Atalanta
 - Brest vs Real Madrid
 - Man City vs Club Brugge
