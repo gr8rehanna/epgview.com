@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Laken Riley
+- Mark Milley
+- Barcelona  Atalanta
+- Federal employee buyout
+- F-35 crash Alaska
+- FOMC
+- Medicaid
+- Press secretary
+- RFK Jr
+- Caroline Kennedy
 - Lakers
-- Federal grants paused
-- Mar
+- FAFSA
 - Jim Acosta
+- Lay's Potato Chips recall
+- Doomsday Clock
+- Kristi Noem
+- Rachael Kirkconnell
 - Tuberculosis
-- Citizens Bank
-- Bucks
-- Google Maps Gulf of Mexico
-- Neymar
-- Earthquake
-- Dow Jones
-- Jimmy Butler
-- Nfc championship game
-- IRS
-- Social Security
-- The Bachelor
-- Matthew Huttle
-- Games
-- S&P 500
-- Duke basketball
-- England vs India
-- David Coote
+- Kentucky basketball
+- Tom Welling
+- Chinese New Year 2025
+- Michael Baggott
+- PSV vs Liverpool
+- Danielle Sellers
+- Ollie Watkins
+- Aston Villa vs Celtic
+- Girona vs Arsenal
+- Man City vs Club Brugge
+- Happy New Year in Chinese
+- Cardiff University
+- RFK Jr
+- Caroline Kennedy
+- Jhon Duran
+- What did Wynne Evans say
 - Coca-Cola recalls drinks
+- David Coote
+- Patrick Dorgu
+- Doomsday Clock
 - Neymar
-- Radio 1 Big Weekend 2025
-- WWE 2K25
-- Almost Famous
-- Nvidia stock
-- Man Utd
-- Leeds United
-- Auschwitz
-- Super Bowl 2025
-- HMPV virus cases
-- Chiefs
-- Marcus Rashford
-- The Vivienne
-- Nasdaq
-- Hedge maze
-- Jota
-- Holocaust Memorial Day 2025
+- Mathys Tel
+- Barcelona vs Atalanta
+- Brest vs Real Madrid
+- Federal Reserve interest rates
+- Man City vs Club Brugge
+- Australia vs Sri Lanka
+- Stampede
+- Sports
+- Delhi vs Railways Ranji match
+- ITC Hotels share price
+- Usman Khawaja
+- SL vs AUS
+- Tilak Varma
+- Income Tax Union Budget
+- Dr Agarwal Healthcare IPO GMP
+- ISRO
+- Tata Motors Q3 earnings
 - England vs India
-- Hotstar
-- Mohammed Shami
-- IND vs ENG T20
-- Nothing Phone (3a
-- Bajaj Housing Finance share
-- Waqf Amendment Bill
-- AIBE 19 Exam result
-- Zoho Sridhar Vembu
-- Neymar
-- Nvidia share price
-- Denta Water IPO Allotment Status
+- Cricket
 - ICC
-- Guillain-Barre Syndrome
-- UCC
-- Mauni Amavasya 2025
-- Chinese New Year 2025!
-- Share Market Today
-- Colombia
-- Budget 2025
+- Hardik Pandya
 - epgview
 - best epg
 - epg for iptv
