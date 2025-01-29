@@ -30,50 +30,50 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Lunar New Year 2025
 - Laken Riley
-- Mark Milley
 - Barcelona  Atalanta
+- Mark Milley
 - Federal employee buyout
+- Brest vs Real Madrid
 - F-35 crash Alaska
 - FOMC
+- Amber Alert
 - Medicaid
-- Press secretary
 - RFK Jr
+- Press secretary
 - Caroline Kennedy
 - Lakers
 - FAFSA
 - Jim Acosta
-- Lay's Potato Chips recall
+- Lay's potato chips recall
 - Doomsday Clock
+- Mar
 - Kristi Noem
-- Rachael Kirkconnell
-- Tuberculosis
-- Kentucky basketball
-- Tom Welling
 - Chinese New Year 2025
-- Michael Baggott
-- PSV vs Liverpool
-- Danielle Sellers
-- Ollie Watkins
 - Aston Villa vs Celtic
+- PSV vs Liverpool
+- Michael Baggott
 - Girona vs Arsenal
 - Man City vs Club Brugge
+- Ollie Watkins
+- Danielle Sellers
 - Happy New Year in Chinese
-- Cardiff University
-- RFK Jr
-- Caroline Kennedy
+- Barcelona vs Atalanta
 - Jhon Duran
+- Brest vs Real Madrid
+- Rfk Jr
+- Lloyds Banking Group branch closures
+- Cardiff University
+- Caroline Kennedy
+- Idris Elba
 - What did Wynne Evans say
 - Coca-Cola recalls drinks
 - David Coote
-- Patrick Dorgu
-- Doomsday Clock
-- Neymar
-- Mathys Tel
 - Barcelona vs Atalanta
 - Brest vs Real Madrid
-- Federal Reserve interest rates
 - Man City vs Club Brugge
+- Federal Reserve interest rates
 - Australia vs Sri Lanka
 - Stampede
 - Sports
@@ -88,8 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tata Motors Q3 earnings
 - England vs India
 - Cricket
-- ICC
 - Hardik Pandya
+- Ind vs
 - epgview
 - best epg
 - epg for iptv
