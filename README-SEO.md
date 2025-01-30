@@ -31,60 +31,60 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Kash Patel
+- Justin Tucker
+- Tulsi Gabbard
 - Parish
 - 5090
 - Calvin Robinson
+- Pete Buttigieg
+- Terry Rozier
 - Hello Kitty Island Adventure
 - IBM stock
+- Plane crash
 - Laken Riley
-- Lunar New Year
 - Guantanamo Bay
+- Lunar New Year 2025
 - Ken Flores
 - Meta stock
 - Barcelona
 - Bob Menendez
-- Knicks
-- Bombardier crj700
 - Liverpool
-- Breaking News
-- Why does RFK Jr. sound like that
-- FC Barcelona
-- TPS Venezuela
+- Breaking news
 - Plane crash
+- FCSB vs Man United
 - John Prescott
+- Tottenham vs IF Elfsborg
 - Barcelona
-- FCSB
 - Calvin Robinson
+- The Apprentice
 - Bernie
 - Guantanamo Bay
 - UK snow blizzard February
+- Yellowstone
 - Steven Gerrard
-- Bombardier crj700
+- Trinny Woodall
+- Al Nassr
+- Bridget Jones: Mad About The Boy
 - Chinese New Year 2025
 - Aston Villa vs Celtic
 - Ollie Watkins
 - Liverpool
 - Man City vs Club Brugge
-- Aston Villa
-- Liverpool FC
-- Girona vs Arsenal
-- Michael Baggott
-- Lunar New Year
+- Washington DC plane crashes
 - Mahatma Gandhi
-- Washington, D.C plane crashes
-- Liverpool
 - Martyrs' Day
+- Kerala Blasters
 - KL Rahul
 - Federal Reserve interest rates
 - Sunita Williams
 - Bharat Electronics Q3 Results earnings
-- Voltas Share Price
 - Delhi vs Railways Ranji match
-- Maha Kumbh Mela stampede
-- Steve Smith
+- Stampede
+- Delhi vs Railways Ranji match
 - Josh Inglis
 - Sports
 - Mahakumbh news
+- Steve Smith
 - ITC Hotels share price
 - Tata Motors
 - Income Tax Union Budget
