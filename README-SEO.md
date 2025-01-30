@@ -38,18 +38,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Meta stock
 - Liverpool
 - Bob Menendez
+- Tesla earnings
 - Brest vs Real Madrid
-- FC Barcelona
 - Inter Miami
+- FC Barcelona
 - Mark Milley
 - Why does RFK Jr sound like that
+- TPS Venezuela
+- O.J. Simpson
 - Man City vs Club Brugge
 - Federal employee buyout
 - Amber Alert
 - F-35 crash Alaska
-- Your Friendly Neighborhood Spider-Man
-- FOMC
-- Venom
 - Bayern vs Slovan Bratislava
 - Guantanamo Bay
 - Steven Gerrard
@@ -66,30 +66,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jhon Duran
 - Brest vs Real Madrid
 - Bridget Jones
-- Liverpool FC
 - Lloyds Banking Group branch closures
 - Champions League draw
 - Idris Elba
+- Rfk Jr
 - Barcelona vs Atalanta
 - Man City vs Club Brugge
+- Liverpool
 - Federal Reserve interest rates
-- Australia vs Sri Lanka
+- Mahatma Gandhi
 - Sports
 - Stampede in kumbh Mela 2025
-- Delhi vs Railways Ranji match
+- Steve Smith
 - ITC Hotels share price
 - Tilak Varma
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
 - Tata Motors Q3 earnings
+- Cricket
 - India vs England
 - Stampede
-- Cricket
 - Hardik Pandya
 - Waqf Amendment Bill
 - Ind vs
-- Neymar
 - epgview
 - best epg
 - epg for iptv
