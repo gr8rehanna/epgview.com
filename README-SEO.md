@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Lunar New Year
-- Laken Riley
+- What is The Laken Riley Act
 - Guantanamo Bay
+- Barcelona vs Atalanta
+- Laken Riley
 - Barcelona
 - Meta stock
-- Barcelona vs Atalanta
 - Bob Menendez
 - Knicks
 - Liverpool
 - Why does RFK Jr sound like that
 - FC Barcelona
-- Breaking news
-- O.J. Simpson
 - FOMC
 - TPS Venezuela
+- Ken Flores Comedian
 - Man City vs Club Brugge
 - Inter Miami
+- Crj 700
 - Amber Alert
 - Federal employee buyout
-- F-35 crash Alaska
 - Plane crash
+- Barcelona
 - FCSB
 - Guantanamo Bay
 - Steven Gerrard
+- John Prescott
 - Chinese New Year 2025
-- Aston Villa vs Celtic
 - PSV vs Liverpool
+- Aston Villa vs Celtic
 - Ollie Watkins
 - Liverpool
 - Man City vs Club Brugge
 - Girona vs Arsenal
+- Aston Villa
 - Liverpool FC
 - Michael Baggott
-- Barcelona vs Atalanta
 - Danielle Sellers
 - Brian Walden
 - Bridget Jones
-- Brest vs Real Madrid
-- Champions League draw
-- Lloyds Banking Group branch closures
+- Barcelona vs Atalanta
 - Liverpool
 - Mahatma Gandhi
 - Martyrs' Day
-- 8th Pay Commission employees salary hike
 - Federal Reserve interest rates
 - KL Rahul
+- Washington DC plane crashes
 - Delhi vs Railway
-- Arvind Kejriwal
-- Washington DC Plane crashes
 - Sunita Williams
 - Australia vs Sri Lanka
 - Delhi vs Railways Ranji match
+- Maha Kumbh Mela stampede
 - Stampede
-- Stampede in Kumbh Mela 2025
 - Sports
+- Josh Inglis
 - ITC Hotels share price
-- SL vs AUS
 - Tata Motors
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
+- ISRO
+- Cricket
 - epgview
 - best epg
 - epg for iptv
