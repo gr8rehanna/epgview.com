@@ -33,33 +33,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kash Patel
 - Parish
 - 5090
+- Calvin Robinson
 - Hello Kitty Island Adventure
-- Plane crash
-- Lunar New Year
+- IBM stock
 - Laken Riley
+- Lunar New Year
 - Guantanamo Bay
 - Ken Flores
 - Meta stock
 - Barcelona
 - Bob Menendez
 - Knicks
+- Bombardier crj700
 - Liverpool
-- Why does RFK Jr sound like that
+- Breaking News
+- Why does RFK Jr. sound like that
 - FC Barcelona
 - TPS Venezuela
-- Man City vs Club Brugge
-- Amber Alert
-- Federal employee buyout
 - Plane crash
-- Barcelona
 - John Prescott
+- Barcelona
 - FCSB
 - Calvin Robinson
 - Bernie
 - Guantanamo Bay
 - UK snow blizzard February
 - Steven Gerrard
-- Bridget Jones: Mad About The Boy
+- Bombardier crj700
 - Chinese New Year 2025
 - Aston Villa vs Celtic
 - Ollie Watkins
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michael Baggott
 - Lunar New Year
 - Mahatma Gandhi
+- Washington, D.C plane crashes
 - Liverpool
-- Washington DC plane crashes
 - Martyrs' Day
-- Federal Reserve interest rates
 - KL Rahul
+- Federal Reserve interest rates
 - Sunita Williams
 - Bharat Electronics Q3 Results earnings
+- Voltas Share Price
 - Delhi vs Railways Ranji match
 - Maha Kumbh Mela stampede
 - Steve Smith
-- Stampede
 - Josh Inglis
 - Sports
+- Mahakumbh news
 - ITC Hotels share price
 - Tata Motors
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
-- Cricket
 - epgview
 - best epg
 - epg for iptv
