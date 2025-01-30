@@ -30,12 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- American Airlines
 - Lunar New Year
 - Laken Riley
 - Barcelona
-- Guantanamo Bay
-- Ken Flores
 - Meta stock
 - Liverpool
 - Bob Menendez
@@ -46,12 +43,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Why does RFK Jr sound like that
 - Mark Milley
 - TPS Venezuela
+- Ken Flores Comedian
 - Man City vs Club Brugge
-- Federal employee buyout
 - Amber Alert
+- Federal employee buyout
+- Auburn basketball
 - F-35 crash Alaska
+- Universitario vs Inter Miami
 - Bayern vs Slovan Bratislava
 - Guantanamo Bay
+- FCSB
 - Steven Gerrard
 - Chinese New Year 2025
 - PSV vs Liverpool
@@ -67,29 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jhon Duran
 - Brest vs Real Madrid
 - Bridget Jones
-- Australia vs Sri Lanka
 - Lloyds Banking Group branch closures
 - Champions League draw
 - Barcelona vs Atalanta
 - Man City vs Club Brugge
-- Federal Reserve interest rates
+- Liverpool
 - Mahatma Gandhi
+- Federal Reserve interest rates
+- Australia vs Sri Lanka
 - Stampede
 - Sports
 - Stampede in Kumbh Mela 2025
 - Steve Smith
 - ITC Hotels share price
+- Tata Motors
 - Income Tax Union Budget
-- Tata Motors Q3 earnings
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
 - Cricket
+- India vs England
 - Hardik Pandya
-- IND vs England
 - Waqf Amendment Bill
-- Ind vs
-- Neymar
-- Nvidia share price
+- IND vs
 - epgview
 - best epg
 - epg for iptv
