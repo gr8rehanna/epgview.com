@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- American Airlines
 - Lunar New Year
 - Laken Riley
 - Barcelona
@@ -38,14 +39,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Meta stock
 - Liverpool
 - Bob Menendez
-- Tesla earnings
+- Knicks
 - Brest vs Real Madrid
 - Inter Miami
 - FC Barcelona
-- Mark Milley
 - Why does RFK Jr sound like that
+- Mark Milley
 - TPS Venezuela
-- O.J. Simpson
 - Man City vs Club Brugge
 - Federal employee buyout
 - Amber Alert
@@ -58,6 +58,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs Celtic
 - Man City vs Club Brugge
 - Girona vs Arsenal
+- Liverpool FC
 - Michael Baggott
 - Ollie Watkins
 - Danielle Sellers
@@ -66,30 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jhon Duran
 - Brest vs Real Madrid
 - Bridget Jones
+- Australia vs Sri Lanka
 - Lloyds Banking Group branch closures
 - Champions League draw
-- Idris Elba
-- Rfk Jr
 - Barcelona vs Atalanta
 - Man City vs Club Brugge
-- Liverpool
 - Federal Reserve interest rates
 - Mahatma Gandhi
+- Stampede
 - Sports
-- Stampede in kumbh Mela 2025
+- Stampede in Kumbh Mela 2025
 - Steve Smith
 - ITC Hotels share price
-- Tilak Varma
 - Income Tax Union Budget
+- Tata Motors Q3 earnings
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
-- Tata Motors Q3 earnings
 - Cricket
-- India vs England
-- Stampede
 - Hardik Pandya
+- IND vs England
 - Waqf Amendment Bill
 - Ind vs
+- Neymar
+- Nvidia share price
 - epgview
 - best epg
 - epg for iptv
