@@ -30,34 +30,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Kash Patel
 - 5090
-- Parish
 - Plane crash
 - Laken Riley
 - Lunar New Year
 - Guantanamo Bay
-- Barcelona
 - Meta stock
+- Barcelona
 - Bob Menendez
 - Knicks
-- Crj 700
 - Liverpool
 - Why does RFK Jr sound like that
 - FC Barcelona
-- Ken Flores Comedian
+- Ken Flores comedian
 - Inter Miami
 - Man City vs Club Brugge
 - Amber Alert
 - Federal employee buyout
 - F-35 crash Alaska
+- Your Friendly Neighborhood Spider-Man
 - Plane crash
 - Barcelona
 - John Prescott
 - FCSB
+- Calvin Robinson
 - Guantanamo Bay
 - UK snow blizzard February
 - Steven Gerrard
-- Bombardier crj700
 - Bridget Jones: Mad About the Boy
 - Chinese New Year 2025
 - PSV vs Liverpool
@@ -65,23 +65,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ollie Watkins
 - Liverpool
 - Man City vs Club Brugge
-- Girona vs Arsenal
 - Aston Villa
 - Liverpool FC
+- Girona vs Arsenal
 - Michael Baggott
 - Lunar New Year
 - Mahatma Gandhi
 - Liverpool
 - Washington DC plane crashes
+- Martyrs' Day
 - Federal Reserve interest rates
 - KL Rahul
-- Delhi vs Railway
 - Arvind Kejriwal
-- Gandhi
 - Sunita Williams
 - Delhi vs Railways Ranji match
-- Maha Kumbh Mela stampede
 - Steve Smith
+- Maha Kumbh Mela stampede
 - Mahakumbh news
 - Josh Inglis
 - Sports
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
+- Cricket
 - epgview
 - best epg
 - epg for iptv
