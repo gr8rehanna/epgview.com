@@ -32,25 +32,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Lunar New Year
 - Laken Riley
-- Barcelona
 - Guantanamo Bay
+- Barcelona vs Atalanta
+- Barcelona
 - Meta stock
-- Liverpool
-- Knicks
 - Bob Menendez
-- Brest vs Real Madrid
+- Knicks
+- Liverpool
 - Inter Miami
+- Brest vs Real Madrid
 - Why does RFK Jr sound like that
-- Breaking news
 - TPS Venezuela
 - Ken Flores Comedian
 - Man City vs Club Brugge
 - Amber Alert
 - Federal employee buyout
-- F-35 crash Alaska
 - Thunder vs Warriors
+- F-35 crash Alaska
 - Your Friendly Neighborhood Spider-Man
 - Plane crash
+- Barcelona
 - Bayern vs Slovan Bratislava
 - Guantanamo Bay
 - FCSB
@@ -58,27 +59,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chinese New Year 2025
 - PSV vs Liverpool
 - Aston Villa vs Celtic
-- Ollie Watkins
 - Man City vs Club Brugge
 - Girona vs Arsenal
 - Liverpool FC
 - Michael Baggott
-- Barcelona vs Atalanta
+- Ollie Watkins
 - Danielle Sellers
 - Brian Walden
+- Jhon Duran
 - Bridget Jones
+- Barcelona vs Atalanta
 - Brest vs Real Madrid
-- Lloyds Banking Group branch closures
-- Champions League draw
-- Liverpool
+- Man City vs Club Brugge
 - Mahatma Gandhi
-- Qwen
 - Federal Reserve interest rates
-- Railways cricket team vs Delhi cricket team match scorecard
-- Australia vs Sri Lanka
+- Martyrs' Day
+- KL Rahul
+- Arvind Kejriwal
 - Stampede
+- Steve Smith
+- Stampede in kumbh Mela 2025
 - Sports
-- Stampede in Kumbh Mela 2025
 - ITC Hotels share price
 - SL vs AUS
 - Tata Motors
@@ -86,10 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
 - Varun Chakravarthy
+- IND vs ENG
 - Cricket
 - Hardik Pandya
-- Waqf Amendment Bill
-- Ind vs
 - epgview
 - best epg
 - epg for iptv
