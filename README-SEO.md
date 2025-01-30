@@ -35,8 +35,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Guantanamo Bay
 - Ken Flores
-- Liverpool
 - Meta stock
+- Liverpool
 - Bob Menendez
 - Brest vs Real Madrid
 - FC Barcelona
@@ -47,10 +47,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Amber Alert
 - Chuck Pagano
 - FOMC
-- Venom
+- Inter Miami
 - Your Friendly Neighborhood Spider-Man
-- TPS Venezuela
+- Venom
 - Bayern vs Slovan Bratislava
+- Guantanamo Bay
 - Chinese New Year 2025
 - PSV vs Liverpool
 - Aston Villa vs Celtic
@@ -66,30 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bridget Jones
 - Lloyds Banking Group branch closures
 - Idris Elba
-- Happy New Year in Chinese
 - Rfk Jr
+- Happy New Year in Chinese
 - FC Barcelona
-- O.J. Simpson
 - Barcelona vs Atalanta
-- Brest vs Real Madrid
 - Man City vs Club Brugge
 - Federal Reserve interest rates
 - Australia vs Sri Lanka
-- Stampede
 - Sports
 - Stampede in kumbh Mela 2025
 - Delhi vs Railways Ranji match
 - Usman Khawaja
 - ITC Hotels share price
+- Tilak Varma
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
 - Tata Motors Q3 earnings
+- IND vs ENG
+- India vs England
+- Stampede
 - Cricket
 - Hardik Pandya
-- IND vs England
 - Waqf Amendment Bill
-- Ind vs
 - epgview
 - best epg
 - epg for iptv
