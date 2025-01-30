@@ -41,15 +41,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brest vs Real Madrid
 - Inter Miami
 - Why does RFK Jr sound like that
-- FC Barcelona
 - Breaking news
-- Mark Milley
 - TPS Venezuela
 - Ken Flores Comedian
 - Man City vs Club Brugge
 - Amber Alert
 - Federal employee buyout
 - F-35 crash Alaska
+- Thunder vs Warriors
+- Your Friendly Neighborhood Spider-Man
 - Plane crash
 - Bayern vs Slovan Bratislava
 - Guantanamo Bay
@@ -58,29 +58,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chinese New Year 2025
 - PSV vs Liverpool
 - Aston Villa vs Celtic
+- Ollie Watkins
 - Man City vs Club Brugge
 - Girona vs Arsenal
 - Liverpool FC
 - Michael Baggott
-- Ollie Watkins
 - Barcelona vs Atalanta
 - Danielle Sellers
 - Brian Walden
-- Jhon Duran
 - Bridget Jones
 - Brest vs Real Madrid
 - Lloyds Banking Group branch closures
-- Man City vs Club Brugge
+- Champions League draw
 - Liverpool
 - Mahatma Gandhi
 - Qwen
 - Federal Reserve interest rates
-- Martyrs' Day
+- Railways cricket team vs Delhi cricket team match scorecard
 - Australia vs Sri Lanka
 - Stampede
 - Sports
 - Stampede in Kumbh Mela 2025
 - ITC Hotels share price
+- SL vs AUS
 - Tata Motors
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
@@ -89,7 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket
 - Hardik Pandya
 - Waqf Amendment Bill
-- IND vs
+- Ind vs
 - epgview
 - best epg
 - epg for iptv
