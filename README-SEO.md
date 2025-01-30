@@ -30,46 +30,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Barcelona
 - Laken Riley
 - Lunar New Year 2025
-- Barcelona vs Atalanta
-- Cheryl Hines
+- Liverpool
+- Ken Flores
 - Guantanamo Bay
-- Mark Milley
 - Brest vs Real Madrid
+- FC Barcelona
 - Bob Menendez
+- Mark Milley
 - Federal employee buyout
-- F-35 crash Alaska
-- FOMC
-- Amber Alert
 - Man City vs Club Brugge
-- PSV vs Liverpool
+- F-35 crash Alaska
+- Amber Alert
+- O.J. Simpson
+- FOMC
+- Venom
 - Medicaid
 - Lunar New Year
 - RFK Jr
-- Caroline Kennedy
-- Lakers
-- FAFSA
 - Chinese New Year 2025
-- Aston Villa vs Celtic
 - PSV vs Liverpool
+- Aston Villa vs Celtic
 - Man City vs Club Brugge
 - Girona vs Arsenal
 - Michael Baggott
-- Danielle Sellers
 - Ollie Watkins
+- Liverpool FC
+- Danielle Sellers
 - Brian Walden
 - Barcelona vs Atalanta
-- Jhon Duran
 - Brest vs Real Madrid
+- Bridget Jones
+- Jhon Duran
 - Liverpool FC
-- Happy New Year in Chinese
 - Lloyds Banking Group branch closures
 - Idris Elba
-- RFK Jr
-- Cardiff University
-- TNT Sports
-- Caroline Kennedy
+- Happy New Year in Chinese
+- Rfk Jr
+- Champions League draw
 - Barcelona vs Atalanta
 - Brest vs Real Madrid
 - Man City vs Club Brugge
@@ -77,6 +77,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Australia vs Sri Lanka
 - Stampede
 - Sports
+- AUS vs SL
 - Delhi vs Railways Ranji match
 - ITC Hotels share price
 - Usman Khawaja
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - England vs India
 - Cricket
 - Hardik Pandya
-- Ind vs
 - epgview
 - best epg
 - epg for iptv
