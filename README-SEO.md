@@ -33,43 +33,43 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Laken Riley
 - Lunar New Year 2025
-- Liverpool
 - Ken Flores
 - Guantanamo Bay
+- Bob Menendez
 - Brest vs Real Madrid
 - FC Barcelona
-- Bob Menendez
 - Mark Milley
-- Federal employee buyout
+- PSV vs Liverpool
 - Man City vs Club Brugge
+- Federal employee buyout
 - F-35 crash Alaska
 - Amber Alert
-- O.J. Simpson
 - FOMC
 - Venom
+- TPS Venezuela
+- Your Friendly Neighborhood Spider-Man
 - Medicaid
 - Lunar New Year
-- RFK Jr
+- Bayern vs Slovan Bratislava
 - Chinese New Year 2025
 - PSV vs Liverpool
 - Aston Villa vs Celtic
 - Man City vs Club Brugge
 - Girona vs Arsenal
+- Liverpool FC
 - Michael Baggott
 - Ollie Watkins
-- Liverpool FC
 - Danielle Sellers
 - Brian Walden
 - Barcelona vs Atalanta
+- Jhon Duran
 - Brest vs Real Madrid
 - Bridget Jones
-- Jhon Duran
-- Liverpool FC
 - Lloyds Banking Group branch closures
 - Idris Elba
+- Champions League draw
 - Happy New Year in Chinese
 - Rfk Jr
-- Champions League draw
 - Barcelona vs Atalanta
 - Brest vs Real Madrid
 - Man City vs Club Brugge
@@ -81,15 +81,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi vs Railways Ranji match
 - ITC Hotels share price
 - Usman Khawaja
-- SL vs AUS
 - Tilak Varma
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
 - Tata Motors Q3 earnings
-- England vs India
 - Cricket
 - Hardik Pandya
+- IND vs England
+- Ind vs
 - epgview
 - best epg
 - epg for iptv
