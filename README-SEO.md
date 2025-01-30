@@ -30,32 +30,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Lunar New Year
+- 5090
+- Parish
+- Plane crash
 - Laken Riley
+- Lunar New Year
 - Guantanamo Bay
-- Barcelona vs Atalanta
 - Barcelona
 - Meta stock
 - Bob Menendez
 - Knicks
+- Crj 700
 - Liverpool
 - Why does RFK Jr sound like that
-- Mark Milley
-- TPS Venezuela
+- FC Barcelona
 - Ken Flores Comedian
 - Inter Miami
 - Man City vs Club Brugge
 - Amber Alert
-- What is The Laken Riley Act
 - Federal employee buyout
 - F-35 crash Alaska
-- Your Friendly Neighborhood Spider-Man
 - Plane crash
 - Barcelona
-- FCSB
 - John Prescott
+- FCSB
 - Guantanamo Bay
+- UK snow blizzard February
 - Steven Gerrard
+- Bombardier crj700
+- Bridget Jones: Mad About the Boy
 - Chinese New Year 2025
 - PSV vs Liverpool
 - Aston Villa vs Celtic
@@ -67,17 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool FC
 - Michael Baggott
 - Lunar New Year
-- Danielle Sellers
-- Brian Walden
-- Bridget Jones
 - Mahatma Gandhi
 - Liverpool
-- Martyrs' Day
-- Federal Reserve interest rates
 - Washington DC plane crashes
+- Federal Reserve interest rates
 - KL Rahul
 - Delhi vs Railway
 - Arvind Kejriwal
+- Gandhi
 - Sunita Williams
 - Delhi vs Railways Ranji match
 - Maha Kumbh Mela stampede
