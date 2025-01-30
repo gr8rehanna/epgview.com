@@ -32,10 +32,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Kash Patel
 - 5090
+- Hello Kitty Island Adventure
 - Plane crash
-- Laken Riley
 - Lunar New Year
+- Laken Riley
 - Guantanamo Bay
+- Ken Flores
 - Meta stock
 - Barcelona
 - Bob Menendez
@@ -43,24 +45,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool
 - Why does RFK Jr sound like that
 - FC Barcelona
-- Ken Flores comedian
+- TPS Venezuela
+- Crj 700
 - Inter Miami
 - Man City vs Club Brugge
 - Amber Alert
-- Federal employee buyout
-- F-35 crash Alaska
-- Your Friendly Neighborhood Spider-Man
 - Plane crash
 - Barcelona
 - John Prescott
 - FCSB
 - Calvin Robinson
+- Bernie
 - Guantanamo Bay
 - UK snow blizzard February
 - Steven Gerrard
-- Bridget Jones: Mad About the Boy
 - Chinese New Year 2025
-- PSV vs Liverpool
 - Aston Villa vs Celtic
 - Ollie Watkins
 - Liverpool
@@ -70,18 +69,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Girona vs Arsenal
 - Michael Baggott
 - Lunar New Year
+- Bridget Jones
 - Mahatma Gandhi
 - Liverpool
 - Washington DC plane crashes
 - Martyrs' Day
 - Federal Reserve interest rates
 - KL Rahul
-- Arvind Kejriwal
 - Sunita Williams
 - Delhi vs Railways Ranji match
-- Steve Smith
 - Maha Kumbh Mela stampede
-- Mahakumbh news
+- Steve Smith
+- Stampede
 - Josh Inglis
 - Sports
 - ITC Hotels share price
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
 - Cricket
+- Hardik Pandya
 - epgview
 - best epg
 - epg for iptv
