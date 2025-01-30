@@ -31,6 +31,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Kash Patel
+- Parish
 - 5090
 - Hello Kitty Island Adventure
 - Plane crash
@@ -46,10 +47,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Why does RFK Jr sound like that
 - FC Barcelona
 - TPS Venezuela
-- Crj 700
-- Inter Miami
 - Man City vs Club Brugge
 - Amber Alert
+- Federal employee buyout
 - Plane crash
 - Barcelona
 - John Prescott
@@ -59,6 +59,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Guantanamo Bay
 - UK snow blizzard February
 - Steven Gerrard
+- Bridget Jones: Mad About The Boy
 - Chinese New Year 2025
 - Aston Villa vs Celtic
 - Ollie Watkins
@@ -69,7 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Girona vs Arsenal
 - Michael Baggott
 - Lunar New Year
-- Bridget Jones
 - Mahatma Gandhi
 - Liverpool
 - Washington DC plane crashes
@@ -77,6 +77,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Federal Reserve interest rates
 - KL Rahul
 - Sunita Williams
+- Bharat Electronics Q3 Results earnings
 - Delhi vs Railways Ranji match
 - Maha Kumbh Mela stampede
 - Steve Smith
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
 - Cricket
-- Hardik Pandya
 - epgview
 - best epg
 - epg for iptv
