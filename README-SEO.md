@@ -36,20 +36,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Meta stock
 - Liverpool
 - Bob Menendez
-- Knicks
 - Brest vs Real Madrid
 - Inter Miami
 - FC Barcelona
 - Why does RFK Jr sound like that
+- Knicks
+- Breaking news
 - Mark Milley
 - TPS Venezuela
 - Ken Flores Comedian
 - Man City vs Club Brugge
 - Amber Alert
 - Federal employee buyout
-- Auburn basketball
 - F-35 crash Alaska
-- Universitario vs Inter Miami
+- Your Friendly Neighborhood Spider-Man
 - Bayern vs Slovan Bratislava
 - Guantanamo Bay
 - FCSB
@@ -70,17 +70,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bridget Jones
 - Lloyds Banking Group branch closures
 - Champions League draw
-- Barcelona vs Atalanta
 - Man City vs Club Brugge
 - Liverpool
 - Mahatma Gandhi
 - Federal Reserve interest rates
-- Australia vs Sri Lanka
 - Stampede
 - Sports
-- Stampede in Kumbh Mela 2025
+- Stampede in kumbh Mela 2025
 - Steve Smith
+- Usman Khawaja
 - ITC Hotels share price
+- SL vs AUS
 - Tata Motors
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
