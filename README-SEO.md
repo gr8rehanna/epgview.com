@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
 - 5090
 - Parish
-- Calvin Robinson
+- Jinna Han
+- Reese Witherspoon
 - Terry Rozier
+- Calvin Robinson
 - Pete Buttigieg
-- Nuggets
 - Hello Kitty Island Adventure
-- IBM stock
+- FCSB vs Man United
 - UPS stock
+- IBM stock
+- Pebble Beach Pro-Am
 - Laken Riley
 - Guantanamo Bay
 - Lunar New Year 2025
 - Ken Flores
 - Meta stock
-- Barcelona
-- Bob Menendez
-- Liverpool
-- Breaking News
 - Plane crash
 - FCSB vs Man United
 - Marianne Faithful
 - Tottenham vs IF Elfsborg
 - John Prescott
-- Trinny Woodall
 - Rangers vs Union Saint-Gilloise
+- Trinny Woodall
+- The Apprentice
 - Barcelona
 - Calvin Robinson
-- The Apprentice
 - Bernie
-- Yellowstone
 - Guantanamo Bay
+- Hair Syrup
+- UK snow blizzard February
 - Steven Gerrard
 - Al Nassr
-- Hair Syrup
 - Bridget Jones: Mad About The Boy
+- Ekin-Su
 - Russell Brand
 - Chinese New Year 2025
-- Ollie Watkins
+- Upendra Yadav
 - Washington DC plane crashes
 - Mahatma Gandhi
-- Martyrs' Day
 - Kerala Blasters
 - KL Rahul
 - Federal Reserve interest rates
+- Arvind Kejriwal
 - Sunita Williams
+- Gandhi
 - Bharat Electronics Q3 Results earnings
 - Delhi vs Railways Ranji match
 - Stampede
 - Delhi vs Railways Ranji match
 - Josh Inglis
 - Sports
-- Mahakumbh news
 - Steve Smith
+- Mahakumbh news
 - ITC Hotels share price
 - Tata Motors
 - Income Tax Union Budget
-- Dr Agarwal Healthcare IPO GMP
-- ISRO
 - epgview
 - best epg
 - epg for iptv
