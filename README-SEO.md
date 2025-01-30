@@ -33,14 +33,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lunar New Year
 - Laken Riley
 - Barcelona
+- Guantanamo Bay
 - Meta stock
 - Liverpool
+- Knicks
 - Bob Menendez
 - Brest vs Real Madrid
 - Inter Miami
-- FC Barcelona
 - Why does RFK Jr sound like that
-- Knicks
+- FC Barcelona
 - Breaking news
 - Mark Milley
 - TPS Venezuela
@@ -49,7 +50,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Amber Alert
 - Federal employee buyout
 - F-35 crash Alaska
-- Your Friendly Neighborhood Spider-Man
+- Plane crash
 - Bayern vs Slovan Bratislava
 - Guantanamo Bay
 - FCSB
@@ -62,31 +63,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool FC
 - Michael Baggott
 - Ollie Watkins
+- Barcelona vs Atalanta
 - Danielle Sellers
 - Brian Walden
-- Barcelona vs Atalanta
 - Jhon Duran
-- Brest vs Real Madrid
 - Bridget Jones
+- Brest vs Real Madrid
 - Lloyds Banking Group branch closures
-- Champions League draw
 - Man City vs Club Brugge
 - Liverpool
 - Mahatma Gandhi
+- Qwen
 - Federal Reserve interest rates
+- Martyrs' Day
+- Australia vs Sri Lanka
 - Stampede
 - Sports
-- Stampede in kumbh Mela 2025
-- Steve Smith
-- Usman Khawaja
+- Stampede in Kumbh Mela 2025
 - ITC Hotels share price
-- SL vs AUS
 - Tata Motors
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - ISRO
+- Varun Chakravarthy
 - Cricket
-- India vs England
 - Hardik Pandya
 - Waqf Amendment Bill
 - IND vs
