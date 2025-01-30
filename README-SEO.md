@@ -31,16 +31,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Kash Patel
-- Justin Tucker
 - Tulsi Gabbard
-- Parish
 - 5090
+- Parish
 - Calvin Robinson
-- Pete Buttigieg
 - Terry Rozier
+- Pete Buttigieg
+- Nuggets
 - Hello Kitty Island Adventure
 - IBM stock
-- Plane crash
+- UPS stock
 - Laken Riley
 - Guantanamo Bay
 - Lunar New Year 2025
@@ -49,27 +49,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Bob Menendez
 - Liverpool
-- Breaking news
+- Breaking News
 - Plane crash
 - FCSB vs Man United
-- John Prescott
+- Marianne Faithful
 - Tottenham vs IF Elfsborg
+- John Prescott
+- Trinny Woodall
+- Rangers vs Union Saint-Gilloise
 - Barcelona
 - Calvin Robinson
 - The Apprentice
 - Bernie
-- Guantanamo Bay
-- UK snow blizzard February
 - Yellowstone
+- Guantanamo Bay
 - Steven Gerrard
-- Trinny Woodall
 - Al Nassr
+- Hair Syrup
 - Bridget Jones: Mad About The Boy
+- Russell Brand
 - Chinese New Year 2025
-- Aston Villa vs Celtic
 - Ollie Watkins
-- Liverpool
-- Man City vs Club Brugge
 - Washington DC plane crashes
 - Mahatma Gandhi
 - Martyrs' Day
