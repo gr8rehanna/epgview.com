@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - The Weeknd
 - Journavx
-- Rockets vs Grizzlies
+- Hurry Up Tomorrow
+- Kiah Duggins
 - Tariffs
-- Dwyane Wade
+- Rockets vs Grizzlies
 - Hyperbaric chamber
+- Dwyane Wade
+- Matthew Stafford
+- NBA All stars
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
 - FireAid concert
+- Reese Witherspoon
 - Parish
-- You're Cordially Invited
+- NBC news
 - Terry Rozier
 - RTX 5090
-- Pete Buttigieg
-- NBC news
-- Reese Witherspoon
 - Morgan Wallen
-- Hello Kitty Island Adventure
-- NBA All-Star 2025
 - Barclays
 - Six Nations
 - India vs England
 - Asteroid hitting Earth 2032
 - Europa League draw
+- Spurs
+- Companion Movie
+- Digga D jailed
 - Transfer deadline day
-- Unclaimed EuroMillions Lottery jackpot
+- Unclaimed EuroMillions lottery jackpot
 - Mitoma
 - Jordan Henderson
 - Kash Patel
-- Companion Movie
 - Reese Witherspoon
+- Rugby
 - Plane crash
 - FCSB vs Man United
 - Mick Jagger
 - Tottenham vs IF Elfsborg
 - Trinny Woodall
-- John Prescott
-- The Apprentice
-- Bryce Mitchell
+- Cricket
 - India vs England
 - ICC
 - Budget 2025
 - Deva Movie
-- Economic Survey 2025
 - Ola Electric Gen 3
+- Economic Survey 2025
 - Motilal Oswal
-- Inter Miami CF
-- Cricket
+- Harshit Rana
 - Virat Kohli
 - American Airlines
+- Al Nassr
 - Sunita Williams
 - Tata Motors
 - Bharat Electronics Q3 Results earnings
-- Arvind Kejriwal
-- New Tax Regime
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
 - Mahakumbh news
+- Delhi vs Railways
 - epgview
 - best epg
 - epg for iptv
