@@ -35,21 +35,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kash Patel
 - Tulsi Gabbard
 - FireAid concert
-- Reese Witherspoon
+- You're Cordially Invited
 - 5090
 - George W. Bush
 - Parish
+- Rockets
 - Terry Rozier
 - Pete Buttigieg
 - Hello Kitty Island Adventure
-- FCSB vs Man United
 - AAPL
 - Gracie Abrams
 - Stevie Nicks
 - UPS stock
 - Pebble Beach Pro-Am
-- WHEEL OF FORTUNE
 - The Recruit
+- WHEEL OF FORTUNE
 - Asteroid hitting Earth 2032
 - Kash Patel
 - Mitoma
@@ -64,32 +64,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Calvin Robinson
 - Bernie
 - Bryce Mitchell
+- Hair Syrup
 - Guantanamo Bay
 - Steven Gerrard
 - Russell Brand
 - Al Nassr
 - Parish
-- Chinese New Year 2025
-- Budget 2025
 - Deva
+- Budget 2025
 - Ola Electric Gen 3
 - Squid Game season 3 Netflix
 - Motilal Oswal
-- Adani Enterprises share price
+- Economic Survey 2025
 - Waaree Energies share
+- Deva movie review
 - Delhi vs Railways Ranji match
 - Washington DC plane crashes
 - Mahatma Gandhi
 - KL Rahul
 - Sunita Williams
 - Federal Reserve interest rates
-- Arvind Kejriwal
 - Bharat Electronics Q3 Results earnings
+- Arvind Kejriwal
 - Gandhi
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
-- Ayush Badoni
 - epgview
 - best epg
 - epg for iptv
