@@ -32,8 +32,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - What is DEI
 - The Weeknd
+- Journavx
 - Rockets vs Grizzlies
-- FDA approved non-opioid pain medication
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
@@ -44,15 +44,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Terry Rozier
 - Pete Buttigieg
 - Reese Witherspoon
+- Morgan Wallen
 - Hello Kitty Island Adventure
 - Gracie Abrams
 - UPS stock
 - Wheel of Fortune
-- Microsoft stock
 - Rockets
+- Barclays
+- India vs England
 - Asteroid hitting Earth 2032
 - Six Nations
-- India vs England
+- Six Nations 2025
 - Europa League draw
 - Unclaimed EuroMillions Lottery jackpot
 - Transfer deadline day
@@ -62,26 +64,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Reese Witherspoon
 - Plane crash
 - FCSB vs Man United
-- Mick Jagger
 - Tottenham vs IF Elfsborg
 - Trinny Woodall
 - John Prescott
 - The Apprentice
-- Barcelona
 - Bryce Mitchell
-- Calvin Robinson
+- Barcelona
 - India vs England
-- Budget 2025
-- Deva Movie
+- Budget 2025 date
+- Deva Movie Review
 - Ola Electric Gen 3
 - Economic Survey 2025
 - Motilal Oswal
+- Ola Gen 3 electric scooter
 - U19 Women's World Cup
 - Waaree Energies share
 - Inter Miami CF
-- India versus England
 - Virat Kohli
 - American Airlines
+- Eng vs Ind
 - Mahatma Gandhi
 - Sunita Williams
 - Bharat Electronics Q3 Results earnings
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
-- Mahakumbh news
 - epgview
 - best epg
 - epg for iptv
