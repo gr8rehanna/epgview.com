@@ -34,20 +34,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kash Patel
 - Tulsi Gabbard
 - You're Cordially Invited
-- FireAid concert
 - 5090
+- FireAid concert
 - George W. Bush
 - Parish
-- Rockets
 - Terry Rozier
 - Pete Buttigieg
 - Poppy Playtime Chapter 4
-- FCSB vs Man United
+- Rockets
 - Hello Kitty Island Adventure
-- Calvin Robinson
+- FCSB vs Man United
 - AAPL
-- UPS stock
 - Gracie Abrams
+- UPS stock
+- Stevie Nicks
 - Pebble Beach Pro-Am
 - WHEEL OF FORTUNE
 - Asteroid hitting Earth 2032
@@ -62,34 +62,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Calvin Robinson
 - Bernie
-- Hair Syrup
 - Guantanamo Bay
 - Bryce Mitchell
 - Steven Gerrard
 - Russell Brand
-- Al-Nassr
+- Al Nassr
 - Ekin-Su
 - Parish
+- Bridget Jones: Mad About The Boy
+- Budget 2025
 - Deva
+- Squid Game season 3 Netflix
 - Adani Enterprises share price
+- Motilal Oswal
+- Waaree Energies share
+- Delhi vs Railways Ranji match
 - Washington DC plane crashes
 - Mahatma Gandhi
-- Kerala Blasters
 - KL Rahul
 - Federal Reserve interest rates
-- Sunita Williams
+- Arvind Kejriwal
 - Bharat Electronics Q3 Results earnings
-- Delhi vs Railways Ranji match
+- Gandhi
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
+- Tata Motors share
 - Mahakumbh news
-- ITC Hotels share price
-- Tata Motors
-- SL vs AUS
-- Income Tax Union Budget
-- Dr Agarwal Healthcare IPO GMP
-- Cricket
+- Delhi vs Railways
 - epgview
 - best epg
 - epg for iptv
