@@ -30,56 +30,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- The Weeknd
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
-- You're Cordially Invited
-- 5090
 - FireAid concert
+- Reese Witherspoon
+- 5090
 - George W. Bush
 - Parish
 - Terry Rozier
 - Pete Buttigieg
-- Poppy Playtime Chapter 4
-- Rockets
 - Hello Kitty Island Adventure
 - FCSB vs Man United
 - AAPL
 - Gracie Abrams
-- UPS stock
 - Stevie Nicks
+- UPS stock
 - Pebble Beach Pro-Am
 - WHEEL OF FORTUNE
+- The Recruit
 - Asteroid hitting Earth 2032
 - Kash Patel
+- Mitoma
 - Plane crash
 - FCSB vs Man United
 - Tottenham vs IF Elfsborg
-- The Apprentice
 - Rangers vs Union Saint-Gilloise
+- The Apprentice
 - John Prescott
 - Trinny Woodall
 - Barcelona
 - Calvin Robinson
 - Bernie
-- Guantanamo Bay
 - Bryce Mitchell
+- Guantanamo Bay
 - Steven Gerrard
 - Russell Brand
 - Al Nassr
-- Ekin-Su
 - Parish
-- Bridget Jones: Mad About The Boy
+- Chinese New Year 2025
 - Budget 2025
 - Deva
+- Ola Electric Gen 3
 - Squid Game season 3 Netflix
-- Adani Enterprises share price
 - Motilal Oswal
+- Adani Enterprises share price
 - Waaree Energies share
 - Delhi vs Railways Ranji match
 - Washington DC plane crashes
 - Mahatma Gandhi
 - KL Rahul
+- Sunita Williams
 - Federal Reserve interest rates
 - Arvind Kejriwal
 - Bharat Electronics Q3 Results earnings
@@ -87,9 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
-- Tata Motors share
-- Mahakumbh news
-- Delhi vs Railways
+- Ayush Badoni
 - epgview
 - best epg
 - epg for iptv
