@@ -30,11 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- What is DEI
 - The Weeknd
 - Journavx
 - Rockets vs Grizzlies
-- Matthew Stafford
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
@@ -42,22 +40,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Reese Witherspoon
 - 5090
 - Parish
+- NBC news
 - Terry Rozier
 - Pete Buttigieg
+- Morgan Wallen
 - Hello Kitty Island Adventure
-- NBA All-Star 2025
 - Gracie Abrams
 - Wheel of Fortune
 - UPS stock
 - Rockets
+- Microsoft stock
 - Barclays
-- Six Nations 2025
+- Six Nations
 - India vs England
 - Asteroid hitting Earth 2032
-- Six Nations
 - Europa League draw
-- Unclaimed EuroMillions Lottery jackpot
 - Transfer deadline day
+- Unclaimed EuroMillions lottery jackpot
 - Mitoma
 - Jordan Henderson
 - Kash Patel
@@ -70,26 +69,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - John Prescott
 - The Apprentice
 - Bryce Mitchell
+- Barcelona
 - India vs England
-- Saqib Mahmood
 - ICC
 - Harshit Rana
 - Budget 2025
 - Deva Movie
-- Hardik Pandya
 - Economic Survey 2025
 - Ola Electric Gen 3
 - Motilal Oswal
-- Waaree Energies share
 - Inter Miami CF
+- England vs India
 - Virat Kohli
-- Cricket live
 - American Airlines
 - Mahatma Gandhi
 - Sunita Williams
 - Tata Motors
-- Bharat Electronics Q3 Results earnings
 - Arvind Kejriwal
+- New Tax Regime
+- Stampede
+- Delhi vs Railways Ranji match
+- Sports
 - epgview
 - best epg
 - epg for iptv
