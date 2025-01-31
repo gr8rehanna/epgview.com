@@ -33,23 +33,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
-- George W. Bush
 - 5090
-- PARISH
-- Reese Witherspoon
+- Parish
+- You're Cordially Invited
 - Terry Rozier
 - Pete Buttigieg
 - FCSB vs Man United
 - Hello Kitty Island Adventure
+- School Spirits
 - AAPL
-- Did rfk get confirmed
-- Pebble Beach Pro-Am
 - UPS stock
+- Pebble Beach Pro-Am
+- Did rfk get confirmed
 - IBM stock
+- Plane crash
 - Laken Riley
+- Lunar New Year
 - Guantanamo Bay
-- Lunar New Year 2025
-- Ken Flores
+- Kash Patel
 - Plane crash
 - FCSB vs Man United
 - Tottenham vs IF Elfsborg
@@ -65,11 +66,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Steven Gerrard
 - Bryce Mitchell
 - Russell Brand
-- Parish
+- Al-Nassr
 - Ekin-Su
+- Parish
 - Bridget Jones: Mad About The Boy
-- Chinese New Year 2025
-- Aston Villa vs Celtic
+- Upendra Yadav
 - Mahatma Gandhi
 - Washington DC plane crashes
 - KL Rahul
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket
 - Hardik Pandya
 - Waqf Amendment Bill
-- Nvidia share price
 - epgview
 - best epg
 - epg for iptv
