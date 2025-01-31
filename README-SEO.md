@@ -34,10 +34,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
+- Reese Witherspoon
 - FireAid concert
-- You're Cordially Invited
 - 5090
-- George W. Bush
 - Parish
 - Rockets
 - Terry Rozier
@@ -45,14 +44,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hello Kitty Island Adventure
 - AAPL
 - Gracie Abrams
-- Stevie Nicks
 - UPS stock
 - Pebble Beach Pro-Am
-- The Recruit
 - WHEEL OF FORTUNE
+- The Recruit
+- IBM stock
+- Plane crash
 - Asteroid hitting Earth 2032
 - Kash Patel
+- Jordan Henderson
 - Mitoma
+- Transfer deadline day
 - Plane crash
 - FCSB vs Man United
 - Tottenham vs IF Elfsborg
@@ -62,22 +64,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Trinny Woodall
 - Barcelona
 - Calvin Robinson
-- Bernie
 - Bryce Mitchell
+- Bernie
 - Hair Syrup
 - Guantanamo Bay
 - Steven Gerrard
 - Russell Brand
-- Al Nassr
-- Parish
 - Deva
 - Budget 2025
 - Ola Electric Gen 3
 - Squid Game season 3 Netflix
-- Motilal Oswal
 - Economic Survey 2025
+- Motilal Oswal
+- Deva Movie review
 - Waaree Energies share
-- Deva movie review
 - Delhi vs Railways Ranji match
 - Washington DC plane crashes
 - Mahatma Gandhi
