@@ -38,18 +38,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Parish
 - Terry Rozier
 - Pete Buttigieg
+- FireAid concert
 - FCSB vs Man United
 - Hello Kitty Island Adventure
-- FireAid concert
 - AAPL
+- NBA All-Star 2025
 - UPS stock
 - Pebble Beach Pro-Am
-- Did rfk get confirmed
+- Wheel of Fortune
 - The Recruit
+- Did rfk get confirmed
+- Rockets
 - IBM stock
-- Plane crash
-- Laken Riley
-- Guantanamo Bay
+- Asteroid hitting Earth 2032
 - Kash Patel
 - Plane crash
 - FCSB vs Man United
@@ -69,12 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Al Nassr
 - Ekin-Su
 - Parish
-- Bridget Jones: Mad About The Boy
-- Squid Game season 3 Netflix
+- Adani Enterprises share price
+- Upendra Yadav
 - Washington DC plane crashes
 - Mahatma Gandhi
+- Kerala Blasters
 - KL Rahul
 - Federal Reserve interest rates
+- Sunita Williams
 - Bharat Electronics Q3 Results earnings
 - Delhi vs Railways Ranji match
 - Stampede
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - Cricket
-- Hardik Pandya
-- Waqf Amendment Bill
-- Nvidia share price
 - epgview
 - best epg
 - epg for iptv
