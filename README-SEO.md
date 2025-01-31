@@ -30,18 +30,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- The Weeknd
 - Tariffs
 - Journavx
+- The Weeknd
 - Hurry Up Tomorrow
-- Karla Sofía Gascón
-- Kiah Duggins
 - Hyperbaric chamber
+- Kiah Duggins
 - Rockets vs Grizzlies
 - Dwyane Wade
-- NBA All stars
-- Matthew Stafford
 - Scream 7
+- Matthew Stafford
+- Chuck Todd
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
@@ -50,39 +49,40 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Parish
 - Terry Rozier
 - RTX 5090
+- Morgan Wallen
 - Six Nations
 - Barclays
 - India vs England
 - Asteroid hitting Earth 2032
 - Europa League draw
+- Spurs
 - Companion Movie
 - Digga D jailed
+- DEI
 - Transfer deadline day
+- Omar Love Island
 - Unclaimed EuroMillions lottery jackpot
-- Mitoma
 - Rugby Today
-- Jordan Henderson
+- Mitoma
+- 6 Nations 2025
 - Reese Witherspoon
+- Jordan Henderson
 - Kash Patel
 - England Rugby
-- Plane crash
-- FCSB vs Man United
-- Mick Jagger
-- Trinny Woodall
-- John Prescott
+- Death in Paradise
 - India vs England
-- Cricket
 - ICC
+- Deva
 - Budget 2025
-- Deva Movie
-- Economic Survey 2025
 - Ola Electric Gen 3
+- Economic Survey 2025
 - Motilal Oswal
+- Cricket
 - Virat Kohli
 - American Airlines
-- Al-Nassr
 - Sunita Williams
 - Tata Motors
+- Arvind Kejriwal
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
