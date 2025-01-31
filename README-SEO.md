@@ -46,50 +46,50 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AAPL
 - Gracie Abrams
 - UPS stock
+- Wheel of Fortune
 - Microsoft stock
 - Pebble Beach Pro-Am
 - The Recruit
-- IBM stock
 - Asteroid hitting Earth 2032
-- Jordan Henderson
-- Kash Patel
 - Europa League draw
+- Jordan Henderson
 - Transfer deadline day
+- Kash Patel
 - Mitoma
+- Reese Witherspoon
 - Plane crash
 - FCSB vs Man United
 - Mick Jagger
 - Tottenham vs IF Elfsborg
-- The Apprentice
-- John Prescott
 - Trinny Woodall
+- John Prescott
+- The Apprentice
 - Barcelona
 - Calvin Robinson
 - Bryce Mitchell
 - Bernie
 - Guantanamo Bay
 - Steven Gerrard
-- Russell Brand
 - Deva
 - Budget 2025
 - Ola Electric Gen 3
-- Squid Game season 3 Netflix
 - Economic Survey 2025
 - Motilal Oswal
 - U19 Women's World Cup
 - Delhi vs Railways Ranji match
 - American Airlines
 - Mahatma Gandhi
-- KL Rahul
 - Sunita Williams
 - Federal Reserve interest rates
 - Bharat Electronics Q3 Results earnings
-- Arvind Kejriwal
-- Gandhi
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
-- Tata Motors share
+- Mahakumbh news
+- Delhi vs Railways
+- ITC Hotels share price
+- Tata Motors
+- SL vs AUS
 - epgview
 - best epg
 - epg for iptv
