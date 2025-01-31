@@ -33,33 +33,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Weeknd
 - Journavx
 - Rockets vs Grizzlies
+- Tariffs
+- Dwyane Wade
+- Hyperbaric chamber
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
 - FireAid concert
-- Reese Witherspoon
-- 5090
 - Parish
-- NBC news
+- You're Cordially Invited
 - Terry Rozier
+- RTX 5090
 - Pete Buttigieg
+- NBC news
+- Reese Witherspoon
 - Morgan Wallen
 - Hello Kitty Island Adventure
-- Gracie Abrams
-- Wheel of Fortune
-- UPS stock
-- Rockets
-- Microsoft stock
+- NBA All-Star 2025
 - Barclays
 - Six Nations
 - India vs England
 - Asteroid hitting Earth 2032
 - Europa League draw
 - Transfer deadline day
-- Unclaimed EuroMillions lottery jackpot
+- Unclaimed EuroMillions Lottery jackpot
 - Mitoma
 - Jordan Henderson
 - Kash Patel
+- Companion Movie
 - Reese Witherspoon
 - Plane crash
 - FCSB vs Man United
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - John Prescott
 - The Apprentice
 - Bryce Mitchell
-- Barcelona
 - India vs England
 - ICC
-- Harshit Rana
 - Budget 2025
 - Deva Movie
 - Economic Survey 2025
 - Ola Electric Gen 3
 - Motilal Oswal
 - Inter Miami CF
-- England vs India
+- Cricket
 - Virat Kohli
 - American Airlines
-- Mahatma Gandhi
 - Sunita Williams
 - Tata Motors
+- Bharat Electronics Q3 Results earnings
 - Arvind Kejriwal
 - New Tax Regime
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
+- Mahakumbh news
 - epgview
 - best epg
 - epg for iptv
