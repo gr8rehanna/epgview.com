@@ -34,22 +34,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kash Patel
 - Tulsi Gabbard
 - 5090
-- Parish
 - You're Cordially Invited
+- Parish
 - Terry Rozier
 - Pete Buttigieg
 - FCSB vs Man United
 - Hello Kitty Island Adventure
-- School Spirits
 - AAPL
 - UPS stock
 - Pebble Beach Pro-Am
 - Did rfk get confirmed
+- Wheel of Fortune
 - IBM stock
+- FireAid concert
+- The Recruit
 - Plane crash
 - Laken Riley
-- Lunar New Year
-- Guantanamo Bay
 - Kash Patel
 - Plane crash
 - FCSB vs Man United
@@ -63,18 +63,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bernie
 - Hair Syrup
 - Guantanamo Bay
-- Steven Gerrard
 - Bryce Mitchell
+- Steven Gerrard
 - Russell Brand
-- Al-Nassr
+- Al Nassr
 - Ekin-Su
 - Parish
 - Bridget Jones: Mad About The Boy
-- Upendra Yadav
 - Mahatma Gandhi
 - Washington DC plane crashes
 - KL Rahul
 - Federal Reserve interest rates
+- Arvind Kejriwal
 - Sunita Williams
 - Bharat Electronics Q3 Results earnings
 - Delhi vs Railways Ranji match
