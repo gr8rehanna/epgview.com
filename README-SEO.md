@@ -34,31 +34,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
+- Fire aid concert
 - Reese Witherspoon
-- FireAid concert
-- 5090
 - Parish
+- RTX 5090
 - Rockets
 - Terry Rozier
 - Pete Buttigieg
 - Hello Kitty Island Adventure
+- Calvin Robinson
 - AAPL
 - Gracie Abrams
 - UPS stock
+- Microsoft stock
 - Pebble Beach Pro-Am
-- WHEEL OF FORTUNE
+- Wheel of Fortune
 - The Recruit
-- IBM stock
-- Plane crash
 - Asteroid hitting Earth 2032
 - Kash Patel
 - Jordan Henderson
-- Mitoma
 - Transfer deadline day
+- Mitoma
 - Plane crash
 - FCSB vs Man United
 - Tottenham vs IF Elfsborg
-- Rangers vs Union Saint-Gilloise
 - The Apprentice
 - John Prescott
 - Trinny Woodall
@@ -66,30 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Calvin Robinson
 - Bryce Mitchell
 - Bernie
-- Hair Syrup
 - Guantanamo Bay
 - Steven Gerrard
 - Russell Brand
+- Al Nassr
+- Ekin-Su
 - Deva
 - Budget 2025
 - Ola Electric Gen 3
 - Squid Game season 3 Netflix
 - Economic Survey 2025
-- Motilal Oswal
 - Deva Movie review
+- Motilal Oswal
 - Waaree Energies share
 - Delhi vs Railways Ranji match
-- Washington DC plane crashes
+- American Airlines
 - Mahatma Gandhi
 - KL Rahul
 - Sunita Williams
 - Federal Reserve interest rates
 - Bharat Electronics Q3 Results earnings
-- Arvind Kejriwal
 - Gandhi
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
+- Tata Motors share
 - epgview
 - best epg
 - epg for iptv
