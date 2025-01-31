@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
-- Reese Witherspoon
+- You're Cordially Invited
+- FireAid concert
 - 5090
+- George W. Bush
 - Parish
+- Rockets
 - Terry Rozier
 - Pete Buttigieg
-- FireAid concert
+- Poppy Playtime Chapter 4
 - FCSB vs Man United
 - Hello Kitty Island Adventure
+- Calvin Robinson
 - AAPL
-- NBA All-Star 2025
 - UPS stock
+- Gracie Abrams
 - Pebble Beach Pro-Am
-- Wheel of Fortune
-- The Recruit
-- Did rfk get confirmed
-- Rockets
-- IBM stock
+- WHEEL OF FORTUNE
 - Asteroid hitting Earth 2032
 - Kash Patel
 - Plane crash
@@ -67,11 +67,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bryce Mitchell
 - Steven Gerrard
 - Russell Brand
-- Al Nassr
+- Al-Nassr
 - Ekin-Su
 - Parish
+- Deva
 - Adani Enterprises share price
-- Upendra Yadav
 - Washington DC plane crashes
 - Mahatma Gandhi
 - Kerala Blasters
@@ -82,11 +82,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi vs Railways Ranji match
 - Stampede
 - Delhi vs Railways Ranji match
-- Josh Inglis
 - Sports
 - Mahakumbh news
 - ITC Hotels share price
 - Tata Motors
+- SL vs AUS
 - Income Tax Union Budget
 - Dr Agarwal Healthcare IPO GMP
 - Cricket
