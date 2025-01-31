@@ -33,26 +33,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
+- George W. Bush
 - 5090
 - PARISH
-- Jinna Han
-- Terry Rozier
 - Reese Witherspoon
+- Terry Rozier
 - Pete Buttigieg
-- Calvin Robinson
 - FCSB vs Man United
 - Hello Kitty Island Adventure
+- AAPL
 - Did rfk get confirmed
-- UPS stock
 - Pebble Beach Pro-Am
+- UPS stock
 - IBM stock
-- Plane crash
 - Laken Riley
 - Guantanamo Bay
 - Lunar New Year 2025
+- Ken Flores
 - Plane crash
 - FCSB vs Man United
-- Marianne Faithful
 - Tottenham vs IF Elfsborg
 - The Apprentice
 - Rangers vs Union Saint-Gilloise
@@ -63,16 +62,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bernie
 - Hair Syrup
 - Guantanamo Bay
-- UK snow blizzard February
 - Steven Gerrard
-- Al Nassr
-- Russell Brand
 - Bryce Mitchell
-- Ekin-Su
+- Russell Brand
 - Parish
+- Ekin-Su
+- Bridget Jones: Mad About The Boy
+- Chinese New Year 2025
+- Aston Villa vs Celtic
 - Mahatma Gandhi
 - Washington DC plane crashes
-- Kerala Blasters
 - KL Rahul
 - Federal Reserve interest rates
 - Sunita Williams
@@ -82,7 +81,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi vs Railways Ranji match
 - Josh Inglis
 - Sports
-- Steve Smith
 - Mahakumbh news
 - ITC Hotels share price
 - Tata Motors
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dr Agarwal Healthcare IPO GMP
 - Cricket
 - Hardik Pandya
+- Waqf Amendment Bill
+- Nvidia share price
 - epgview
 - best epg
 - epg for iptv
