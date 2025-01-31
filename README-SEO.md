@@ -32,16 +32,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - The Weeknd
 - Rockets vs Grizzlies
+- Matthew Stafford
+- FDA approved non-opioid pain medication
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
-- FireAid concert
 - Reese Witherspoon
+- FireAid concert
 - Parish
 - RTX 5090
 - Terry Rozier
 - Pete Buttigieg
-- Rockets
 - Hello Kitty Island Adventure
 - AAPL
 - Gracie Abrams
@@ -49,13 +50,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Wheel of Fortune
 - Microsoft stock
 - Pebble Beach Pro-Am
-- The Recruit
 - Asteroid hitting Earth 2032
+- Six Nations
 - Europa League draw
-- Jordan Henderson
+- 6 Nations
+- India vs England
 - Transfer deadline day
-- Kash Patel
+- Jordan Henderson
 - Mitoma
+- Kash Patel
 - Reese Witherspoon
 - Plane crash
 - FCSB vs Man United
@@ -67,29 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Calvin Robinson
 - Bryce Mitchell
-- Bernie
-- Guantanamo Bay
-- Steven Gerrard
-- Deva
+- India vs England
 - Budget 2025
+- Deva Movie
 - Ola Electric Gen 3
 - Economic Survey 2025
 - Motilal Oswal
 - U19 Women's World Cup
+- Waaree Energies share
 - Delhi vs Railways Ranji match
 - American Airlines
 - Mahatma Gandhi
 - Sunita Williams
 - Federal Reserve interest rates
 - Bharat Electronics Q3 Results earnings
+- Arvind Kejriwal
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
 - Mahakumbh news
 - Delhi vs Railways
-- ITC Hotels share price
-- Tata Motors
-- SL vs AUS
 - epgview
 - best epg
 - epg for iptv
