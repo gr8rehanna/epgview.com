@@ -30,34 +30,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- What is DEI
 - The Weeknd
 - Rockets vs Grizzlies
-- Matthew Stafford
 - FDA approved non-opioid pain medication
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
-- Reese Witherspoon
 - FireAid concert
+- 5090
 - Parish
-- RTX 5090
+- You're Cordially Invited
 - Terry Rozier
 - Pete Buttigieg
+- Reese Witherspoon
 - Hello Kitty Island Adventure
-- AAPL
 - Gracie Abrams
 - UPS stock
 - Wheel of Fortune
 - Microsoft stock
-- Pebble Beach Pro-Am
+- Rockets
 - Asteroid hitting Earth 2032
 - Six Nations
-- Europa League draw
-- 6 Nations
 - India vs England
+- Europa League draw
+- Unclaimed EuroMillions Lottery jackpot
 - Transfer deadline day
-- Jordan Henderson
 - Mitoma
+- Jordan Henderson
 - Kash Patel
 - Reese Witherspoon
 - Plane crash
@@ -68,8 +68,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - John Prescott
 - The Apprentice
 - Barcelona
-- Calvin Robinson
 - Bryce Mitchell
+- Calvin Robinson
 - India vs England
 - Budget 2025
 - Deva Movie
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Motilal Oswal
 - U19 Women's World Cup
 - Waaree Energies share
-- Delhi vs Railways Ranji match
+- Inter Miami CF
+- India versus England
+- Virat Kohli
 - American Airlines
 - Mahatma Gandhi
 - Sunita Williams
-- Federal Reserve interest rates
 - Bharat Electronics Q3 Results earnings
 - Arvind Kejriwal
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
 - Mahakumbh news
-- Delhi vs Railways
 - epgview
 - best epg
 - epg for iptv
