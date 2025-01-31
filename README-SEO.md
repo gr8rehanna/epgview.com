@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - The Weeknd
+- Tariffs
 - Journavx
 - Hurry Up Tomorrow
+- Karla Sofía Gascón
 - Kiah Duggins
-- Tariffs
-- Rockets vs Grizzlies
 - Hyperbaric chamber
+- Rockets vs Grizzlies
 - Dwyane Wade
-- Matthew Stafford
 - NBA All stars
+- Matthew Stafford
+- Scream 7
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
 - FireAid concert
 - Reese Witherspoon
 - Parish
-- NBC news
 - Terry Rozier
 - RTX 5090
-- Morgan Wallen
-- Barclays
 - Six Nations
+- Barclays
 - India vs England
 - Asteroid hitting Earth 2032
 - Europa League draw
-- Spurs
 - Companion Movie
 - Digga D jailed
 - Transfer deadline day
 - Unclaimed EuroMillions lottery jackpot
 - Mitoma
+- Rugby Today
 - Jordan Henderson
-- Kash Patel
 - Reese Witherspoon
-- Rugby
+- Kash Patel
+- England Rugby
 - Plane crash
 - FCSB vs Man United
 - Mick Jagger
-- Tottenham vs IF Elfsborg
 - Trinny Woodall
-- Cricket
+- John Prescott
 - India vs England
+- Cricket
 - ICC
 - Budget 2025
 - Deva Movie
-- Ola Electric Gen 3
 - Economic Survey 2025
+- Ola Electric Gen 3
 - Motilal Oswal
-- Harshit Rana
 - Virat Kohli
 - American Airlines
-- Al Nassr
+- Al-Nassr
 - Sunita Williams
 - Tata Motors
-- Bharat Electronics Q3 Results earnings
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
 - Mahakumbh news
 - Delhi vs Railways
+- ITC Hotels share price
+- SL vs AUS
 - epgview
 - best epg
 - epg for iptv
