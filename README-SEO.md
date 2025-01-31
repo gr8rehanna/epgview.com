@@ -34,27 +34,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Weeknd
 - Journavx
 - Rockets vs Grizzlies
+- Matthew Stafford
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
 - FireAid concert
+- Reese Witherspoon
 - 5090
 - Parish
-- You're Cordially Invited
 - Terry Rozier
 - Pete Buttigieg
-- Reese Witherspoon
-- Morgan Wallen
 - Hello Kitty Island Adventure
+- NBA All-Star 2025
 - Gracie Abrams
-- UPS stock
 - Wheel of Fortune
+- UPS stock
 - Rockets
 - Barclays
+- Six Nations 2025
 - India vs England
 - Asteroid hitting Earth 2032
 - Six Nations
-- Six Nations 2025
 - Europa League draw
 - Unclaimed EuroMillions Lottery jackpot
 - Transfer deadline day
@@ -64,32 +64,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Reese Witherspoon
 - Plane crash
 - FCSB vs Man United
+- Mick Jagger
 - Tottenham vs IF Elfsborg
 - Trinny Woodall
 - John Prescott
 - The Apprentice
 - Bryce Mitchell
-- Barcelona
 - India vs England
-- Budget 2025 date
-- Deva Movie Review
-- Ola Electric Gen 3
+- Saqib Mahmood
+- ICC
+- Harshit Rana
+- Budget 2025
+- Deva Movie
+- Hardik Pandya
 - Economic Survey 2025
+- Ola Electric Gen 3
 - Motilal Oswal
-- Ola Gen 3 electric scooter
-- U19 Women's World Cup
 - Waaree Energies share
 - Inter Miami CF
 - Virat Kohli
+- Cricket live
 - American Airlines
-- Eng vs Ind
 - Mahatma Gandhi
 - Sunita Williams
+- Tata Motors
 - Bharat Electronics Q3 Results earnings
 - Arvind Kejriwal
-- Stampede
-- Delhi vs Railways Ranji match
-- Sports
 - epgview
 - best epg
 - epg for iptv
