@@ -34,51 +34,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kash Patel
 - Tulsi Gabbard
 - 5090
-- Parish
+- PARISH
 - Jinna Han
-- Reese Witherspoon
 - Terry Rozier
-- Calvin Robinson
+- Reese Witherspoon
 - Pete Buttigieg
-- Hello Kitty Island Adventure
+- Calvin Robinson
 - FCSB vs Man United
+- Hello Kitty Island Adventure
+- Did rfk get confirmed
 - UPS stock
-- IBM stock
 - Pebble Beach Pro-Am
+- IBM stock
+- Plane crash
 - Laken Riley
 - Guantanamo Bay
 - Lunar New Year 2025
-- Ken Flores
-- Meta stock
 - Plane crash
 - FCSB vs Man United
 - Marianne Faithful
 - Tottenham vs IF Elfsborg
-- John Prescott
-- Rangers vs Union Saint-Gilloise
-- Trinny Woodall
 - The Apprentice
+- Rangers vs Union Saint-Gilloise
+- John Prescott
+- Trinny Woodall
 - Barcelona
 - Calvin Robinson
 - Bernie
-- Guantanamo Bay
 - Hair Syrup
+- Guantanamo Bay
 - UK snow blizzard February
 - Steven Gerrard
 - Al Nassr
-- Bridget Jones: Mad About The Boy
-- Ekin-Su
 - Russell Brand
-- Chinese New Year 2025
-- Upendra Yadav
-- Washington DC plane crashes
+- Bryce Mitchell
+- Ekin-Su
+- Parish
 - Mahatma Gandhi
+- Washington DC plane crashes
 - Kerala Blasters
 - KL Rahul
 - Federal Reserve interest rates
-- Arvind Kejriwal
 - Sunita Williams
-- Gandhi
 - Bharat Electronics Q3 Results earnings
 - Delhi vs Railways Ranji match
 - Stampede
@@ -90,6 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITC Hotels share price
 - Tata Motors
 - Income Tax Union Budget
+- Dr Agarwal Healthcare IPO GMP
+- Cricket
+- Hardik Pandya
 - epgview
 - best epg
 - epg for iptv
