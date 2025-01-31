@@ -31,32 +31,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - The Weeknd
+- Rockets vs Grizzlies
 - Justin Tucker
 - Kash Patel
 - Tulsi Gabbard
-- Fire aid concert
+- FireAid concert
 - Reese Witherspoon
 - Parish
 - RTX 5090
-- Rockets
 - Terry Rozier
 - Pete Buttigieg
+- Rockets
 - Hello Kitty Island Adventure
-- Calvin Robinson
 - AAPL
 - Gracie Abrams
 - UPS stock
 - Microsoft stock
 - Pebble Beach Pro-Am
-- Wheel of Fortune
 - The Recruit
+- IBM stock
 - Asteroid hitting Earth 2032
-- Kash Patel
 - Jordan Henderson
+- Kash Patel
+- Europa League draw
 - Transfer deadline day
 - Mitoma
 - Plane crash
 - FCSB vs Man United
+- Mick Jagger
 - Tottenham vs IF Elfsborg
 - The Apprentice
 - John Prescott
@@ -68,16 +70,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Guantanamo Bay
 - Steven Gerrard
 - Russell Brand
-- Al Nassr
-- Ekin-Su
 - Deva
 - Budget 2025
 - Ola Electric Gen 3
 - Squid Game season 3 Netflix
 - Economic Survey 2025
-- Deva Movie review
 - Motilal Oswal
-- Waaree Energies share
+- U19 Women's World Cup
 - Delhi vs Railways Ranji match
 - American Airlines
 - Mahatma Gandhi
@@ -85,6 +84,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sunita Williams
 - Federal Reserve interest rates
 - Bharat Electronics Q3 Results earnings
+- Arvind Kejriwal
 - Gandhi
 - Stampede
 - Delhi vs Railways Ranji match
