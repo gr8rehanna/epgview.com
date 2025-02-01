@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Philadelphia
+- UFC
 - Tariffs
-- Journavx
 - The Weeknd
+- Journavx
 - Hyperbaric chamber
 - Royal Rumble 2025
-- India vs England
 - CDC
+- India vs England
 - Hurry Up Tomorrow
 - Kim Gordon
-- Karla Sofía Gascón
 - J.T. Miller
+- Black History Month
 - Chuck Todd
-- Rockets vs Grizzlies
+- USAID
 - Pete Davidson
+- Rockets vs Grizzlies
 - Dwyane Wade
 - Scream 7
 - Victims of dc plane crash
-- USAID
-- Matthew Stafford
-- Justin Tucker
 - Six Nations
 - Barclays
 - India vs England
@@ -59,28 +59,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Spurs
 - Transfer deadline day
 - Omar Love Island
-- Companion movie
+- Companion Movie
 - Digga D
 - Unclaimed EuroMillions lottery jackpot
 - Reese Witherspoon
 - Mitoma
 - Death in Paradise
-- Jordan Henderson
 - Royal Rumble 2025
+- Jordan Henderson
 - England Rugby
 - Kash Patel
-- When does the transfer window close
-- February
+- Billie Eilish
 - हर्षित राणा
 - India vs England
 - Cricket
 - ICC
-- Budget 2025 Date
+- Deva
 - Budget 2025
-- Hardik pandya
-- Deva movie
-- Economic Survey 2025
+- Budget 2025 Date
+- Hardik Pandya
 - Ola Electric Gen 3
+- Economic Survey 2025
+- Motilal Oswal
+- Sky Force box office collection day
 - Inter Miami CF
 - Virat Kohli
 - American Airlines
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi vs Railways Ranji match
 - Sports
 - Mahakumbh news
-- Delhi vs Railways
 - epgview
 - best epg
 - epg for iptv
