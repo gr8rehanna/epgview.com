@@ -30,7 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Plane crash today
+- Philadelphia
 - UFC
 - Tariffs
 - Journavx
@@ -40,17 +40,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - CDC
 - Bucks
 - Hurry Up Tomorrow
-- Victims of dc plane crash
 - Black History Month
 - J.T. Miller
 - USAID
-- Karla Sofía Gascón
 - Chuck Todd
-- Rockets vs Grizzlies
+- Pete Davidson
+- Celtics vs Pelicans
 - Suns
 - Kim Gordon
 - Dwyane Wade
+- Scream 7
 - Renee Zellweger
+- Cyndi Lauper
 - Leo Woodall
 - Philadelphia
 - Six Nations
@@ -65,18 +66,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Digga D
 - Rugby Today
 - Unclaimed EuroMillions lottery jackpot
+- Blackburn Rovers vs Preston
 - Reese Witherspoon
 - Mitoma
 - Royal Rumble 2025
-- Death in Paradise
-- England Rugby
 - Royal Rumble 2025
+- हर्षित राणा
 - Share Market Today
 - India vs England
+- Budget 2025
 - Cricket
-- ICC
 - Budget 2025 date
-- Deva
+- ICC
 - Hardik Pandya
 - Ola Electric Gen 3
 - Economic Survey 2025
@@ -84,12 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sky Force box office collection day
 - U19 Women's World Cup
 - Inter Miami CF
-- Budget 2025
 - Virat Kohli
 - Himanshu Sangwan
 - American Airlines
+- New tax regime
 - Sunita Williams
-- Aus vs SL Test
 - epgview
 - best epg
 - epg for iptv
