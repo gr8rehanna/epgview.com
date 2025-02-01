@@ -33,50 +33,51 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Senior Bowl 2025
 - Celtics
 - Warriors
-- Ken Martin
 - Espanyol vs Real Madrid
+- Ken Martin
 - Bournemouth vs Liverpool
 - Kestrel
 - Tennessee basketball
 - Benavidez vs Morrell
 - Dejounte Murray
-- Serie del Caribe 2025
-- Penn State wrestling
+- Costco strike
 - Plane crash today
 - Plane crash
 - UFC
-- Tariffs
 - Royal Rumble 2025
+- Tariffs
 - Black History Month
+- The Weeknd
 - Groundhog Day 2025
 - Journavx
 - UFC
 - Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
 - Scotland Rugby
-- Leeds United
 - Aston Villa
 - Wolves vs Aston Villa
-- Philadelphia
+- Leeds United
 - Newcastle vs Fulham
 - Everton vs Leicester City
-- Ipswich Town vs Southampton
-- Linda Nolan
-- Renee Zellweger
+- Philadelphia
 - Andrea Corr
+- Linda Nolan
+- Ipswich Town vs Southampton
+- Renee Zellweger
+- Lola Young
+- Espanyol vs Real Madrid
 - Plymouth Argyle
-- Espanyol vs Real Madrid
 - Davina McCall
-- Derby County vs Sheffield United
-- Tomori
-- Tommy Robinson
-- Espanyol vs Real Madrid
+- Rare 50p coins
+- Adam Azim
+- Cricket
 - Basant Panchami 2025
 - February
 - Royal Rumble 2025
 - Share Market Today
 - UFC
 - MSME
+- Disney
 - Railway Budget 2025
 - Kisan Credit Card
 - Gig workers
@@ -85,11 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND vs ENG
 - Budget 2025 date
 - ICC
-- Deva
+- Hardik Pandya
 - Economic Survey 2025
 - Tilak Varma
 - Motilal Oswal
-- Ola Electric Gen 3
 - epgview
 - best epg
 - epg for iptv
