@@ -30,7 +30,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Celtics
+- Pennsylvania
+- Costco strike
 - Philadelphia
+- DEI
 - Tariffs
 - UFC
 - Royal Rumble 2025
@@ -38,26 +42,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hyperbaric chamber
 - CDC
 - The Weeknd
-- Bucks
+- D.C plane crash victims
 - Black History Month
+- Bucks
 - Hurry Up Tomorrow
 - J.T. Miller
 - USAID
+- Kiah Duggins
 - Karla Sofía Gascón
-- Chuck Todd
-- Pete Davidson
-- Suns
-- Flight 5342 crash
-- Dwyane Wade
-- Dallas Mavericks
 - Nottm Forest vs Brighton
 - UFC
+- Bournemouth vs Liverpool
+- Scotland rugby
 - Philadelphia
-- Renee Zellweger
 - Rashford
+- Renee Zellweger
+- Newcastle vs Fulham
 - Linda Nolan
-- Leo Woodall
-- Scotland Rugby
+- Everton vs Leicester City
+- Plymouth Argyle
 - Tomori
 - Six Nations
 - Barclays
@@ -67,14 +70,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Europa League draw
 - Rugby Today
 - Spurs
-- Transfer deadline day
-- Digga D
-- Companion movie
 - Australia vs Sri Lanka
 - Basant Panchami 2025
 - February
 - Share Market Today
 - Royal Rumble 2025
+- MSME
+- Railway Budget 2025
 - Gig workers
 - India vs England
 - Budget 2025
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Virat Kohli
 - Himanshu Sangwan
 - American Airlines
-- New tax regime
-- Sunita Williams
 - epgview
 - best epg
 - epg for iptv
