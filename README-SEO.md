@@ -36,24 +36,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Journavx
 - Hyperbaric chamber
 - Royal Rumble 2025
+- Groundhog Day 2025
 - The Weeknd
 - CDC
 - Bucks
 - Hurry Up Tomorrow
-- Victims of dc plane crash
 - Black History Month
 - J.T. Miller
 - USAID
-- Karla Sofía Gascón
 - Chuck Todd
 - Pete Davidson
 - Suns
-- Kim Gordon
 - Dwyane Wade
+- Scream 7
+- Victims of D.C plane crash
 - Renee Zellweger
 - Cyndi Lauper
-- Leo Woodall
 - Philadelphia
+- Leo Woodall
+- Tomori
 - Six Nations
 - Barclays
 - India vs England
@@ -66,30 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Companion movie
 - Rugby Today
 - Unclaimed EuroMillions lottery jackpot
+- England rugby
 - Reese Witherspoon
 - Royal Rumble 2025
-- Mitoma
-- England rugby
 - February
 - Share Market Today
 - Royal Rumble 2025
 - हर्षित राणा
+- Stock market today
 - India vs England
-- IND vs ENG
 - Budget 2025
+- IND vs ENG
 - Budget 2025 date
 - ICC
+- Deva
 - Hardik Pandya
 - Ola Electric Gen 3
 - Economic Survey 2025
 - Motilal Oswal
 - Sky Force box office collection day
-- Inter Miami CF
 - Virat Kohli
 - Himanshu Sangwan
 - American Airlines
 - New tax regime
-- Sunita Williams
 - epgview
 - best epg
 - epg for iptv
