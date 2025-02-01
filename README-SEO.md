@@ -39,17 +39,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Weeknd
 - CDC
 - Bucks
-- Kim Gordon
 - Hurry Up Tomorrow
+- Victims of dc plane crash
 - Black History Month
 - J.T. Miller
 - USAID
+- Karla Sofía Gascón
 - Chuck Todd
-- Pete Davidson
+- Rockets vs Grizzlies
 - Suns
+- Kim Gordon
 - Dwyane Wade
-- Scream 7
-- Dallas Mavericks
+- Renee Zellweger
+- Leo Woodall
+- Philadelphia
 - Six Nations
 - Barclays
 - India vs England
@@ -60,36 +63,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Transfer deadline day
 - Companion movie
 - Digga D
+- Rugby Today
 - Unclaimed EuroMillions lottery jackpot
 - Reese Witherspoon
 - Mitoma
-- Death in Paradise
 - Royal Rumble 2025
+- Death in Paradise
 - England Rugby
-- Jordan Henderson
-- Kash Patel
-- Billie Eilish
-- Plane crash
 - Royal Rumble 2025
 - Share Market Today
 - India vs England
 - Cricket
-- Budget 2025
 - ICC
+- Budget 2025 date
 - Deva
 - Hardik Pandya
-- Economic Survey 2025
 - Ola Electric Gen 3
+- Economic Survey 2025
 - Motilal Oswal
 - Sky Force box office collection day
 - U19 Women's World Cup
 - Inter Miami CF
+- Budget 2025
 - Virat Kohli
-- Budget 2025 date
 - Himanshu Sangwan
 - American Airlines
 - Sunita Williams
-- Stampede
+- Aus vs SL Test
 - epgview
 - best epg
 - epg for iptv
