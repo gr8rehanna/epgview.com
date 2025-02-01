@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Philadelphia
-- Tariffs
 - UFC
+- Tariffs
 - Journavx
 - Groundhog Day 2025
 - Hyperbaric chamber
-- The Weeknd
 - Royal Rumble 2025
+- The Weeknd
+- D.C plane crash victims
 - CDC
-- India vs England
 - Kim Gordon
 - Hurry Up Tomorrow
-- J.T. Miller
-- Karla Sofía Gascón
 - Black History Month
+- J.T. Miller
+- Kiah Duggins
 - USAID
 - Chuck Todd
 - Pete Davidson
+- Bucks
 - Rockets vs Grizzlies
-- Dwyane Wade
 - Six Nations
 - Barclays
 - India vs England
@@ -70,14 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kash Patel
 - Billie Eilish
 - Plane crash
-- February
+- Royal Rumble 2025
 - India vs England
 - Cricket
-- ICC
 - Budget 2025
-- Budget 2025 Date
-- Deva
+- ICC
+- Budget 2025 date
 - Hardik Pandya
+- Deva movie
 - Economic Survey 2025
 - Ola Electric Gen 3
 - Motilal Oswal
