@@ -31,16 +31,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Journavx
-- The Weeknd
 - Tariffs
-- Hurry Up Tomorrow
+- The Weeknd
+- Royal Rumble 2025
 - Hyperbaric chamber
+- Hurry Up Tomorrow
 - Karla Sofía Gascón
-- Kiah Duggins
+- CDC
 - Rockets vs Grizzlies
 - Chuck Todd
-- Scream 7
 - Dwyane Wade
+- Scream 7
 - Matthew Stafford
 - Justin Tucker
 - Kash Patel
@@ -49,7 +50,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Parish
 - Terry Rozier
 - RTX 5090
-- Edward Snowden
+- Cyndi Lauper
 - Six Nations
 - Barclays
 - India vs England
@@ -57,27 +58,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Asteroid hitting Earth 2032
 - Europa League draw
 - Spurs
-- Companion Movie
 - Transfer deadline day
-- Digga D jailed
+- Companion Movie
 - Omar Love Island
+- Digga D jailed
+- DEI
 - Rugby
 - Unclaimed EuroMillions lottery jackpot
-- Mitoma
+- State pension
 - Reese Witherspoon
-- Jordan Henderson
+- Mitoma
 - Death in Paradise
-- England Rugby
-- Kash Patel
-- Royal Rumble 2025
+- Jordan Henderson
+- हर्षित राणा
 - India vs England
 - Cricket
 - ICC
 - Deva
 - Budget 2025
-- Ola Electric Gen 3
 - Economic Survey 2025
+- Ola Electric Gen 3
 - Motilal Oswal
+- Kash Patel
+- Inter Miami CF
 - Virat Kohli
 - American Airlines
 - Sunita Williams
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sports
 - Mahakumbh news
 - Delhi vs Railways
-- ITC Hotels share price
-- SL vs AUS
-- Income Tax Union Budget
 - epgview
 - best epg
 - epg for iptv
