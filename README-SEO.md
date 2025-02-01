@@ -40,16 +40,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - CDC
 - Bucks
 - Hurry Up Tomorrow
+- Victims of dc plane crash
 - Black History Month
 - J.T. Miller
 - USAID
+- Karla Sofía Gascón
 - Chuck Todd
 - Pete Davidson
-- Celtics vs Pelicans
 - Suns
 - Kim Gordon
 - Dwyane Wade
-- Scream 7
 - Renee Zellweger
 - Cyndi Lauper
 - Leo Woodall
@@ -62,20 +62,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Europa League draw
 - Spurs
 - Transfer deadline day
-- Companion movie
 - Digga D
+- Companion movie
 - Rugby Today
 - Unclaimed EuroMillions lottery jackpot
-- Blackburn Rovers vs Preston
 - Reese Witherspoon
-- Mitoma
 - Royal Rumble 2025
+- Mitoma
+- England rugby
+- February
+- Share Market Today
 - Royal Rumble 2025
 - हर्षित राणा
-- Share Market Today
 - India vs England
+- IND vs ENG
 - Budget 2025
-- Cricket
 - Budget 2025 date
 - ICC
 - Hardik Pandya
@@ -83,7 +84,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Economic Survey 2025
 - Motilal Oswal
 - Sky Force box office collection day
-- U19 Women's World Cup
 - Inter Miami CF
 - Virat Kohli
 - Himanshu Sangwan
