@@ -34,51 +34,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Warriors
 - Bournemouth vs Liverpool
 - Kestrel
-- Dejounte Murray
+- Ken Martin
+- Tennessee basketball
 - Benavidez vs Morrell
+- Dejounte Murray
+- Serie del Caribe 2025
 - Costco strike
 - Philadelphia
+- Plane crash
 - UFC
-- DEI
 - Tariffs
 - Royal Rumble 2025
-- The Weeknd
 - Black History Month
 - Groundhog Day 2025
 - Journavx
 - Hyperbaric chamber
 - CDC
-- Bucks
-- J.T. Miller
+- Nottm Forest vs Brighton
 - UFC
 - Bournemouth vs Liverpool
 - Scotland Rugby
 - Leeds United
 - Aston Villa
+- Wolves vs Aston Villa
 - Newcastle vs Fulham
 - Everton vs Leicester City
-- Wolves vs Aston Villa
 - Philadelphia
 - Ipswich Town vs Southampton
-- Chris Wood
-- Renee Zellweger
 - Linda Nolan
+- Renee Zellweger
+- Rugby scores
 - Plymouth Argyle
-- Tomori
 - Derby County vs Sheffield United
+- Tomori
 - Tommy Robinson
 - Six Nations
 - Barclays
-- England Rugby
+- Espanyol vs Real Madrid
 - Australia vs Sri Lanka
-- Basant Panchami
+- Cricket
+- Basant Panchami 2025
+- Bournemouth vs Liverpool
 - February
 - Royal Rumble 2025
-- UFC
 - Share Market Today
+- UFC
 - MSME
 - Railway Budget 2025
-- Stock Market today
+- Kisan Credit Card
 - Gig workers
 - India vs England
 - Budget 2025
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICC
 - Hardik Pandya
 - Economic Survey 2025
-- Motilal Oswal
-- Ola Electric Gen 3
-- Sky Force box office collection day
 - epgview
 - best epg
 - epg for iptv
