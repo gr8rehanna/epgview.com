@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Philadelphia
 - Tariffs
 - Journavx
 - The Weeknd
-- Royal Rumble 2025
 - Hyperbaric chamber
-- Hurry Up Tomorrow
+- Royal Rumble 2025
+- India vs England
 - CDC
+- Hurry Up Tomorrow
+- Kim Gordon
+- Karla Sofía Gascón
+- J.T. Miller
 - Chuck Todd
 - Rockets vs Grizzlies
-- J.T. Miller
-- Dwyane Wade
 - Pete Davidson
+- Dwyane Wade
 - Scream 7
-- Kim Gordon
+- Victims of dc plane crash
+- USAID
 - Matthew Stafford
 - Justin Tucker
-- Kash Patel
-- FireAid concert
-- You're Cordially Invited
 - Six Nations
 - Barclays
 - India vs England
@@ -59,32 +59,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Spurs
 - Transfer deadline day
 - Omar Love Island
-- Companion Movie
+- Companion movie
 - Digga D
 - Unclaimed EuroMillions lottery jackpot
 - Reese Witherspoon
 - Mitoma
 - Death in Paradise
 - Jordan Henderson
-- England Rugby
 - Royal Rumble 2025
+- England Rugby
 - Kash Patel
 - When does the transfer window close
+- February
 - हर्षित राणा
 - India vs England
 - Cricket
 - ICC
+- Budget 2025 Date
 - Budget 2025
-- Deva Movie
 - Hardik pandya
+- Deva movie
 - Economic Survey 2025
 - Ola Electric Gen 3
-- Motilal Oswal
-- Kash Patel
+- Inter Miami CF
 - Virat Kohli
 - American Airlines
 - Sunita Williams
-- Tata Motors
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
