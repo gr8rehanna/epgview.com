@@ -30,59 +30,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Tariffs
 - Journavx
 - The Weeknd
+- Tariffs
 - Hurry Up Tomorrow
 - Hyperbaric chamber
+- Karla Sofía Gascón
 - Kiah Duggins
 - Rockets vs Grizzlies
-- Dwyane Wade
-- Scream 7
-- Matthew Stafford
 - Chuck Todd
+- Scream 7
+- Dwyane Wade
+- Matthew Stafford
 - Justin Tucker
 - Kash Patel
-- Tulsi Gabbard
 - FireAid concert
 - Reese Witherspoon
 - Parish
 - Terry Rozier
 - RTX 5090
-- Morgan Wallen
+- Edward Snowden
 - Six Nations
 - Barclays
 - India vs England
+- Champions League draw
 - Asteroid hitting Earth 2032
 - Europa League draw
 - Spurs
 - Companion Movie
-- Digga D jailed
-- DEI
 - Transfer deadline day
+- Digga D jailed
 - Omar Love Island
+- Rugby
 - Unclaimed EuroMillions lottery jackpot
-- Rugby Today
 - Mitoma
-- 6 Nations 2025
 - Reese Witherspoon
 - Jordan Henderson
-- Kash Patel
-- England Rugby
 - Death in Paradise
+- England Rugby
+- Kash Patel
+- Royal Rumble 2025
 - India vs England
+- Cricket
 - ICC
 - Deva
 - Budget 2025
 - Ola Electric Gen 3
 - Economic Survey 2025
 - Motilal Oswal
-- Cricket
 - Virat Kohli
 - American Airlines
 - Sunita Williams
 - Tata Motors
-- Arvind Kejriwal
 - Stampede
 - Delhi vs Railways Ranji match
 - Sports
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi vs Railways
 - ITC Hotels share price
 - SL vs AUS
+- Income Tax Union Budget
 - epgview
 - best epg
 - epg for iptv
