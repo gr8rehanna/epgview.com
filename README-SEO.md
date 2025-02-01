@@ -38,19 +38,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hyperbaric chamber
 - Hurry Up Tomorrow
 - CDC
-- Rockets vs Grizzlies
 - Chuck Todd
+- Rockets vs Grizzlies
+- J.T. Miller
 - Dwyane Wade
-- Scream 7
 - Pete Davidson
+- Scream 7
+- Kim Gordon
 - Matthew Stafford
 - Justin Tucker
 - Kash Patel
 - FireAid concert
 - You're Cordially Invited
-- Parish
-- Terry Rozier
-- Cyndi Lauper
 - Six Nations
 - Barclays
 - India vs England
@@ -59,24 +58,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Europa League draw
 - Spurs
 - Transfer deadline day
-- Companion Movie
 - Omar Love Island
+- Companion Movie
 - Digga D
-- DEI
-- Rugby
 - Unclaimed EuroMillions lottery jackpot
 - Reese Witherspoon
 - Mitoma
 - Death in Paradise
-- Scott Thomas
 - Jordan Henderson
+- England Rugby
+- Royal Rumble 2025
+- Kash Patel
+- When does the transfer window close
+- हर्षित राणा
 - India vs England
 - Cricket
 - ICC
-- Deva
-- Budget
-- Ola Electric Gen 3
+- Budget 2025
+- Deva Movie
+- Hardik pandya
 - Economic Survey 2025
+- Ola Electric Gen 3
 - Motilal Oswal
 - Kash Patel
 - Virat Kohli
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sports
 - Mahakumbh news
 - Delhi vs Railways
-- ITC Hotels share price
-- SL vs AUS
 - epgview
 - best epg
 - epg for iptv
