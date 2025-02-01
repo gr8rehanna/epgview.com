@@ -42,19 +42,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bucks
 - Hurry Up Tomorrow
 - Black History Month
+- Stock market
 - J.T. Miller
 - USAID
+- Kiah Duggins
 - Chuck Todd
 - Pete Davidson
 - Suns
 - Dwyane Wade
-- Scream 7
-- Victims of D.C plane crash
+- Philadelphia
 - Renee Zellweger
 - Cyndi Lauper
-- Philadelphia
+- Nottm Forest vs Brighton
 - Leo Woodall
 - Tomori
+- Linda Nolan
 - Six Nations
 - Barclays
 - India vs England
@@ -63,33 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Europa League draw
 - Spurs
 - Transfer deadline day
+- Rugby Today
 - Digga D
 - Companion movie
-- Rugby Today
 - Unclaimed EuroMillions lottery jackpot
 - England rugby
-- Reese Witherspoon
-- Royal Rumble 2025
 - February
 - Share Market Today
 - Royal Rumble 2025
-- हर्षित राणा
-- Stock market today
 - India vs England
 - Budget 2025
 - IND vs ENG
 - Budget 2025 date
 - ICC
 - Deva
-- Hardik Pandya
 - Ola Electric Gen 3
 - Economic Survey 2025
 - Motilal Oswal
 - Sky Force box office collection day
+- U19 Women's World Cup
 - Virat Kohli
 - Himanshu Sangwan
 - American Airlines
 - New tax regime
+- Sunita Williams
+- Aus vs SL Test
 - epgview
 - best epg
 - epg for iptv
