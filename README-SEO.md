@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Celtics
-- Pennsylvania
+- Warriors
 - Costco strike
-- Philadelphia
+- Plane crash today
 - DEI
-- Tariffs
 - UFC
+- Tariffs
 - Royal Rumble 2025
 - Journavx
+- Groundhog Day 2025
 - Hyperbaric chamber
 - CDC
-- The Weeknd
-- D.C plane crash victims
 - Black History Month
+- The Weeknd
 - Bucks
 - Hurry Up Tomorrow
 - J.T. Miller
-- USAID
+- Stock market
+- Chuck Todd
 - Kiah Duggins
-- Karla Sofía Gascón
 - Nottm Forest vs Brighton
-- UFC
 - Bournemouth vs Liverpool
-- Scotland rugby
+- UFC
+- Scotland Rugby
 - Philadelphia
-- Rashford
-- Renee Zellweger
 - Newcastle vs Fulham
-- Linda Nolan
 - Everton vs Leicester City
+- Renee Zellweger
+- Linda Nolan
+- Rashford
+- Marcus Rashford
 - Plymouth Argyle
 - Tomori
 - Six Nations
 - Barclays
 - India vs England
 - Champions League draw
+- England rugby
 - Asteroid hitting Earth 2032
 - Europa League draw
-- Rugby Today
-- Spurs
 - Australia vs Sri Lanka
-- Basant Panchami 2025
 - February
+- Vasant Panchami 2025
+- Udit Narayan
 - Share Market Today
 - Royal Rumble 2025
 - MSME
+- UFC
 - Railway Budget 2025
 - Gig workers
+- Kisan Credit Card
 - India vs England
 - Budget 2025
 - IND vs ENG
 - Budget 2025 date
-- Hardik Pandya
 - Economic Survey 2025
+- Deva movie
 - Ola Electric Gen 3
+- Tilak Varma
 - Motilal Oswal
-- Sky Force box office collection day
-- Virat Kohli
-- Himanshu Sangwan
-- American Airlines
 - epgview
 - best epg
 - epg for iptv
