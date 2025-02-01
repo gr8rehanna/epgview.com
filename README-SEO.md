@@ -31,45 +31,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Philadelphia
+- Plane crash today
 - UFC
 - Tariffs
+- Royal Rumble 2025
 - Journavx
 - Hyperbaric chamber
-- Royal Rumble 2025
-- Groundhog Day 2025
 - The Weeknd
 - CDC
 - Bucks
-- Hurry Up Tomorrow
 - Black History Month
+- Hurry Up Tomorrow
 - Stock market
 - J.T. Miller
 - USAID
 - Kiah Duggins
+- Karla Sofía Gascón
 - Chuck Todd
 - Pete Davidson
 - Suns
-- Dwyane Wade
+- UFC
+- Nottm Forest vs Brighton
 - Philadelphia
 - Renee Zellweger
 - Cyndi Lauper
-- Nottm Forest vs Brighton
 - Leo Woodall
-- Tomori
 - Linda Nolan
+- Rashford
+- Scotland Rugby
+- Tomori
 - Six Nations
 - Barclays
 - India vs England
 - Champions League draw
 - Asteroid hitting Earth 2032
 - Europa League draw
+- Rugby Today
 - Spurs
 - Transfer deadline day
-- Rugby Today
 - Digga D
-- Companion movie
-- Unclaimed EuroMillions lottery jackpot
-- England rugby
+- Basant Panchami 2025
 - February
 - Share Market Today
 - Royal Rumble 2025
@@ -78,12 +79,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND vs ENG
 - Budget 2025 date
 - ICC
-- Deva
+- Hardik Pandya
 - Ola Electric Gen 3
 - Economic Survey 2025
 - Motilal Oswal
 - Sky Force box office collection day
-- U19 Women's World Cup
 - Virat Kohli
 - Himanshu Sangwan
 - American Airlines
