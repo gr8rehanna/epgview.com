@@ -32,8 +32,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Celtics
 - Warriors
+- Kestrel
 - Costco strike
-- Plane crash today
+- Benavidez vs Morrell
+- Philadelphia
 - DEI
 - UFC
 - Tariffs
@@ -41,55 +43,53 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Journavx
 - Groundhog Day 2025
 - Hyperbaric chamber
-- CDC
 - Black History Month
+- CDC
 - The Weeknd
 - Bucks
 - Hurry Up Tomorrow
-- J.T. Miller
 - Stock market
 - Chuck Todd
-- Kiah Duggins
 - Nottm Forest vs Brighton
-- Bournemouth vs Liverpool
 - UFC
+- Bournemouth vs Liverpool
 - Scotland Rugby
 - Philadelphia
 - Newcastle vs Fulham
 - Everton vs Leicester City
 - Renee Zellweger
+- Cyndi Lauper
+- Leeds United vs Cardiff City
 - Linda Nolan
 - Rashford
 - Marcus Rashford
 - Plymouth Argyle
+- Wolves vs Aston Villa
 - Tomori
 - Six Nations
 - Barclays
+- Rugby today
 - India vs England
-- Champions League draw
-- England rugby
-- Asteroid hitting Earth 2032
-- Europa League draw
 - Australia vs Sri Lanka
-- February
 - Vasant Panchami 2025
+- February
 - Udit Narayan
-- Share Market Today
 - Royal Rumble 2025
-- MSME
+- Share Market Today
 - UFC
+- MSME
 - Railway Budget 2025
-- Gig workers
+- Stock Market today
 - Kisan Credit Card
+- Gig workers
 - India vs England
 - Budget 2025
 - IND vs ENG
 - Budget 2025 date
+- ICC
+- Hardik Pandya
 - Economic Survey 2025
-- Deva movie
-- Ola Electric Gen 3
 - Tilak Varma
-- Motilal Oswal
 - epgview
 - best epg
 - epg for iptv
