@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Benavidez vs Morrell
 - UNC vs Duke
-- Senior Bowl 2025
 - Espanyol vs Real Madrid
-- Celtics
 - Ken Martin
+- Celtics
 - Warriors
+- Senior Bowl 2025
 - Kestrel
 - NASCAR
 - Tennessee basketball
 - Bournemouth vs Liverpool
+- Lakers vs Knicks
 - Pebble Beach
 - Serie del Caribe 2025
-- Pennsylvania
-- Black History Month 2025
-- Plane crash today
+- Nuggets vs Hornets
+- Somalia
+- Philadelphia
 - Plane crash
 - UFC
 - Royal Rumble 2025
-- DEI
 - Leeds
 - UFC
 - Nottm Forest vs Brighton
@@ -66,17 +66,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Espanyol vs Real Madrid
 - Ipswich Town vs Southampton
 - Renee Zellweger
-- Lola Young
 - Adam Azim
 - Kevin Danso
-- Rugby scores
+- Plymouth Argyle
+- Davina McCall
 - Espanyol vs Real Madrid
-- Vasantha Panchami in 2025
+- Basant Panchami 2025: Date
 - Basant Panchami 2025
 - Cricket
 - Royal Rumble 2025
 - February
-- UFC
 - Share Market Today
 - MSME
 - Railway Budget 2025
@@ -87,9 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND vs ENG
 - Budget 2025 date
 - ICC
+- Deva
 - Economic Survey 2025
+- Tilak Varma
 - Ola Electric Gen 3
-- Virat Kohli
 - epgview
 - best epg
 - epg for iptv
