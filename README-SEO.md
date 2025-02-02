@@ -34,9 +34,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - UNC vs Duke
 - Espanyol vs Real Madrid
 - Ken Martin
+- Lakers vs Knicks
 - Celtics
 - Warriors
-- Lakers vs Knicks
 - Kestrel
 - NASCAR
 - Tennessee basketball
@@ -45,11 +45,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Marquette basketball
 - Pebble Beach
 - Serie del Caribe 2025
-- Costco strike
 - Somalia
 - John Calipari
-- Black History Month 2025
-- Justin Baldoni website
+- Costco strike
+- Pennsylvania
+- When is Black History Month
 - Leeds
 - UFC
 - Nottm Forest vs Brighton
@@ -62,34 +62,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Everton vs Leicester City
 - Philadelphia
 - Andrea Corr
-- Linda Nolan
 - Espanyol vs Real Madrid
+- Linda Nolan
 - Renee Zellweger
 - Rashford
 - Adam Azim
 - Kevin Danso
-- Rugby scores
 - Plymouth Argyle
+- Davina McCall
 - Vasantha Panchami in 2025
-- Basant Panchami 2025
+- Income Tax
+- Saraswati Puja 2025
 - Cricket
 - Royal Rumble 2025
 - February
 - Share Market Today
+- MSME
 - Railway Budget 2025
 - Gig workers
+- Stock market Today
 - India vs England
 - Budget 2025
-- IND vs ENG
 - Budget 2025 date
+- Harshit Rana
 - ICC
 - Deva
 - Economic Survey 2025
 - Tilak Varma
 - Ola Electric Gen 3
-- U19 Women's World Cup
-- Virat Kohli
-- Himanshu Sangwan
 - epgview
 - best epg
 - epg for iptv
