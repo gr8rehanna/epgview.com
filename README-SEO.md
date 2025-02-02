@@ -30,11 +30,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Beyonce
-- Texas Tech basketball
-- Benavidez vs Morrell
-- UNC vs Duke
 - Grammys 2025
+- Beyonce
+- Benavidez vs Morrell
+- Duke vs UNC
+- Plane
 - Espanyol vs Real Madrid
 - Lakers vs Knicks
 - Ken Martin
@@ -47,14 +47,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NBA trade deadline
 - Claressa Shields
 - Marquette basketball
-- Somalia
 - Justin Baldoni website
+- Somalia
 - Serie del Caribe 2025
 - Luka Doncic
 - Groundhog Day
-- Brexit 50p coins
+- WWE
+- Man City vs Arsenal
 - Grammys 2025
-- Hull City
 - Leeds
 - UFC
 - Nottm Forest vs Brighton
@@ -71,8 +71,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kevin Danso
 - Adam Azim
 - U19 Women's World Cup
-- Wriddhiman Saha
-- IND vs SA
+- Under-19 World Cup
+- Budget Live
 - Basant Panchami 2025
 - Income Tax
 - Cricket
@@ -83,13 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Railway Budget 2025
 - Gig workers
 - BPL
-- IND v Eng
 - India vs England
 - IND vs ENG
-- Budget 2025 date
 - Budget 2025
 - ICC
 - Deva
+- India match
+- Economic Survey 2025
 - epgview
 - best epg
 - epg for iptv
