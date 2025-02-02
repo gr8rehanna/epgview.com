@@ -30,16 +30,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Grammys 2025
 - Beyonce
+- Texas Tech basketball
+- Plane crash
 - Benavidez vs Morrell
-- Duke vs UNC
-- Plane
-- Espanyol vs Real Madrid
-- Lakers vs Knicks
+- UNC vs Duke
+- Grammys 2025
 - Ken Martin
 - Celtics
 - Warriors
+- Senior Bowl
 - Kestrel
 - NASCAR
 - Canada
@@ -50,39 +50,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Baldoni website
 - Somalia
 - Serie del Caribe 2025
+- Man United vs Crystal Palace
 - Luka Doncic
+- Brentford vs Tottenham
 - Groundhog Day
-- WWE
 - Man City vs Arsenal
+- WWE
 - Grammys 2025
+- Beyonce
 - Leeds
 - UFC
-- Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
 - Aston Villa
-- Scotland Rugby
 - Leeds United
+- Scotland Rugby
+- Nottingham Forest
 - Wolves vs Aston Villa
 - Everton vs Leicester City
-- Andrea Corr
 - Espanyol vs Real Madrid
 - Philadelphia
 - Linda Nolan
-- Kevin Danso
-- Adam Azim
 - U19 Women's World Cup
-- Under-19 World Cup
-- Budget Live
-- Basant Panchami 2025
+- Under 19 World Cup
+- Wriddhiman Saha
+- New tax regime 2025
 - Income Tax
-- Cricket
+- Saraswati Puja 2025
 - Royal Rumble 2025
 - Udit Narayan
-- Share Market Today
+- February
 - MSME
+- Stock Market today
 - Railway Budget 2025
 - Gig workers
-- BPL
 - India vs England
 - IND vs ENG
 - Budget 2025
