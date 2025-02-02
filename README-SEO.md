@@ -30,34 +30,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Cooper Flagg
 - Benavidez vs Morrell
+- UNC vs Duke
 - Senior Bowl 2025
 - Espanyol vs Real Madrid
 - Celtics
-- Warriors
 - Ken Martin
+- Warriors
 - Kestrel
-- Tennessee basketball
 - NASCAR
+- Tennessee basketball
 - Bournemouth vs Liverpool
 - Pebble Beach
 - Serie del Caribe 2025
-- Costco strike
+- Pennsylvania
+- Black History Month 2025
 - Plane crash today
 - Plane crash
 - UFC
 - Royal Rumble 2025
 - DEI
-- Tariffs
 - Leeds
 - UFC
 - Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
 - Scotland Rugby
+- Aston Villa
 - Leeds United
 - Wolves vs Aston Villa
-- Aston Villa
 - Newcastle vs Fulham
 - Everton vs Leicester City
 - Philadelphia
@@ -67,28 +67,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ipswich Town vs Southampton
 - Renee Zellweger
 - Lola Young
-- Rashford
 - Adam Azim
 - Kevin Danso
+- Rugby scores
 - Espanyol vs Real Madrid
-- Cricket
+- Vasantha Panchami in 2025
 - Basant Panchami 2025
+- Cricket
 - Royal Rumble 2025
 - February
 - UFC
 - Share Market Today
 - MSME
 - Railway Budget 2025
+- Kisan Credit Card
 - Gig workers
 - India vs England
 - Budget 2025
 - IND vs ENG
 - Budget 2025 date
 - ICC
-- Deva
 - Economic Survey 2025
 - Ola Electric Gen 3
-- Nathan lyon
 - Virat Kohli
 - epgview
 - best epg
