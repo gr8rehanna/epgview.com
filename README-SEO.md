@@ -36,7 +36,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ken Martin
 - Celtics
 - Warriors
-- Senior Bowl 2025
 - Lakers vs Knicks
 - Kestrel
 - NASCAR
@@ -49,39 +48,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Costco strike
 - Somalia
 - John Calipari
-- Plane crash today
+- Black History Month 2025
+- Justin Baldoni website
 - Leeds
 - UFC
 - Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
 - Scotland Rugby
-- Wolves vs Aston Villa
 - Leeds United
+- Wolves vs Aston Villa
+- Aston Villa
 - Newcastle vs Fulham
 - Everton vs Leicester City
-- Aston Villa
 - Philadelphia
-- Rashford
 - Andrea Corr
 - Linda Nolan
 - Espanyol vs Real Madrid
-- Ipswich Town vs Southampton
 - Renee Zellweger
+- Rashford
 - Adam Azim
 - Kevin Danso
+- Rugby scores
 - Plymouth Argyle
 - Vasantha Panchami in 2025
 - Basant Panchami 2025
 - Cricket
 - Royal Rumble 2025
-- Udit Narayan
 - February
 - Share Market Today
-- MSME
 - Railway Budget 2025
-- Kisan Credit Card
 - Gig workers
-- IND v Eng
 - India vs England
 - Budget 2025
 - IND vs ENG
@@ -90,6 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deva
 - Economic Survey 2025
 - Tilak Varma
+- Ola Electric Gen 3
+- U19 Women's World Cup
+- Virat Kohli
+- Himanshu Sangwan
 - epgview
 - best epg
 - epg for iptv
