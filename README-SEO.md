@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Texas Tech basketball
 - Benavidez vs Morrell
 - UNC vs Duke
 - Espanyol vs Real Madrid
@@ -40,24 +41,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kestrel
 - NASCAR
 - Tennessee basketball
-- Bournemouth vs Liverpool
 - Canada
+- NBA trade deadline
 - Marquette basketball
 - Pebble Beach
 - Serie del Caribe 2025
 - Somalia
 - John Calipari
 - Costco strike
-- Pennsylvania
-- When is Black History Month
+- Justin Baldoni website
 - Leeds
+- Burnley fc
 - UFC
 - Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
 - Scotland Rugby
+- Aston Villa
 - Leeds United
 - Wolves vs Aston Villa
-- Aston Villa
 - Newcastle vs Fulham
 - Everton vs Leicester City
 - Philadelphia
@@ -65,14 +66,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Espanyol vs Real Madrid
 - Linda Nolan
 - Renee Zellweger
-- Rashford
 - Adam Azim
 - Kevin Danso
 - Plymouth Argyle
 - Davina McCall
 - Vasantha Panchami in 2025
-- Income Tax
-- Saraswati Puja 2025
+- Wriddhiman Saha
+- Income tax
+- Basant Panchami 2025
 - Cricket
 - Royal Rumble 2025
 - February
@@ -80,7 +81,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - MSME
 - Railway Budget 2025
 - Gig workers
-- Stock market Today
+- BPL
+- Stock Market Today
 - India vs England
 - Budget 2025
 - Budget 2025 date
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICC
 - Deva
 - Economic Survey 2025
-- Tilak Varma
-- Ola Electric Gen 3
 - epgview
 - best epg
 - epg for iptv
