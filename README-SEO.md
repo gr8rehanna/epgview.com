@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Grammys 2025
 - Beyonce
 - Pro Bowl 2025
 - Barcelona  Alavés
 - Texas Tech basketball
-- Plane crash
 - Benavidez vs Morrell
-- UNC vs Duke
-- Grammys 2025
+- Duke vs UNC
 - Ken Martin
 - Celtics
-- Warriors
-- Kestrel
 - NASCAR
+- Senior Bowl
+- Kestrel
 - Canada
-- NBA trade deadline
-- Tennessee basketball
 - Claressa Shields
-- Marquette basketball
+- Tennessee basketball
 - Justin Baldoni website
+- Marquette basketball
 - Somalia
+- Martinez Refinery
+- Serie del Caribe 2025
 - Man United vs Crystal Palace
-- Luka Doncic
+- Arsenal vs Man City
 - Brentford vs Tottenham
+- Luka Doncic
+- Wolves
 - Groundhog Day
-- Man City vs Arsenal
-- WWE
+- Man U
 - Sheffield United
 - Grammys 2025
 - Beyonce
 - Leeds
 - UFC
 - Bournemouth vs Liverpool
-- Aston Villa
 - Scotland Rugby
-- Nottingham Forest
 - Leeds United
+- Aston Villa
 - Wolves vs Aston Villa
-- Everton vs Leicester City
-- Espanyol vs Real Madrid
+- Nottingham Forest
 - Philadelphia
-- Barcelona
+- Linda Nolan
+- Barcelona vs Alavés
 - U19 Women's World Cup
-- New tax regime 2025
+- Man United vs Crystal Palace
+- Arsenal vs Man City
+- बसंत पंचमी
+- Luka Doncic
+- Income tax
 - Basant Panchami 2025
-- Income Tax
+- Budget Highlights
+- England vs India
 - Royal Rumble 2025
-- February
+- Udit Narayan
 - MSME
-- Stock Market Today
-- Gig workers
+- Stock Market today
 - India vs England
 - IND vs ENG
 - Budget 2025
 - ICC
 - Deva
 - India match
-- Economic Survey 2025
-- Ola Electric Gen 3
-- U19 Women's World Cup
-- Virat Kohli
 - epgview
 - best epg
 - epg for iptv
