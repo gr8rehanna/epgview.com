@@ -30,49 +30,49 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Senior Bowl 2025
 - Espanyol vs Real Madrid
-- Celtics
-- WARRIORS
 - Benavidez vs Morrell
+- Celtics
+- Warriors
 - Ken Martin
+- Senior Bowl 2025
 - Kestrel
 - Tennessee basketball
 - Bournemouth vs Liverpool
+- NASCAR
 - Dejounte Murray
-- Harry Styles
 - Serie del Caribe 2025
-- Costco strike
-- Penn State wrestling
-- Philadelphia
+- Pebble Beach
+- Pennsylvania
+- Plane crash today
 - Plane crash
 - UFC
 - Royal Rumble 2025
+- DEI
 - Tariffs
-- Black History Month
 - UFC
 - Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
 - Scotland Rugby
+- Leeds United
 - Aston Villa
 - Wolves vs Aston Villa
-- Leeds United
 - Newcastle vs Fulham
 - Everton vs Leicester City
 - Philadelphia
 - Andrea Corr
 - Linda Nolan
-- Ipswich Town vs Southampton
 - Espanyol vs Real Madrid
+- Ipswich Town vs Southampton
 - Renee Zellweger
 - Lola Young
 - Adam Azim
+- Kevin Danso
 - Rugby scores
 - Plymouth Argyle
-- Davina McCall
 - Espanyol vs Real Madrid
-- Basant Panchami 2025
-- Bournemouth vs Liverpool
+- Cricket
+- Basant Panchami
 - February
 - Udit Narayan
 - Royal Rumble 2025
