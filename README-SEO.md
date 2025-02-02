@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Arsenal vs Man City
-- Cowboy Carter Tour
 - Pro Bowl 2025
+- Cowboy Carter Tour
 - Barcelona  Alavés
+- Beyonce
 - AC Milan
 - Man United vs Crystal Palace
+- Rory McIlroy
 - Texas Tech basketball
+- Ohio State Basketball
 - Grammys 2025
 - Benavidez vs Morrell
 - Tariffs meaning
-- UNC vs Duke
+- Duke vs UNC
 - Ken Martin
 - NASCAR
 - Martinez Refinery
 - Claressa Shields
-- Kestrel
 - Justin Baldoni website
-- Tennessee basketball
-- Boxing
-- Marquette basketball
+- Kestrel
 - Arsenal vs Man City
 - Man United vs Crystal Palace
 - Brentford vs Tottenham
-- Luka Doncic
 - India vs England
-- Man United
-- Groundhog Day
-- Celtic
+- Luka Doncic
 - Grammys 2025
-- Barcelona vs Alavés
-- WWE
-- Sheffield United
-- Milan vs Inter
-- IND vs ENG
+- Groundhog Day
+- Man United
+- Celtic
 - Margaret Miles-Bramwell
-- Tony Martin
-- Stephen Gately
 - Justin Baldoni
-- Beyonce
+- Milan vs Inter
+- Stephen Gately
+- Sheffield United
+- Tony Martin
 - Boyzone
+- Beyonce
+- Fentanyl
+- Lloyd Kelly
+- Leeds
 - Live Score
 - Cricket
 - Arsenal vs Man City
-- Man United vs Crystal Palace
 - Barcelona
 - Ind बनाम Eng
 - Luka Doncic
 - India vs England
 - IND vs ENG
 - Income-tax
-- Basant Panchami 2025
 - Cricket
-- Budget 2025 Highlights
+- Vasant Panchami 2025
 - Royal Rumble 2025
+- Income tax Budget 2025
+- Udit Narayan
 - February
-- Stock Market today
 - India vs Eng
 - India vs England
 - IND vs ENG
 - Budget 2025
+- Cricket Score
 - epgview
 - best epg
 - epg for iptv
