@@ -30,46 +30,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Grammys 2025
 - Arsenal vs Man City
 - Cowboy Carter Tour
 - Pro Bowl 2025
 - Barcelona  Alavés
 - Man United vs Crystal Palace
-- Texas Tech basketball
+- What time is the Super Bowl
 - Benavidez vs Morrell
+- Grammys 2025
 - Tariffs meaning
-- Duke vs UNC
+- UNC vs Duke
 - Ken Martin
 - Celtics
 - NASCAR
-- Senior Bowl
-- Kestrel
 - Claressa Shields
+- Kestrel
 - Justin Baldoni website
 - Tennessee basketball
+- Boxing
 - Marquette basketball
-- Somalia
+- Martinez Refinery
 - Arsenal vs Man City
 - Man United vs Crystal Palace
 - Brentford vs Tottenham
-- Luka Doncic
 - India vs England
+- Luka Doncic
+- Man United
 - Groundhog Day
 - Celtic
-- Man United
-- Barcelona vs Alavés
 - Grammys 2025
+- Barcelona vs Alavés
 - Sheffield United
-- IND vs ENG
-- Justin Baldoni
 - Margaret Miles-Bramwell
+- Milan vs Inter
+- Justin Baldoni
 - Beyonce
 - Tony Martin
-- Milan vs Inter
+- Stephen Gately
+- Fentanyl
+- Boyzone
 - Leeds
-- UFC
-- Bournemouth vs Liverpool
 - Cricket
 - Barcelona vs Alavés
 - Arsenal vs Man City
@@ -84,9 +84,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket
 - Budget 2025 Highlights
 - Royal Rumble 2025
-- Udit Narayan
 - February
 - Stock Market today
+- India vs Eng
 - India vs England
 - IND vs ENG
 - Budget 2025
