@@ -32,24 +32,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Texas Tech basketball
 - Benavidez vs Morrell
-- UNC vs Duke
+- Duke vs UNC
 - Espanyol vs Real Madrid
 - Ken Martin
 - Lakers vs Knicks
 - Celtics
 - Warriors
+- Unc vs Duke
 - Kestrel
 - NASCAR
-- Tennessee basketball
 - Canada
-- NBA trade deadline
+- Tennessee basketball
 - Marquette basketball
 - Pebble Beach
-- Serie del Caribe 2025
 - Somalia
-- John Calipari
-- Costco strike
+- Serie del Caribe 2025
 - Justin Baldoni website
+- Costco strike
+- Pennsylvania
+- Luka Doncic
+- Groundhog Day
 - Leeds
 - Burnley fc
 - UFC
@@ -68,28 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Renee Zellweger
 - Adam Azim
 - Kevin Danso
-- Plymouth Argyle
-- Davina McCall
-- Vasantha Panchami in 2025
-- Wriddhiman Saha
-- Income tax
+- Income Tax
 - Basant Panchami 2025
 - Cricket
 - Royal Rumble 2025
+- Udit Narayan
 - February
+- UFC
 - Share Market Today
 - MSME
 - Railway Budget 2025
 - Gig workers
-- BPL
-- Stock Market Today
 - India vs England
 - Budget 2025
 - Budget 2025 date
-- Harshit Rana
 - ICC
+- Harshit Rana
 - Deva
 - Economic Survey 2025
+- Ola Electric Gen 3
+- U19 Women's World Cup
 - epgview
 - best epg
 - epg for iptv
