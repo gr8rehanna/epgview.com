@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Senior Bowl 2025
-- Celtics
-- Warriors
 - Espanyol vs Real Madrid
+- Celtics
+- WARRIORS
+- Benavidez vs Morrell
 - Ken Martin
-- Bournemouth vs Liverpool
 - Kestrel
 - Tennessee basketball
-- Benavidez vs Morrell
+- Bournemouth vs Liverpool
 - Dejounte Murray
+- Harry Styles
+- Serie del Caribe 2025
 - Costco strike
-- Plane crash today
+- Penn State wrestling
+- Philadelphia
 - Plane crash
 - UFC
 - Royal Rumble 2025
 - Tariffs
 - Black History Month
-- The Weeknd
-- Groundhog Day 2025
-- Journavx
 - UFC
 - Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
@@ -63,23 +63,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Andrea Corr
 - Linda Nolan
 - Ipswich Town vs Southampton
+- Espanyol vs Real Madrid
 - Renee Zellweger
 - Lola Young
-- Espanyol vs Real Madrid
+- Adam Azim
+- Rugby scores
 - Plymouth Argyle
 - Davina McCall
-- Rare 50p coins
-- Adam Azim
-- Cricket
+- Espanyol vs Real Madrid
 - Basant Panchami 2025
+- Bournemouth vs Liverpool
 - February
+- Udit Narayan
 - Royal Rumble 2025
 - Share Market Today
 - UFC
 - MSME
 - Disney
 - Railway Budget 2025
-- Kisan Credit Card
 - Gig workers
 - India vs England
 - Budget 2025
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hardik Pandya
 - Economic Survey 2025
 - Tilak Varma
-- Motilal Oswal
 - epgview
 - best epg
 - epg for iptv
