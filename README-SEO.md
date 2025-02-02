@@ -40,25 +40,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ken Martin
 - Celtics
 - Warriors
-- Senior Bowl
 - Kestrel
 - NASCAR
 - Canada
 - Tennessee basketball
 - NBA trade deadline
+- Claressa Shields
 - Marquette basketball
 - Somalia
 - Justin Baldoni website
 - Serie del Caribe 2025
 - Luka Doncic
 - Groundhog Day
+- Brexit 50p coins
 - Grammys 2025
+- Hull City
 - Leeds
 - UFC
 - Nottm Forest vs Brighton
 - Bournemouth vs Liverpool
-- Scotland Rugby
 - Aston Villa
+- Scotland Rugby
 - Leeds United
 - Wolves vs Aston Villa
 - Everton vs Leicester City
@@ -68,16 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Linda Nolan
 - Kevin Danso
 - Adam Azim
-- Davina McCall
-- Plymouth Argyle
-- Under 19 World Cup
+- U19 Women's World Cup
 - Wriddhiman Saha
-- New tax regime 2025
-- Income Tax
+- IND vs SA
 - Basant Panchami 2025
+- Income Tax
 - Cricket
 - Royal Rumble 2025
-- February
+- Udit Narayan
 - Share Market Today
 - MSME
 - Railway Budget 2025
@@ -86,10 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND v Eng
 - India vs England
 - IND vs ENG
+- Budget 2025 date
 - Budget 2025
 - ICC
 - Deva
-- Economic Survey 2025
 - epgview
 - best epg
 - epg for iptv
