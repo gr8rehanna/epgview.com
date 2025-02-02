@@ -30,10 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Beyonce
-- Pro Bowl 2025
+- Cowboy Carter Tour
+- Arsenal
 - Barcelona  Alavés
-- Arsenal vs Man City
 - Man United vs Crystal Palace
 - Texas Tech basketball
 - Benavidez vs Morrell
@@ -42,49 +41,50 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ken Martin
 - Celtics
 - NASCAR
-- NBA trade deadline
+- Senior Bowl
 - Kestrel
-- Canada
 - Claressa Shields
 - Tennessee basketball
 - Justin Baldoni website
 - Marquette basketball
 - Somalia
-- Man United vs Crystal Palace
+- Martinez Refinery
+- Pebble Beach
 - Arsenal vs Man City
+- Man United vs Crystal Palace
 - Brentford vs Tottenham
+- India vs England
 - Luka Doncic
+- Celtic
 - Groundhog Day
 - Man United
+- Barcelona vs Alavés
 - Sheffield United
 - Grammys 2025
 - Beyonce
+- Margaret Miles-Bramwell
 - Leeds
 - UFC
-- Aston Villa
 - Bournemouth vs Liverpool
 - Scotland Rugby
 - Leeds United
+- Aston Villa
 - Wolves vs Aston Villa
-- Nottingham Forest
-- Kevin Danso
-- Philadelphia
-- Linda Nolan
 - Barcelona vs Alavés
-- Cricket Live
-- Man United vs Crystal Palace
 - Arsenal vs Man City
+- Man United vs Crystal Palace
 - Ind बनाम Eng
-- Rishi Sunak
-- बसंत पंचमी
 - Luka Doncic
+- India vs England
 - IND vs ENG
 - Income tax
+- Live Score
 - Basant Panchami 2025
+- Cricket
 - Budget Highlights
 - Royal Rumble 2025
-- IND vs ENG Live
-- Stock Market Today
+- Udit Narayan
+- Stock Market today
 - India vs England
 - IND vs ENG
 - Budget 2025
