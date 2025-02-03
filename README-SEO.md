@@ -31,57 +31,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Myles Garrett
-- Not Like Us Kendrick Lamar
-- Groundhog Day 2025
+- Mitch McConnell
+- Day Without Immigrants 2025
 - Bianca Censori Grammys
+- Groundhog Day 2025
+- Stock market
 - USAID
-- Sabrina Carpenter
 - Zach LaVine
-- Taylor Swift Grammys
 - Arsenal vs Man City
+- Sabrina Carpenter
+- Did Taylor Swift win a Grammy
 - Benson Boone
 - Cowboy Carter Tour
-- Lady Gaga
 - Pro Bowl 2025
 - Quincy Jones
-- Pro Bowl
+- Lady Gaga
+- Sabrina Carpenter Grammys
 - Charli XCX
 - Teddy Swims
 - Alicia Keys
-- Cavs
-- Kyrie Irving
 - Bianca Censori Grammys
-- Taylor Swift
+- Mathys Tel
 - Transfer Deadline Day
 - USAID
+- Taylor Swift
 - Sabrina Carpenter
 - Chappell Roan
 - Santorini
-- AC Milan
 - Jordan Henderson
 - Nico Gonzalez
 - Bill Gates
-- Lady Gaga
-- Charli XCX
 - February
+- Lady Gaga
 - Inter Milan
-- Taylor Swift Grammys
-- Benson Boone
 - Joao Felix
+- Benson Boone
 - Jaden Smith
 - Cowboy Carter Tour
+- Grammys 2025
+- Arsenal vs Man City
 - Cricket
 - Kanye West
 - Grammys 2025
 - Shein
 - क्रिकेट
 - CBSE Admit Card 2025
+- Class 10 CBSE admit card
 - India vs England
 - Barcelona
-- Champions Trophy
 - Income tax slabs Union Budget 2025
 - Man City
 - U19 Women's World Cup
+- India match
 - IND बनाम ENG
 - Luka Doncic
 - Deva movie box office collection
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Income-tax
 - Cricket
 - Royal Rumble 2025
-- Udit Narayan
 - epgview
 - best epg
 - epg for iptv
