@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Myles Garrett
+- Celtics
+- A Day Without Immigrants
+- Mexico
+- Panama
+- Not Like Us Kendrick Lamar
 - Mitch McConnell
-- Day Without Immigrants 2025
-- Bianca Censori Grammys
+- Kingdom Come: Deliverance 2
+- Lee Joo-Sil
+- Elon Musk Treasury
 - Groundhog Day 2025
+- Bianca Censori Grammys
 - Stock market
 - USAID
+- Chappell Roan
 - Zach LaVine
 - Arsenal vs Man City
 - Sabrina Carpenter
 - Did Taylor Swift win a Grammy
 - Benson Boone
-- Cowboy Carter Tour
-- Pro Bowl 2025
-- Quincy Jones
-- Lady Gaga
-- Sabrina Carpenter Grammys
-- Charli XCX
-- Teddy Swims
-- Alicia Keys
 - Bianca Censori Grammys
 - Mathys Tel
 - Transfer Deadline Day
+- Santorini
+- Tom Read Wilson
 - USAID
 - Taylor Swift
 - Sabrina Carpenter
 - Chappell Roan
-- Santorini
 - Jordan Henderson
 - Nico Gonzalez
 - Bill Gates
 - February
-- Lady Gaga
-- Inter Milan
-- Joao Felix
 - Benson Boone
+- Lady Gaga
 - Jaden Smith
-- Cowboy Carter Tour
+- Joao Felix
+- Inter Milan
+- Pep Guardiola
+- Daniel Khalife
+- USAID
+- Delhi Elections
 - Grammys 2025
-- Arsenal vs Man City
-- Cricket
 - Kanye West
-- Grammys 2025
+- Inter Miami
 - Shein
-- क्रिकेट
 - CBSE Admit Card 2025
 - Class 10 CBSE admit card
 - India vs England
 - Barcelona
+- Champions Trophy
 - Income tax slabs Union Budget 2025
 - Man City
 - U19 Women's World Cup
-- India match
 - IND बनाम ENG
 - Luka Doncic
 - Deva movie box office collection
 - अभिषेक शर्मा
 - Income-tax
 - Cricket
-- Royal Rumble 2025
 - epgview
 - best epg
 - epg for iptv
