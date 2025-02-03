@@ -30,38 +30,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Groundhog Day 2025
 - Bianca Censori Grammys
 - Pro Bowl 2025
+- Sabrina Carpenter
 - Arsenal vs Man City
 - Chappell Roan
-- Sabrina Carpenter
 - Zach LaVine
-- Cavs
+- Lady Gaga
 - Cowboy Carter Tour
-- USAID
-- Benson Boone
-- Trevor Noah
 - Beyonce
-- Taylor Swift Grammys
+- Benson Boone
+- USAID
+- Cavs
+- Quincy Jones
+- Connections hint
+- Billie Eilish
 - Jimmy Butler
 - Olivia Rodrigo
-- Iowa women's basketball
-- Rory McIlroy
 - Grammy
-- Man United vs Crystal Palace
 - AC Milan
 - Santorini
 - Cowboy Carter Tour
 - Arsenal vs Man City
 - Man United vs Crystal Palace
-- Grammys 2025
 - Luka Doncic
+- Grammys 2025
 - Brentford vs Tottenham
 - India vs England
 - Jane Austen
 - Groundhog Day
+- Haaland
 - Celtic
-- Barcelona vs Alavés
 - Wolves
 - Margaret Miles-Bramwell
 - Justin Baldoni
@@ -69,9 +69,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Boyzone
 - Tony Martin
 - Sheffield United
-- Rory McIlroy
-- क्रिकेट
+- Beyonce
 - Inter Miami
+- क्रिकेट
 - India vs England
 - IND vs ENG
 - Cricket
@@ -81,15 +81,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND बनाम ENG
 - Rishi Sunak
 - Luka Doncic
+- Deva Box Office Collection Day
+- बसंत पंचमी
 - Income-tax
+- Basant Panchami 2025
 - Cricket
-- Saraswati Puja 2025
 - Royal Rumble 2025
 - Income tax Budget 2025
 - February
-- Basant panchmi
 - TDS
-- IND v Eng
 - epgview
 - best epg
 - epg for iptv
