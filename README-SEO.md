@@ -31,45 +31,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Myles Garrett
-- A Day Without Immigrants
+- Celtics
 - Mexico
+- A Day Without Immigrants
+- Sovereign wealth fund
+- Valentine's Day gifts
 - Diddy
 - Gracie Abrams
-- Sovereign wealth fund
 - Panama
+- Chelsea
+- Chelsea vs West Ham
 - Kingdom Come: Deliverance 2
-- Mitch McConnell
 - Elon Musk Treasury
-- Battlefield Labs
+- Mitch McConnell
 - The weekend
 - Bianca Censori Grammys
 - Groundhog Day 2025
 - Stock market
 - USAID
 - Chappell Roan
-- Zach LaVine
-- Beyonce
-- Pro Bowl 2025
 - Bianca Censori Grammys
 - Chelsea vs West Ham
-- Transfer Deadline Day
 - Mathys Tel
+- Chelsea
+- Transfer Deadline Day
 - Tom Read Wilson
 - Santorini
 - USAID
+- West Ham
 - Chappell Roan
 - Sabrina Carpenter
 - Taylor Swift
 - Jordan Henderson
 - Bill Gates
 - Nico Gonzalez
+- Sheffield
 - Benson Boone
 - Jaden Smith
-- Joao Felix
 - February
 - Lady Gaga
-- Inter Milan
-- Pep Guardiola
 - Chelsea vs West Ham
 - USAID
 - Delhi elections
@@ -84,8 +84,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - India vs England
 - Barcelona
 - Income tax slabs Union Budget 2025
-- U19 Women's World Cup
 - India match
+- U19 Women's World Cup
 - IND बनाम ENG
 - Arsenal
 - Luka Doncic
