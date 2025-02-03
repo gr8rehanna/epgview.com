@@ -32,32 +32,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Groundhog Day 2025
 - Bianca Censori Grammys
-- Arsenal vs Man City
+- Beyonce
 - Stevie Wonder
-- Zach LaVine
+- Arsenal vs Man City
 - Sabrina Carpenter
-- Pro Bowl 2025
-- Cowboy Carter Tour
+- Zach LaVine
 - USAID
-- Lady Gaga
+- Pro Bowl 2025
+- Cowboy Carter tour
 - Benson Boone
-- Album of the year
+- Lady Gaga
 - Connections hint
 - Cavs
 - Pro Bowl
+- Sabrina Carpenter Grammys
 - Charli XCX
 - Alicia Keys
 - Jimmy Butler
-- Olivia Rodrigo
-- Trevor Noah
-- Bianca Censori grammys
-- Revue
+- Celtics vs 76ers
+- Bianca Censori Grammys
+- Sabrina Carpenter
 - Chappell Roan
+- USAID
 - Jordan Henderson
 - Santorini
-- USAID
-- Lady Gaga
+- Kendrick Lamar
 - FTSE
+- Lady Gaga
+- Charli XCX
 - Cowboy Carter tour
 - Arsenal vs Man City
 - Grammys 2025
@@ -68,9 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jane Austen
 - Groundhog Day
 - Boyzone documentary
-- Haaland
-- Celtic
-- Champions Trophy
 - Inter Miami
 - क्रिकेट
 - Grammys 2025
@@ -79,8 +78,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - India vs England ODI
 - India vs England
 - ICC
-- Barcelona
+- Champions Trophy
 - Income tax slabs Union Budget 2025
+- Barcelona
 - Man City
 - IND बनाम ENG
 - Deva movie box office collection
