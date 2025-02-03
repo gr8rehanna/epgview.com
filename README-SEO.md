@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Groundhog Day 2025
 - Bianca Censori Grammys
-- Chappell Roan
 - Stevie Wonder
+- Chappell Roan
 - Arsenal vs Man City
 - Zach LaVine
 - Sabrina Carpenter
+- Beyonce
 - Pro Bowl 2025
 - Lady Gaga
 - Cowboy Carter Tour
 - Benson Boone
 - USAID
 - Connections hint
-- Album of the year
 - Pro Bowl
 - Cavs
+- Billie Eilish
+- Sabrina Carpenter Grammys
 - Grammy
 - Alicia Keys
-- Charli XCX
-- Jimmy Butler
 - Bianca Censori grammys
 - Revue
-- Santorini
 - Jordan Henderson
+- Santorini
 - Lady Gaga
 - Ronan Keating
-- Cowboy Carter Tour
+- Cowboy Carter tour
 - Arsenal vs Man City
 - Grammys 2025
 - Man United vs Crystal Palace
 - Luka Doncic
-- Brentford vs Tottenham
 - India vs England
+- Brentford vs Tottenham
 - Jane Austen
 - Groundhog Day
 - Haaland
 - Celtic
-- Man United
+- James Bond
 - Real Betis
 - Milan vs Inter
 - Champions Trophy
 - Inter Miami
 - क्रिकेट
-- CBSE Admit Card 2025
 - Grammys 2025
+- CBSE Admit Card 2025
 - Shein
-- India vs England ODI
 - India vs England
 - Arsenal vs Man City
 - Barcelona
-- U19 Women's World Cup
 - Income tax slabs Union Budget 2025
+- U19 Women's World Cup
+- IND vs ENG ODI
 - IND बनाम ENG
 - Deva movie box office collection
-- Rishi Sunak
 - Luka Doncic
 - Income-tax
+- Basant Panchami 2025
 - Cricket
-- Vasant Panchami 2025
 - Royal Rumble 2025
+- Basant Panchami
 - epgview
 - best epg
 - epg for iptv
