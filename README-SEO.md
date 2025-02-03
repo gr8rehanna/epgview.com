@@ -32,25 +32,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Bianca Censori Grammys
 - Pro Bowl 2025
-- Sabrina Carpenter
 - Arsenal vs Man City
-- Cowboy Carter Tour
-- Cavs
-- Zach LaVine
 - Chappell Roan
+- Sabrina Carpenter
+- Zach LaVine
+- Cavs
+- Cowboy Carter Tour
+- USAID
+- Benson Boone
+- Trevor Noah
+- Beyonce
+- Taylor Swift Grammys
 - Jimmy Butler
-- AC Milan
+- Olivia Rodrigo
 - Iowa women's basketball
+- Rory McIlroy
 - Grammy
 - Man United vs Crystal Palace
-- Trevor Noah
-- Pro Bowl score
-- Sporting San Miguelito  Inter Miami
-- Inter Miami
-- 76ers
-- Ohio State basketball
-- Pacers
+- AC Milan
 - Santorini
+- Cowboy Carter Tour
 - Arsenal vs Man City
 - Man United vs Crystal Palace
 - Grammys 2025
@@ -64,32 +65,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Wolves
 - Margaret Miles-Bramwell
 - Justin Baldoni
-- Stephen Gately
 - Milan vs Inter
 - Boyzone
 - Tony Martin
 - Sheffield United
 - Rory McIlroy
-- IND vs ENG
-- Live Score
-- Cricket
-- Barcelona vs Alavés
-- Arsenal vs Man City
-- IND बनाम ENG
-- Luka Doncic
+- क्रिकेट
+- Inter Miami
 - India vs England
+- IND vs ENG
+- Cricket
+- Arsenal vs Man City
+- Income tax slabs union Budget 2025
+- Barcelona
+- IND बनाम ENG
+- Rishi Sunak
+- Luka Doncic
 - Income-tax
 - Cricket
 - Saraswati Puja 2025
 - Royal Rumble 2025
 - Income tax Budget 2025
-- Basant Panchami
 - February
-- India vs Eng
-- In vs ENG
-- India vs England
-- IND vs ENG
-- Budget 2025
+- Basant panchmi
+- TDS
+- IND v Eng
 - epgview
 - best epg
 - epg for iptv
