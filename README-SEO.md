@@ -30,55 +30,53 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- RFK Jr
+- Rfk Jr
 - Fantastic Four
 - French to be
 - Tulsi Gabbard
 - Rosa Parks
 - El Salvador
-- Neil Gaiman
 - Marcus Jordan
+- Neil Gaiman
 - Tiger Woods
 - Walmart recalled Broccoli
 - Jurassic World Rebirth
-- PLTR stock
 - Myles Garrett
+- PLTR stock
 - Sovereign wealth fund
 - Cooper Kupp
 - Wordle Hint
-- Canada tariffs
 - Department of Education
+- Canada tariffs
 - A Day Without Immigrants
 - Kelsea Ballerini
 - Brian Murphy
 - Sweden
 - Sam Kerr
 - Marco Asensio
-- Buffy the Vampire Slayer reboot
 - Fantastic Four
+- Buffy the Vampire Slayer reboot
+- Port Vale vs Wrexham
 - Fentanyl
 - Carabao Cup
 - Cyndi Lauper
-- Port Vale vs Wrexham
 - Weight loss injections
 - World Cancer Day
+- QPR
 - World Cancer Day 2025
+- Emmerdale
 - Adam Armstrong
 - Ronaldo
-- Emmerdale
-- QPR
 - Palantir
 - Coronation Street
-- Neil Gaiman
+- Am I Being Unreasonable
 - Fantastic Four
 - Bryan Johnson
-- World Cancer Day
 - Cristiano Ronaldo
-- Delhi Elections
+- World Cancer Day
 - Jeemain
 - Vivo V50
 - USAID
-- YouTube .com
 - Cricket
 - Kanye West
 - Gold prices
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deva movie box office collection
 - अभिषेक शर्मा
 - बसंत पंचमी
+- Income-tax
+- Cricket
 - epgview
 - best epg
 - epg for iptv
