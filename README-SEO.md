@@ -45,13 +45,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - CBS
 - Department of Education
 - Valentine's Day gifts
-- Diddy
 - Kingdom Come: Deliverance 2
+- Diddy
 - Pat Hoberg
 - Panama
 - Kacey Musgraves
-- Sam Kerr
 - Brian Murphy
+- Sam Kerr
 - James Ward-Prowse
 - Bianca Censori Grammys
 - Chelsea vs West Ham
@@ -66,28 +66,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sabrina Carpenter
 - Taylor Swift
 - Bill Gates
-- AC Milan
 - Benson Boone
+- AC Milan
 - Sunderland
-- FTSE
+- Jeffrey Schlupp
 - Chelsea vs West Ham
 - World Cancer Day
 - USAID
 - Delhi elections
 - Bryan Johnson
 - Cricket
-- Grammys 2025
-- Man City
-- Gold prices
-- Shein
 - Kanye West
+- Grammys 2025
+- Gold prices
+- Man City
+- Shein
+- India vs England ODI
 - IND vs ENG
 - IND vs England
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
 - Barcelona
-- Luka Doncic
 - Deva movie box office collection
 - अभिषेक शर्मा
 - epgview
