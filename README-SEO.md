@@ -35,23 +35,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - PLTR
 - Sovereign wealth fund
 - Celtics
-- Mexico
 - A Day Without Immigrants
-- CBS
 - Cooper Kupp
-- Final Destination Bloodlines
-- Valentine's Day gifts
 - Kelsea Ballerini
-- Boston Celtics
+- CBS
+- Final Destination Bloodlines
+- The Voice
+- Valentine's Day gifts
+- Claudia Sheinbaum
 - Diddy
 - Department of Education
 - Kingdom Come: Deliverance 2
 - Panama
-- Elon Musk Treasury
 - Pat Hoberg
-- Sacramento Kings
+- Kacey Musgraves
+- Elon Musk Treasury
 - Sam Kerr
-- Samie love island
 - James Ward-Prowse
 - Bianca Censori Grammys
 - Chelsea vs West Ham
@@ -60,7 +59,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - West Ham
 - Santorini
 - Sheffield
-- Nico Gonzalez
 - USAID
 - Chappell Roan
 - Sabrina Carpenter
@@ -70,20 +68,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AC Milan
 - Benson Boone
 - Sunderland
+- Joao Felix
+- Jaden Smith
 - Chelsea vs West Ham
 - USAID
-- Delhi Elections
+- Delhi elections
 - Cricket
+- Bianca Censori Grammys
 - Grammys 2025
 - Man City
 - Shein
-- Bianca Censori Grammys
 - India vs England
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
+- IND vs ENG ODI
 - Barcelona
-- IND vs
 - Luka Doncic
 - Deva movie box office collection
 - अभिषेक शर्मा
