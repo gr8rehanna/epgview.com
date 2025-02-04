@@ -32,36 +32,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Myles Garrett
 - Chelsea vs West Ham
-- Celtics
-- Sovereign wealth fund
-- A Day Without Immigrants
-- Palantir stock
 - PLTR
+- Sovereign wealth fund
+- Celtics
+- Mexico
+- A Day Without Immigrants
+- CBS
+- Cooper Kupp
+- Final Destination Bloodlines
 - Valentine's Day gifts
-- Claudia Sheinbaum
+- Kelsea Ballerini
 - Boston Celtics
 - Diddy
-- Jay-Z
-- Kingdom Come: Deliverance 2
 - Department of Education
+- Kingdom Come: Deliverance 2
 - Panama
-- Sacramento Kings
 - Elon Musk Treasury
 - Pat Hoberg
-- Lee Joo-Sil
-- Mitch McConnell
+- Sacramento Kings
 - Sam Kerr
 - Samie love island
 - James Ward-Prowse
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
-- Transfer Deadline Day
+- Transfer deadline day
 - West Ham
 - Santorini
 - Sheffield
-- USAID
 - Nico Gonzalez
+- USAID
 - Chappell Roan
 - Sabrina Carpenter
 - Taylor Swift
@@ -72,24 +72,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sunderland
 - Chelsea vs West Ham
 - USAID
-- Delhi elections
+- Delhi Elections
 - Cricket
-- Bianca Censori Grammys
 - Grammys 2025
 - Man City
 - Shein
+- Bianca Censori Grammys
 - India vs England
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
 - Barcelona
+- IND vs
 - Luka Doncic
 - Deva movie box office collection
 - अभिषेक शर्मा
 - Income-tax
 - Cricket
 - Royal Rumble 2025
-- Udit Narayan
 - epgview
 - best epg
 - epg for iptv
