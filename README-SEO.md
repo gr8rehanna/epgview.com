@@ -31,10 +31,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Fantastic Four
+- Rfk
 - French to be
-- El Salvador
 - Rosa Parks
-- RFK confirmation
+- Neil Gaiman
 - PLTR stock
 - Myles Garrett
 - Wordle Hint
@@ -42,43 +42,42 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cooper Kupp
 - Chelsea vs West Ham
 - A Day Without Immigrants
-- Kelsea Ballerini
 - Final Destination Bloodlines
+- Kelsea Ballerini
+- Department of Education
 - Mexico
 - CBS
-- Valentine's Day Gifts
+- Valentine's Day gifts
 - Kingdom Come: Deliverance 2
 - Claudia Sheinbaum
-- Pat Hoberg
 - Brian Murphy
 - Parlay
 - Sam Kerr
-- Samie Love Island
+- Marco Asensio
 - Fantastic Four
+- Samie Love Island
 - Buffy the Vampire Slayer reboot
-- Adam Armstrong
+- Weight-loss injections
 - World Cancer Day
-- Asensio
+- Adam Armstrong
 - World Cancer Day 2025
+- Neil Gaiman
+- Snow Weather forecast
 - Bianca Censori Grammys
 - Chelsea vs West Ham
-- Transfer deadline day
 - Premium Bonds winners
+- Transfer deadline day
 - Harvey Willgoose
 - Mathys Tel
 - Santorini
-- West Ham
-- Nico Gonzalez
-- USAID
+- JEE Mains 2025
 - Bryan Johnson
 - World Cancer Day
-- Delhi Elections
+- Delhi elections
 - USAID
-- JEE Main
 - Vivo V50
-- JEE Mains 2025
-- Chelsea
 - Cristiano Ronaldo
+- Chelsea
 - YouTube com
 - Cricket
 - Kanye West
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICC
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
+- अभिषेक शर्मा
 - epgview
 - best epg
 - epg for iptv
