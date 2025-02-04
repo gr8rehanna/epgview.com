@@ -36,20 +36,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sovereign wealth fund
 - A Day Without Immigrants
 - Valentine's Day gifts
-- Boston Celtics
-- Diddy
 - Claudia Sheinbaum
-- Gracie Abrams
+- Boston Celtics
 - PLTR
+- Diddy
+- Palantir stock
 - Jay-Z
 - Panama
 - Kingdom Come: Deliverance 2
-- Elon Musk Treasury
 - Department of Education
+- Elon Musk Treasury
+- Lee Joo-Sil
 - Mitch McConnell
-- The weekend
 - Pat Hoberg
-- Jack Flaherty
+- The weekend
+- Sam Kerr
+- Samie love island
+- James Ward-Prowse
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
@@ -57,32 +60,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Transfer Deadline Day
 - West Ham
 - Santorini
-- AC Milan
+- Sheffield
 - USAID
 - Chappell Roan
+- Nico Gonzalez
 - Sabrina Carpenter
 - Taylor Swift
-- Nico Gonzalez
 - Jordan Henderson
 - Bill Gates
-- Sheffield
+- AC Milan
 - Benson Boone
-- Sunderland
-- Jaden Smith
-- Chelsea FC
 - Chelsea vs West Ham
 - USAID
 - Delhi elections
 - Cricket
 - Grammys 2025
 - Man City
-- Inter Miami
 - Shein
 - Bianca Censori Grammys
 - India vs England
+- ICC
+- Champions Trophy
 - Income tax slabs Union Budget 2025
 - Barcelona
-- India match
 - Arsenal
 - Luka Doncic
 - Deva movie box office collection
