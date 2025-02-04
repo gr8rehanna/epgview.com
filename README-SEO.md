@@ -32,10 +32,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - El Salvador
 - Myles Garrett
-- Wordle hint
 - PLTR stock
 - Chelsea vs West Ham
 - Sovereign wealth fund
+- Wordle hint
 - S&P 500
 - Celtics
 - Cooper Kupp
@@ -46,35 +46,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Voice
 - CBS
 - Department of Education
+- Valentine's Day gifts
 - Kingdom Come: Deliverance 2
+- Not Like Us Kendrick Lamar
 - Pat Hoberg
-- Panama
-- Kacey Musgraves
 - Brian Murphy
 - Sam Kerr
+- Asensio
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
 - Transfer deadline day
 - Sheffield
-- West Ham
+- Mathys Tel
 - Santorini
+- West Ham
 - USAID
 - Chappell Roan
 - Sabrina Carpenter
 - Taylor Swift
-- Jordan Henderson
 - Bill Gates
 - Kendrick Lamar
 - AC Milan
 - Sunderland
 - Willian
-- Jeffrey Schlupp
 - World Cancer Day
 - USAID
 - Delhi Elections
 - Bryan Johnson
 - Chelsea
+- Cristiano Ronaldo
 - Vivo V50
 - Cricket
 - Kanye West
@@ -82,14 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Gold prices
 - Man City
 - Shein
-- Neil Nitin Mukesh
 - IND vs ENG
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
-- Barcelona
 - Deva movie box office collection
 - अभिषेक शर्मा
+- बसंत पंचमी
 - epgview
 - best epg
 - epg for iptv
