@@ -35,35 +35,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - El Salvador
 - Rosa Parks
 - RFK confirmation
-- Myles Garrett
 - PLTR stock
+- Myles Garrett
 - Wordle Hint
 - Sovereign wealth fund
-- Chelsea vs West Ham
 - Cooper Kupp
+- Chelsea vs West Ham
 - A Day Without Immigrants
 - Kelsea Ballerini
 - Final Destination Bloodlines
-- Dow
 - Mexico
 - CBS
-- Valentine's Day gifts
-- Claudia Sheinbaum
+- Valentine's Day Gifts
 - Kingdom Come: Deliverance 2
+- Claudia Sheinbaum
+- Pat Hoberg
 - Brian Murphy
 - Parlay
 - Sam Kerr
 - Samie Love Island
+- Fantastic Four
 - Buffy the Vampire Slayer reboot
-- Weight-loss injections
-- Fantastic four
 - Adam Armstrong
-- Asensio
 - World Cancer Day
+- Asensio
+- World Cancer Day 2025
 - Bianca Censori Grammys
 - Chelsea vs West Ham
-- Premium Bonds winners
 - Transfer deadline day
+- Premium Bonds winners
 - Harvey Willgoose
 - Mathys Tel
 - Santorini
@@ -74,22 +74,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - World Cancer Day
 - Delhi Elections
 - USAID
-- Ratha Saptami
-- Vivo V50
 - JEE Main
+- Vivo V50
+- JEE Mains 2025
+- Chelsea
+- Cristiano Ronaldo
 - YouTube com
 - Cricket
 - Kanye West
-- Shivam Dube
 - Champions Trophy
 - Gold prices
-- Grammys 2025
 - Man City
 - Shein
+- Grammy
 - ICC
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
-- अभिषेक शर्मा
 - epgview
 - best epg
 - epg for iptv
