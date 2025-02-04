@@ -31,21 +31,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Myles Garrett
+- Wordle hint
 - PLTR stock
 - Chelsea vs West Ham
 - Sovereign wealth fund
-- Wordle hint
 - Celtics
 - Cooper Kupp
 - A Day Without Immigrants
 - Kelsea Ballerini
 - Final Destination Bloodlines
+- Mexico
 - PLTR
 - The Voice
 - CBS
 - Department of Education
 - Valentine's Day gifts
-- Claudia Sheinbaum
 - Diddy
 - Kingdom Come: Deliverance 2
 - Pat Hoberg
@@ -68,20 +68,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AC Milan
 - Benson Boone
 - Sunderland
+- FTSE
 - Joao Felix
-- Jaden Smith
 - Chelsea vs West Ham
 - World Cancer Day
 - USAID
 - Delhi elections
+- Bryan Johnson
 - Cricket
 - Kanye West
 - Grammys 2025
 - Man City
 - Shein
 - Gold prices
-- In vs Eng
 - IND vs ENG
+- IND vs England
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Luka Doncic
 - Deva movie box office collection
 - अभिषेक शर्मा
-- T20
 - epgview
 - best epg
 - epg for iptv
