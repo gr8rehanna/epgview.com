@@ -36,48 +36,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - El Salvador
 - Rosa Parks
 - Neil Gaiman
-- Marcus Jordan
 - PLTR stock
 - Myles Garrett
-- Wordle Hint
 - Sovereign wealth fund
 - Cooper Kupp
+- Wordle Hint
 - Chelsea vs West Ham
 - Canada tariffs
-- A Day Without Immigrants
 - Department of Education
-- Final Destination Bloodlines
+- A Day Without Immigrants
 - Kelsea Ballerini
+- Final Destination Bloodlines
 - Dow
 - Mexico
+- Valentine's Day gifts
 - Brian Murphy
 - Parlay
 - Sam Kerr
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
-- Fantastic Four
-- Cyndi Lauper
-- Samie Love Island
-- Carabao Cup
+- Sweden
 - World Cancer Day
+- Fantastic Four
+- Samie Love Island
+- Cyndi Lauper
+- Carabao Cup
 - Snow Weather forecast
 - Adam Armstrong
-- World Cancer Day 2025
+- Am I Being Unreasonable
+- Palantir
 - Neil Gaiman
 - Ekin-Su
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
-- Transfer deadline day
-- Harvey Willgoose
+- Fantastic Four
 - Bryan Johnson
 - Jeemain
 - World Cancer Day
 - Delhi Elections
+- Cristiano Ronaldo
 - USAID
 - Vivo V50
-- JEE Mains 2025
-- Cristiano Ronaldo
 - YouTube .com
 - Cricket
 - Kanye West
