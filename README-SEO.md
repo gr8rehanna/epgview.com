@@ -30,14 +30,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- El Salvador
+- RFK confirmation
 - Myles Garrett
 - PLTR stock
-- Chelsea vs West Ham
 - Sovereign wealth fund
+- Chelsea vs West Ham
 - Wordle hint
 - S&P 500
-- Celtics
 - Cooper Kupp
 - A Day Without Immigrants
 - Kelsea Ballerini
@@ -47,18 +46,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - CBS
 - Department of Education
 - Valentine's Day gifts
+- Claudia Sheinbaum
 - Kingdom Come: Deliverance 2
-- Not Like Us Kendrick Lamar
 - Pat Hoberg
+- Panama
 - Brian Murphy
 - Sam Kerr
+- Buffy the Vampire Slayer reboot
 - Asensio
 - Bianca Censori Grammys
 - Chelsea vs West Ham
-- Premium Bonds winners
-- Transfer deadline day
-- Sheffield
 - Mathys Tel
+- Premium Bonds winners
+- Sheffield
+- Transfer deadline day
 - Santorini
 - West Ham
 - USAID
@@ -68,22 +69,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bill Gates
 - Kendrick Lamar
 - AC Milan
-- Sunderland
 - Willian
+- Bryan Johnson
 - World Cancer Day
 - USAID
-- Delhi Elections
-- Bryan Johnson
-- Chelsea
-- Cristiano Ronaldo
+- Delhi elections
+- Ratha Saptami
 - Vivo V50
+- Cristiano Ronaldo
 - Cricket
 - Kanye West
 - Grammys 2025
 - Gold prices
 - Man City
 - Shein
-- IND vs ENG
+- India vs England
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
