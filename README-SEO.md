@@ -30,51 +30,50 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Rfk Jr
+- RFK Jr
 - Fantastic Four
 - French to be
 - El Salvador
 - Rosa Parks
 - Neil Gaiman
+- Marcus Jordan
+- Tiger Woods
 - PLTR stock
 - Myles Garrett
 - Sovereign wealth fund
 - Cooper Kupp
 - Wordle Hint
-- Chelsea vs West Ham
-- Canada tariffs
 - Department of Education
+- Canada tariffs
 - A Day Without Immigrants
 - Kelsea Ballerini
 - Final Destination Bloodlines
 - Dow
 - Mexico
-- Valentine's Day gifts
 - Brian Murphy
-- Parlay
+- Sweden
 - Sam Kerr
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
-- Sweden
-- World Cancer Day
 - Fantastic Four
+- Fentanyl
 - Samie Love Island
 - Cyndi Lauper
 - Carabao Cup
+- World Cancer Day
 - Snow Weather forecast
+- Port Vale vs Wrexham
 - Adam Armstrong
-- Am I Being Unreasonable
+- World Cancer Day 2025
+- Ronaldo
+- Emmerdale
+- Coronation Street
 - Palantir
-- Neil Gaiman
-- Ekin-Su
-- Bianca Censori Grammys
-- Chelsea vs West Ham
-- Premium Bonds winners
+- Am I Being Unreasonable
 - Fantastic Four
 - Bryan Johnson
 - Jeemain
 - World Cancer Day
-- Delhi Elections
 - Cristiano Ronaldo
 - USAID
 - Vivo V50
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deva movie box office collection
 - अभिषेक शर्मा
 - बसंत पंचमी
+- Income-tax
 - epgview
 - best epg
 - epg for iptv
