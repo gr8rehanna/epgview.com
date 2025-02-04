@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Myles Garrett
 - Celtics
-- Chelsea
-- A Day Without Immigrants
+- Chelsea vs West Ham
 - Sovereign wealth fund
+- A Day Without Immigrants
 - Valentine's Day gifts
+- Boston Celtics
 - Diddy
 - Claudia Sheinbaum
 - Gracie Abrams
+- PLTR
 - Jay-Z
 - Panama
 - Kingdom Come: Deliverance 2
-- PLTR
 - Elon Musk Treasury
-- Mitch McConnell
 - Department of Education
+- Mitch McConnell
 - The weekend
+- Pat Hoberg
 - Jack Flaherty
-- Grammys 2025
-- Bianca Censori Grammys
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
 - Mathys Tel
 - Transfer Deadline Day
-- Tom Read Wilson
 - West Ham
 - Santorini
+- AC Milan
 - USAID
 - Chappell Roan
 - Sabrina Carpenter
 - Taylor Swift
-- Jordan Henderson
 - Nico Gonzalez
+- Jordan Henderson
 - Bill Gates
-- AC Milan
 - Sheffield
 - Benson Boone
+- Sunderland
 - Jaden Smith
-- Joao Felix
+- Chelsea FC
 - Chelsea vs West Ham
 - USAID
 - Delhi elections
 - Cricket
-- Bianca Censori Grammys
 - Grammys 2025
 - Man City
 - Inter Miami
 - Shein
+- Bianca Censori Grammys
 - India vs England
 - Income tax slabs Union Budget 2025
 - Barcelona
 - India match
-- IND बनाम ENG
 - Arsenal
 - Luka Doncic
 - Deva movie box office collection
 - अभिषेक शर्मा
-- Women U19 World Cup
 - Income-tax
+- Cricket
+- Royal Rumble 2025
 - epgview
 - best epg
 - epg for iptv
