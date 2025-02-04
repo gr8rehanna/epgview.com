@@ -44,12 +44,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - The Voice
 - CBS
 - Department of Education
-- Valentine's Day gifts
 - Kingdom Come: Deliverance 2
 - Diddy
 - Pat Hoberg
 - Panama
 - Kacey Musgraves
+- Elon Musk Treasury
 - Brian Murphy
 - Sam Kerr
 - James Ward-Prowse
@@ -57,7 +57,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chelsea vs West Ham
 - Premium Bonds winners
 - Transfer deadline day
-- Mathys Tel
+- Kendrick Lamar
 - Sheffield
 - West Ham
 - Santorini
@@ -65,25 +65,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chappell Roan
 - Sabrina Carpenter
 - Taylor Swift
+- Jordan Henderson
 - Bill Gates
-- Benson Boone
 - AC Milan
 - Sunderland
-- Jeffrey Schlupp
-- Chelsea vs West Ham
+- Willian
 - World Cancer Day
 - USAID
 - Delhi elections
 - Bryan Johnson
+- Chelsea
 - Cricket
 - Kanye West
+- Shivam Dube
 - Grammys 2025
 - Gold prices
 - Man City
 - Shein
-- India vs England ODI
-- IND vs ENG
-- IND vs England
+- IN vs ENG
+- India vs England
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
