@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Myles Garrett
-- Celtics
 - Chelsea vs West Ham
+- Celtics
 - Sovereign wealth fund
 - A Day Without Immigrants
+- Palantir stock
+- PLTR
 - Valentine's Day gifts
 - Claudia Sheinbaum
 - Boston Celtics
-- PLTR
 - Diddy
-- Palantir stock
 - Jay-Z
-- Panama
 - Kingdom Come: Deliverance 2
 - Department of Education
+- Panama
+- Sacramento Kings
 - Elon Musk Treasury
+- Pat Hoberg
 - Lee Joo-Sil
 - Mitch McConnell
-- Pat Hoberg
-- The weekend
 - Sam Kerr
 - Samie love island
 - James Ward-Prowse
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
-- Mathys Tel
 - Transfer Deadline Day
 - West Ham
 - Santorini
 - Sheffield
 - USAID
-- Chappell Roan
 - Nico Gonzalez
+- Chappell Roan
 - Sabrina Carpenter
 - Taylor Swift
 - Jordan Henderson
 - Bill Gates
 - AC Milan
 - Benson Boone
+- Sunderland
 - Chelsea vs West Ham
 - USAID
 - Delhi elections
 - Cricket
+- Bianca Censori Grammys
 - Grammys 2025
 - Man City
 - Shein
-- Bianca Censori Grammys
 - India vs England
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
 - Barcelona
-- Arsenal
 - Luka Doncic
 - Deva movie box office collection
 - अभिषेक शर्मा
 - Income-tax
 - Cricket
 - Royal Rumble 2025
+- Udit Narayan
 - epgview
 - best epg
 - epg for iptv
