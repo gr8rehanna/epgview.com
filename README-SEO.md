@@ -41,7 +41,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kelsea Ballerini
 - Final Destination Bloodlines
 - Mexico
-- PLTR
 - The Voice
 - CBS
 - Department of Education
@@ -50,12 +49,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kingdom Come: Deliverance 2
 - Pat Hoberg
 - Panama
+- Kacey Musgraves
 - Sam Kerr
+- Brian Murphy
 - James Ward-Prowse
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
 - Transfer deadline day
+- Mathys Tel
 - Sheffield
 - West Ham
 - Santorini
@@ -63,24 +65,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chappell Roan
 - Sabrina Carpenter
 - Taylor Swift
-- Jordan Henderson
 - Bill Gates
 - AC Milan
 - Benson Boone
 - Sunderland
 - FTSE
-- Joao Felix
 - Chelsea vs West Ham
 - World Cancer Day
 - USAID
 - Delhi elections
 - Bryan Johnson
 - Cricket
-- Kanye West
 - Grammys 2025
 - Man City
-- Shein
 - Gold prices
+- Shein
+- Kanye West
 - IND vs ENG
 - IND vs England
 - ICC
