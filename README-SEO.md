@@ -31,34 +31,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Myles Garrett
+- PLTR stock
 - Chelsea vs West Ham
-- Wordle hint
 - Sovereign wealth fund
+- Wordle hint
 - Celtics
-- Mexico
 - Cooper Kupp
-- Palantir stock
-- Final Destination Bloodlines
 - A Day Without Immigrants
 - Kelsea Ballerini
+- Final Destination Bloodlines
 - PLTR
 - The Voice
 - CBS
 - Department of Education
 - Valentine's Day gifts
+- Claudia Sheinbaum
 - Diddy
 - Kingdom Come: Deliverance 2
-- Panama
 - Pat Hoberg
+- Panama
 - Sam Kerr
 - James Ward-Prowse
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
 - Transfer deadline day
+- Sheffield
 - West Ham
 - Santorini
-- Sheffield
 - USAID
 - Chappell Roan
 - Sabrina Carpenter
@@ -71,17 +71,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joao Felix
 - Jaden Smith
 - Chelsea vs West Ham
-- USAID
-- Delhi Elections
 - World Cancer Day
+- USAID
+- Delhi elections
 - Cricket
-- Bianca Censori Grammys
+- Kanye West
 - Grammys 2025
 - Man City
 - Shein
 - Gold prices
 - In vs Eng
-- India vs England
+- IND vs ENG
 - ICC
 - Champions Trophy
 - Income tax slabs Union Budget 2025
