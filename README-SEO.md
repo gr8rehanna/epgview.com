@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Fantastic Four
-- El Salvador
 - French to be
+- El Salvador
+- Rosa Parks
 - RFK confirmation
 - Myles Garrett
 - PLTR stock
-- Chelsea vs West Ham
 - Wordle Hint
-- Cooper Kupp
 - Sovereign wealth fund
+- Chelsea vs West Ham
+- Cooper Kupp
 - A Day Without Immigrants
 - Kelsea Ballerini
 - Final Destination Bloodlines
+- Dow
 - Mexico
-- Department of Education
 - CBS
+- Valentine's Day gifts
 - Claudia Sheinbaum
 - Kingdom Come: Deliverance 2
-- Pat Hoberg
-- The Voice
 - Brian Murphy
 - Parlay
 - Sam Kerr
+- Samie Love Island
 - Buffy the Vampire Slayer reboot
+- Weight-loss injections
+- Fantastic four
+- Adam Armstrong
 - Asensio
+- World Cancer Day
 - Bianca Censori Grammys
 - Chelsea vs West Ham
 - Premium Bonds winners
 - Transfer deadline day
-- Sheffield
+- Harvey Willgoose
 - Mathys Tel
 - Santorini
 - West Ham
+- Nico Gonzalez
 - USAID
-- Chappell Roan
-- Sabrina Carpenter
-- Taylor Swift
-- Bill Gates
-- Willian
-- Kendrick Lamar
 - Bryan Johnson
 - World Cancer Day
 - Delhi Elections
 - USAID
 - Ratha Saptami
 - Vivo V50
-- Cristiano Ronaldo
+- JEE Main
+- YouTube com
 - Cricket
 - Kanye West
+- Shivam Dube
 - Champions Trophy
 - Gold prices
 - Grammys 2025
 - Man City
 - Shein
-- IND vs ENG
 - ICC
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
 - अभिषेक शर्मा
-- बसंत पंचमी
 - epgview
 - best epg
 - epg for iptv
