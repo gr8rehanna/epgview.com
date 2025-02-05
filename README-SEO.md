@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Rfk Jr
 - Fantastic Four
-- Tulsi Gabbard
 - French to be
+- Tulsi Gabbard
 - Tiger Woods
-- Rosa Parks
 - Marcus Jordan
+- Rosa Parks
+- Gaza
 - El Salvador
+- Google stock
 - Neil Gaiman
-- To be in French
 - Walmart recalled Broccoli
+- Pam Bondi
 - Jurassic World Rebirth
 - Sweden
+- Cristiano Ronaldo
+- Joel Embiid
 - PLTR stock
 - Myles Garrett
-- Cooper Kupp
-- Department of Education
-- Bianca Grammy outfit
 - Sovereign wealth fund
-- Canada tariffs
 - Aga Khan
 - Jesse Eisenberg
 - Brian Murphy
@@ -65,14 +65,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - QPR
 - Weight loss injections
 - World Cancer Day
-- Emmerdale
 - Ronaldo
+- Emmerdale
 - World Cancer Day 2025
 - Emilia Fox
 - Adam Armstrong
+- Fantastic Four
 - Bryan Johnson
 - Cristiano Ronaldo
 - World Cancer Day
+- Delhi Elections
 - Vivo V50
 - USAID
 - Jeemain
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Deva movie box office collection
 - अभिषेक शर्मा
 - बसंत पंचमी
-- Income-tax
-- Cricket
 - epgview
 - best epg
 - epg for iptv
