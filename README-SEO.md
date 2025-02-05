@@ -32,64 +32,64 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Kyle Kuzma
 - USPS suspends packages from China
+- NOAA
+- Boston Celtics
 - TGL
 - Palestine
+- CIA
 - The thing
 - Gaza
-- Parlay
 - Fantastic Four
-- Celtics
 - RFK
-- Marcus Jordan
-- Lakers vs Clippers
+- Celtics
 - Tiger Woods
+- Pam Bondi
 - AMD stock
 - Tulsi Gabbard
 - French to be
-- Pam Bondi
 - Kevin Durant
-- Mavericks vs 76ers
+- Jurassic World Rebirth
 - Google stock
 - Aga Khan
 - Gaza
 - Black Sabbath
 - Jurassic World Rebirth
+- Cristiano Ronaldo
 - Money transfer
 - MoneyGram
 - Chagos Islands
 - DWP payments
+- Brussels
 - Jesse Eisenberg
+- British Airways frequent flyer changes
 - Brian Murphy
 - Sweden
 - Older drivers car tax changes
 - Parlay
-- Ronaldo
 - Carabao Cup
 - Fantastic Four
 - Sam Kerr
 - Marco Asensio
-- Buffy the Vampire Slayer reboot
-- QPR
 - Voting time in Delhi
+- Nora Fatehi news
 - Asian Paints share price
 - Shantanu Naidu
 - ITC Hotels removed from BSE indices
 - Aga Khan
 - TS TET Result 2025
+- Zepto Skoda cars
 - Delhi elections
 - Bryan Johnson
 - Cristiano Ronaldo
 - Vivo V50
 - USAID
 - JEE Main
+- YouTube .com
 - Cricket
 - Kanye West
 - Champions Trophy
 - Vidaamuyarchi
 - ICC
-- Income tax slabs Union Budget 2025
-- Deva movie box office collection
-- अभिषेक शर्मा
 - epgview
 - best epg
 - epg for iptv
