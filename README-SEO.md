@@ -34,42 +34,42 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fantastic Four
 - French to be
 - Tulsi Gabbard
+- Tiger Woods
 - Rosa Parks
 - El Salvador
 - Marcus Jordan
 - Neil Gaiman
-- Tiger Woods
 - Walmart recalled Broccoli
 - Jurassic World Rebirth
 - Myles Garrett
 - PLTR stock
-- Sovereign wealth fund
 - Cooper Kupp
-- Wordle Hint
 - Department of Education
+- Wordle Hint
+- Sovereign wealth fund
 - Canada tariffs
-- A Day Without Immigrants
 - Kelsea Ballerini
+- A Day Without Immigrants
 - Brian Murphy
 - Sweden
 - Sam Kerr
-- Marco Asensio
 - Fantastic Four
+- Marco Asensio
+- Carabao Cup
 - Buffy the Vampire Slayer reboot
 - Port Vale vs Wrexham
 - Fentanyl
-- Carabao Cup
 - Cyndi Lauper
 - Weight loss injections
-- World Cancer Day
 - QPR
-- World Cancer Day 2025
+- World Cancer Day
 - Emmerdale
+- World Cancer Day 2025
+- Emilia Fox
 - Adam Armstrong
 - Ronaldo
 - Palantir
 - Coronation Street
-- Am I Being Unreasonable
 - Fantastic Four
 - Bryan Johnson
 - Cristiano Ronaldo
@@ -77,19 +77,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jeemain
 - Vivo V50
 - USAID
+- Ratha Saptami
+- YouTube com
 - Cricket
 - Kanye West
 - Gold prices
 - Champions Trophy
 - Shein
-- Grammy
 - ICC
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
 - अभिषेक शर्मा
 - बसंत पंचमी
 - Income-tax
-- Cricket
 - epgview
 - best epg
 - epg for iptv
