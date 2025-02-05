@@ -31,56 +31,55 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - RFK Jr
-- Gaza
 - Fantastic Four
+- Gaza
 - Marcus Jordan
 - Tiger Woods
 - Tulsi Gabbard
-- French to be
+- Lakers vs Clippers
 - AMD stock
 - Mavericks vs 76ers
 - Pam Bondi
+- French to be
 - Kevin Durant
+- Sweden shooting
 - Rosa Parks
 - El Salvador
+- Guantanamo Bay
 - Walmart recalled Broccoli
 - Neil Gaiman
+- To be in French
 - Auburn basketball
-- Purdue basketball
-- Sweden
-- U.S. Navy HELIOS laser weapon
-- Cristiano Ronaldo
 - Aga Khan
+- MoneyGram
+- Cristiano Ronaldo
 - Jesse Eisenberg
 - Brian Murphy
 - Sweden
 - Sam Kerr
 - Fantastic Four
-- Carabao Cup
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
 - Port Vale vs Wrexham
+- Carabao Cup
 - Fentanyl
-- QPR
 - Ronaldo
+- QPR
 - Weight loss injections
 - World Cancer Day
 - Emmerdale
 - Carlos Alcaraz
 - World Cancer Day 2025
-- Emilia Fox
-- Adam Armstrong
 - Voting time in Delhi
 - Asian Paints Share Price
-- ITC Hotels removed from BSE indices
 - Shantanu Naidu
+- ITC Hotels removed from BSE indices
+- Delhi Elections
 - Bryan Johnson
 - Cristiano Ronaldo
-- Delhi Elections
-- JEE Main
 - Vivo V50
 - USAID
-- World Cancer Day
+- JEE Main
 - Cricket
 - Kanye West
 - Gold prices
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
 - अभिषेक शर्मा
+- बसंत पंचमी
 - epgview
 - best epg
 - epg for iptv
