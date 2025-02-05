@@ -30,31 +30,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- TGL
+- US Postal Service packages from China
 - The thing
 - Gaza
 - Parlay
 - Fantastic Four
-- RFK
+- Celtics
 - Marcus Jordan
-- Tiger Woods
 - Lakers vs Clippers
-- Tulsi Gabbard
+- Tiger Woods
+- Rfk confirmation
 - AMD stock
+- Tulsi Gabbard
 - Mavericks vs 76ers
 - Pam Bondi
 - Kevin Durant
 - French to be
-- Rosa Parks
+- Sweden shooting
 - Google stock
-- El Salvador
-- Guantanamo Bay
-- Walmart recalled Broccoli
-- Neil Gaiman
+- Rosa Parks
 - Aga Khan
 - Gaza
+- Money transfer
 - MoneyGram
-- Chagos Islands
 - Jurassic World Rebirth
+- Chagos Islands
+- Black Sabbath
 - DWP payments
 - Jesse Eisenberg
 - Brian Murphy
@@ -63,17 +65,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Parlay
 - Ronaldo
 - Fantastic Four
-- Sam Kerr
 - Carabao Cup
+- Sam Kerr
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
-- Fentanyl
 - QPR
-- Weight loss injections
 - Voting time in Delhi
 - Asian Paints share price
 - Shantanu Naidu
 - ITC Hotels removed from BSE indices
+- Allu Arjun
 - Aga Khan
 - Delhi Elections
 - Bryan Johnson
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
 - अभिषेक शर्मा
-- बसंत पंचमी
 - epgview
 - best epg
 - epg for iptv
