@@ -42,14 +42,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pam Bondi
 - Kevin Durant
 - Rosa Parks
-- Google stock
 - El Salvador
 - Walmart recalled Broccoli
 - Neil Gaiman
 - Auburn basketball
 - Purdue basketball
 - Sweden
-- US Navy HELIOS laser weapon
+- U.S. Navy HELIOS laser weapon
+- Cristiano Ronaldo
 - Aga Khan
 - Jesse Eisenberg
 - Brian Murphy
@@ -60,25 +60,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
 - Port Vale vs Wrexham
-- Snow Weather forecast
 - Fentanyl
 - QPR
+- Ronaldo
 - Weight loss injections
 - World Cancer Day
-- Ronaldo
 - Emmerdale
 - Carlos Alcaraz
 - World Cancer Day 2025
 - Emilia Fox
+- Adam Armstrong
 - Voting time in Delhi
 - Asian Paints Share Price
 - ITC Hotels removed from BSE indices
 - Shantanu Naidu
 - Bryan Johnson
 - Cristiano Ronaldo
-- Delhi elections
-- Vivo V50
+- Delhi Elections
 - JEE Main
+- Vivo V50
 - USAID
 - World Cancer Day
 - Cricket
