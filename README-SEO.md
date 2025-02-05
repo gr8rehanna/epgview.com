@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - RFK Jr
-- Fantastic Four
 - Gaza
+- Fantastic Four
 - Marcus Jordan
 - Tiger Woods
 - Tulsi Gabbard
-- Lakers vs Clippers
+- French to be
 - AMD stock
 - Mavericks vs 76ers
 - Pam Bondi
-- French to be
 - Kevin Durant
-- Sweden shooting
 - Rosa Parks
 - El Salvador
 - Guantanamo Bay
 - Walmart recalled Broccoli
 - Neil Gaiman
-- To be in French
-- Auburn basketball
+- Purdue basketball
+- Sweden
+- Cristiano Ronaldo
+- Bill Gates
 - Aga Khan
 - MoneyGram
 - Cristiano Ronaldo
@@ -74,7 +74,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Asian Paints Share Price
 - Shantanu Naidu
 - ITC Hotels removed from BSE indices
-- Delhi Elections
+- Delhi elections
 - Bryan Johnson
 - Cristiano Ronaldo
 - Vivo V50
