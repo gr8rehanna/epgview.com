@@ -36,20 +36,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tiger Woods
 - Marcus Jordan
 - French to be
+- AMD stock
 - Mavericks vs 76ers
+- Lakers vs Clippers
 - Tulsi Gabbard
 - Pam Bondi
 - Kevin Durant
 - Rosa Parks
-- Sweden
+- Google stock
 - El Salvador
-- Lakers vs Clippers
-- Guantanamo Bay
-- Walmart recalled broccoli
+- Walmart recalled Broccoli
 - Neil Gaiman
 - Purdue basketball
-- US Navy HELIOS laser weapon
-- Cristiano Ronaldo
+- Sweden
+- U.S. Navy HELIOS laser weapon
 - Aga Khan
 - Jesse Eisenberg
 - Brian Murphy
@@ -71,16 +71,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Adam Armstrong
 - Palantir
 - Voting time in Delhi
-- Asian Paints share price
+- Asian Paints Share Price
 - ITC Hotels removed from BSE indices
+- Shantanu Naidu
 - Bryan Johnson
+- JEE Mains 2025
+- Cristiano Ronaldo
 - Delhi elections
 - Vivo V50
 - USAID
 - World Cancer Day
-- Ronaldo
-- JEE Main
-- World Cancer Day 2025
 - Cricket
 - Kanye West
 - Gold prices
