@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Rfk Jr
+- RFK Jr
 - Fantastic Four
 - Gaza
-- French to be
-- Tulsi Gabbard
 - Tiger Woods
+- French to be
 - Marcus Jordan
+- Tulsi Gabbard
+- Pam Bondi
+- Kevin Durant
 - Rosa Parks
 - El Salvador
-- Google stock
-- Pam Bondi
+- Guantanamo Bay
 - Neil Gaiman
 - Walmart recalled broccoli
-- Jurassic World Rebirth
-- Sweden
 - Purdue basketball
 - Joel Embiid
-- Cristiano Ronaldo
+- Sweden
+- Jurassic World Rebirth
 - U.S. Navy HELIOS laser weapon
-- PLTR stock
+- Cristiano Ronaldo
 - Aga Khan
 - Jesse Eisenberg
 - Brian Murphy
@@ -61,7 +61,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Buffy the Vampire Slayer reboot
 - Port Vale vs Wrexham
 - Fentanyl
-- Cyndi Lauper
 - QPR
 - Weight loss injections
 - World Cancer Day
@@ -70,14 +69,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Carlos Alcaraz
 - World Cancer Day 2025
 - Emilia Fox
+- Adam Armstrong
 - Voting time in Delhi
 - Bryan Johnson
-- Cristiano Ronaldo
 - World Cancer Day
 - Delhi Elections
+- Jeemain
 - Vivo V50
 - USAID
-- Jeemain
+- Cristiano Ronaldo
+- Ratha Saptami
 - Cricket
 - Kanye West
 - Gold prices
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - बसंत पंचमी
 - Income-tax
 - Cricket
-- Royal Rumble 2025
 - epgview
 - best epg
 - epg for iptv
