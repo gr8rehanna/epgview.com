@@ -30,35 +30,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Valentine's Day Gifts
 - Kyle Kuzma
 - USPS suspends packages from China
-- Leganés Real Madrid
-- Mavs
+- Newcastle vs Arsenal
+- Leganes vs Real Madrid
 - NOAA
 - Boston Celtics
-- TGL
 - CIA
+- Mitch McConnell
+- TGL
 - Bianca Censori Grammy outfit
+- St. John's basketball
+- 50501 protests
 - Googl stock
+- Uber stock
+- The thing
 - Gaza
 - Fantastic Four
 - RFK
 - Marcus Jordan
-- Celtics
-- Tiger Woods
-- AMD stock
-- Pam Bondi
-- Tulsi Gabbard
-- French to be
 - Black Sabbath
 - Aga Khan
 - Gaza
-- International transfer services
-- Jurassic World Rebirth
 - Coventry vs Leeds United
 - MoneyGram
-- Chagos Islands
+- Jurassic World Rebirth
+- Greggs chicken burger
 - Leganes vs Real Madrid
+- Money transfer
+- Chagos Islands
 - Brussels
 - DWP payments
 - Octopus Energy cut off
@@ -69,7 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ronaldo
 - Fantastic Four
 - Sam Kerr
-- Marco Asensio
 - Newcastle vs Arsenal
 - Delhi elections
 - Voting time in Delhi
@@ -77,8 +77,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITC Hotels removed from BSE indices
 - Shantanu Naidu
 - Aga Khan
-- TS TET Result 2025
 - Zepto Skoda cars
+- TS TET Result 2025
 - Delhi elections
 - Bryan Johnson
 - Cristiano Ronaldo
