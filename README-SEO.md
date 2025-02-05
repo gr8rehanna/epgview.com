@@ -30,33 +30,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- USPS suspends packages from China
+- Kyle Kuzma
 - TGL
-- US Postal Service packages from China
 - The thing
 - Gaza
 - Parlay
+- RFK Jr
 - Fantastic Four
 - Celtics
 - Marcus Jordan
 - Lakers vs Clippers
 - Tiger Woods
-- Rfk confirmation
 - AMD stock
 - Tulsi Gabbard
-- Mavericks vs 76ers
 - Pam Bondi
 - Kevin Durant
 - French to be
-- Sweden shooting
+- Mavericks vs 76ers
 - Google stock
 - Rosa Parks
 - Aga Khan
 - Gaza
+- Black Sabbath
+- Jurassic World Rebirth
 - Money transfer
 - MoneyGram
-- Jurassic World Rebirth
 - Chagos Islands
-- Black Sabbath
 - DWP payments
 - Jesse Eisenberg
 - Brian Murphy
@@ -64,8 +64,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Older drivers car tax changes
 - Parlay
 - Ronaldo
-- Fantastic Four
 - Carabao Cup
+- Fantastic Four
 - Sam Kerr
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
@@ -74,9 +74,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Asian Paints share price
 - Shantanu Naidu
 - ITC Hotels removed from BSE indices
-- Allu Arjun
 - Aga Khan
-- Delhi Elections
+- TS TET Result 2025
+- Delhi elections
 - Bryan Johnson
 - Cristiano Ronaldo
 - Vivo V50
@@ -87,7 +87,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Champions Trophy
 - Vidaamuyarchi
 - ICC
-- Income tax slabs Union Budget 2025
+- Union Budget 2025 income tax slabs
 - Deva movie box office collection
 - अभिषेक शर्मा
 - epgview
