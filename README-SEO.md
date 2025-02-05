@@ -34,43 +34,44 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kyle Kuzma
 - USPS suspends packages from China
 - Newcastle vs Arsenal
+- Politico
 - Leganes vs Real Madrid
+- Mavs
+- AC Milan
 - NOAA
 - Boston Celtics
-- CIA
 - Mitch McConnell
+- CIA
+- Palestine
 - TGL
-- Bianca Censori Grammy outfit
-- St. John's basketball
 - 50501 protests
-- Googl stock
+- Bianca Censori Grammy outfit
 - Uber stock
 - The thing
+- KJ Martin
 - Gaza
-- Fantastic Four
-- RFK
-- Marcus Jordan
 - Black Sabbath
+- Leeds United
 - Aga Khan
 - Gaza
-- Coventry vs Leeds United
+- Leganes vs Real Madrid
 - MoneyGram
 - Jurassic World Rebirth
 - Greggs chicken burger
-- Leganes vs Real Madrid
 - Money transfer
 - Chagos Islands
 - Brussels
+- Justin Bieber
 - DWP payments
 - Octopus Energy cut off
 - Jesse Eisenberg
+- Tom Grennan
+- Bear Grylls
 - Newcastle vs Arsenal
 - Brian Murphy
 - Sweden
-- Ronaldo
-- Fantastic Four
-- Sam Kerr
 - Newcastle vs Arsenal
+- Jurassic World Rebirth
 - Delhi elections
 - Voting time in Delhi
 - Asian Paints share price
@@ -84,7 +85,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cristiano Ronaldo
 - Vivo V50
 - USAID
-- YouTube .com
 - Cricket
 - Kanye West
 - Champions Trophy
