@@ -31,47 +31,47 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Kyle Kuzma
-- USPS suspends packages from China
+- USPS China
+- Mavs
 - NOAA
 - Boston Celtics
 - TGL
-- Palestine
 - CIA
+- Bianca Censori Grammy outfit
 - The thing
 - Gaza
 - Fantastic Four
 - RFK
+- Marcus Jordan
 - Celtics
 - Tiger Woods
-- Pam Bondi
 - AMD stock
 - Tulsi Gabbard
+- Pam Bondi
 - French to be
 - Kevin Durant
-- Jurassic World Rebirth
-- Google stock
+- Black Sabbath
 - Aga Khan
 - Gaza
-- Black Sabbath
 - Jurassic World Rebirth
-- Cristiano Ronaldo
 - Money transfer
 - MoneyGram
 - Chagos Islands
-- DWP payments
 - Brussels
-- Jesse Eisenberg
+- DWP payments
+- Riviera
 - British Airways frequent flyer changes
+- Jesse Eisenberg
 - Brian Murphy
+- Carabao Cup
 - Sweden
 - Older drivers car tax changes
 - Parlay
-- Carabao Cup
+- Ronaldo
 - Fantastic Four
 - Sam Kerr
-- Marco Asensio
+- Delhi elections
 - Voting time in Delhi
-- Nora Fatehi news
 - Asian Paints share price
 - Shantanu Naidu
 - ITC Hotels removed from BSE indices
