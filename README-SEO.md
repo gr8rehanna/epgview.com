@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Rfk Jr
 - Fantastic Four
+- Gaza
 - French to be
 - Tulsi Gabbard
 - Tiger Woods
 - Marcus Jordan
 - Rosa Parks
-- Gaza
 - El Salvador
 - Google stock
-- Neil Gaiman
-- Walmart recalled Broccoli
 - Pam Bondi
+- Neil Gaiman
+- Walmart recalled broccoli
 - Jurassic World Rebirth
 - Sweden
-- Cristiano Ronaldo
+- Purdue basketball
 - Joel Embiid
+- Cristiano Ronaldo
+- U.S. Navy HELIOS laser weapon
 - PLTR stock
-- Myles Garrett
-- Sovereign wealth fund
 - Aga Khan
 - Jesse Eisenberg
 - Brian Murphy
@@ -67,10 +67,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - World Cancer Day
 - Ronaldo
 - Emmerdale
+- Carlos Alcaraz
 - World Cancer Day 2025
 - Emilia Fox
-- Adam Armstrong
-- Fantastic Four
+- Voting time in Delhi
 - Bryan Johnson
 - Cristiano Ronaldo
 - World Cancer Day
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Vivo V50
 - USAID
 - Jeemain
-- Ratha Saptami
-- YouTube com
 - Cricket
 - Kanye West
 - Gold prices
 - Champions Trophy
-- Shein
 - ICC
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
 - अभिषेक शर्मा
 - बसंत पंचमी
+- Income-tax
+- Cricket
+- Royal Rumble 2025
 - epgview
 - best epg
 - epg for iptv
