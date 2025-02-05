@@ -33,13 +33,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - RFK Jr
 - Gaza
 - Fantastic Four
-- Tiger Woods
 - Marcus Jordan
+- Tiger Woods
+- Tulsi Gabbard
 - French to be
 - AMD stock
 - Mavericks vs 76ers
-- Lakers vs Clippers
-- Tulsi Gabbard
 - Pam Bondi
 - Kevin Durant
 - Rosa Parks
@@ -47,9 +46,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - El Salvador
 - Walmart recalled Broccoli
 - Neil Gaiman
+- Auburn basketball
 - Purdue basketball
 - Sweden
-- U.S. Navy HELIOS laser weapon
+- US Navy HELIOS laser weapon
 - Aga Khan
 - Jesse Eisenberg
 - Brian Murphy
@@ -60,36 +60,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
 - Port Vale vs Wrexham
+- Snow Weather forecast
 - Fentanyl
 - QPR
 - Weight loss injections
 - World Cancer Day
 - Ronaldo
 - Emmerdale
+- Carlos Alcaraz
 - World Cancer Day 2025
 - Emilia Fox
-- Adam Armstrong
-- Palantir
 - Voting time in Delhi
 - Asian Paints Share Price
 - ITC Hotels removed from BSE indices
 - Shantanu Naidu
 - Bryan Johnson
-- JEE Mains 2025
 - Cristiano Ronaldo
 - Delhi elections
 - Vivo V50
+- JEE Main
 - USAID
 - World Cancer Day
 - Cricket
 - Kanye West
 - Gold prices
 - Champions Trophy
+- Vidaamuyarchi
 - ICC
 - Income tax slabs Union Budget 2025
 - Deva movie box office collection
 - अभिषेक शर्मा
-- बसंत पंचमी
 - epgview
 - best epg
 - epg for iptv
