@@ -35,6 +35,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fantastic Four
 - Marcus Jordan
 - Tiger Woods
+- Lakers vs Clippers
 - Tulsi Gabbard
 - French to be
 - AMD stock
@@ -49,21 +50,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Purdue basketball
 - Sweden
 - Cristiano Ronaldo
-- Bill Gates
 - Aga Khan
 - MoneyGram
-- Cristiano Ronaldo
+- Gaza
 - Jesse Eisenberg
 - Brian Murphy
 - Sweden
 - Sam Kerr
 - Fantastic Four
+- Ronaldo
 - Marco Asensio
 - Buffy the Vampire Slayer reboot
 - Port Vale vs Wrexham
 - Carabao Cup
 - Fentanyl
-- Ronaldo
 - QPR
 - Weight loss injections
 - World Cancer Day
@@ -74,7 +74,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Asian Paints Share Price
 - Shantanu Naidu
 - ITC Hotels removed from BSE indices
-- Delhi elections
+- Delhi Elections
 - Bryan Johnson
 - Cristiano Ronaldo
 - Vivo V50
