@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- USPS suspends packages from China
 - Kyle Kuzma
+- USPS suspends packages from China
 - TGL
+- Palestine
 - The thing
 - Gaza
 - Parlay
-- RFK Jr
 - Fantastic Four
 - Celtics
+- RFK
 - Marcus Jordan
 - Lakers vs Clippers
 - Tiger Woods
 - AMD stock
 - Tulsi Gabbard
+- French to be
 - Pam Bondi
 - Kevin Durant
-- French to be
 - Mavericks vs 76ers
 - Google stock
-- Rosa Parks
 - Aga Khan
 - Gaza
 - Black Sabbath
@@ -87,7 +87,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Champions Trophy
 - Vidaamuyarchi
 - ICC
-- Union Budget 2025 income tax slabs
+- Income tax slabs Union Budget 2025
 - Deva movie box office collection
 - अभिषेक शर्मा
 - epgview
