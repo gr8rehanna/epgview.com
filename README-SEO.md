@@ -39,26 +39,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Leganés  Real Madrid
 - Celtics
-- Politico
+- POLITICO
 - Spurs
 - USPS suspends packages from China
 - AC Milan
 - Mitch McConnell
-- NOAA
 - Pete Alonso
-- 50501 protests
+- NOAA
 - Brandon Ingram
+- 50501 protests
 - Toby Keith
 - Duke basketball
-- FA Cup
 - Bank of England base rate
-- Jimmy Butler
+- FA Cup
 - Grenfell Tower
+- Jimmy Butler
 - IND vs ENG
+- Bob Marley
 - India vs England
+- Sri Lanka vs Australia
 - Black Sabbath
 - Motherland
 - Aga Khan
+- Leeds United
 - Coventry vs Leeds United
 - Gaza
 - Jurassic World Rebirth
@@ -67,29 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brussels
 - Justin Bieber
 - Riviera
-- Copa del Rey
-- Octopus Energy cut off
-- Coventry City
 - England vs India
 - Eng vs Ind
 - Sri Lanka vs Australia
 - Vidaamuyarchi
 - Shreyas Iyer
-- Rose Day
-- Ravindra Jadeja
 - Arsenal
+- IND vs
+- Rose Day 2025
+- Vidaamuyarchi movie review
 - Jurassic World: Rebirth
 - Cooper Connolly
-- Vidaamuyarchi movie review
-- Ed Sheeran
 - SBI Q3 Results 2025
-- Marcus Stoinis
+- Ed Sheeran
 - Realme P3
-- Delhi Elections
+- Marcus Stoinis
+- Ind बनाम Eng
+- Delhi elections
 - Delhi Election result date 2025
 - Aga Khan
-- Justin Bieber
-- Delhi elections
+- Justin bieber
 - epgview
 - best epg
 - epg for iptv
