@@ -31,37 +31,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Invincible season 3
+- Virginia McCaskey
 - P.J. Tucker
 - Kings
-- Maine Mall Shooting
+- Maine Mall shooting
 - Santos
 - Impeachment
+- Duke
+- Trade deadline NBA
 - Jimmy Butler
 - Mark Williams
 - Kyle Kuzma
 - Valentine's Day gifts
-- Arsenal
 - Politico
 - Spurs
 - USPS suspends packages from China
+- Arsenal
 - Celtics
 - Mitch McConnell
 - Brandon Ingram
-- Pete Alonso
-- NOAA
-- 50501 protests
 - Bank of England base rate
 - FA Cup
 - IND vs ENG
 - Apple Cider Vinegar
+- Gino D'Acampo
+- Bob Marley
 - Grenfell Tower
 - Jimmy Butler
-- Bob Marley
 - Isak
-- Liverpool vs Tottenham
 - Invincible season 3
-- Sri Lanka. vs Australia
 - Kemi Badenoch
+- Sri Lanka. vs Australia
 - Santos
 - Mark Hughes
 - Black Sabbath
@@ -74,22 +74,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Eng vs Ind
 - Sri Lanka vs Australia
 - ICC
+- Rose Day 2025
 - Shreyas Iyer
-- Rose Day
 - Vidaamuyarchi
 - Joe Root
 - Vidaamuyarchi review
 - Ravindra Jadeja
+- Valentine's Week
 - Arsenal
+- Zomato Eternal
 - SBI Q3 Results 2025
 - Cooper Connolly
-- Jurassic World: Rebirth
-- Zomato Eternal
 - IND बनाम ENG
-- Ed Sheeran
 - India-england
-- Santos
-- Delhi elections
+- Delhi Elections
+- Delhi Election Result date
+- Aga Khan
 - epgview
 - best epg
 - epg for iptv
