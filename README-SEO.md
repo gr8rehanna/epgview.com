@@ -31,10 +31,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Invincible season 3
+- P.J. Tucker
 - Kings
-- Maine Mall shooting
+- Maine Mall Shooting
+- Santos
 - Impeachment
-- Gumbo
 - Jimmy Butler
 - Mark Williams
 - Kyle Kuzma
@@ -49,47 +50,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pete Alonso
 - NOAA
 - 50501 protests
-- Carabao Cup
-- England vs India
 - Bank of England base rate
 - FA Cup
 - IND vs ENG
+- Apple Cider Vinegar
 - Grenfell Tower
 - Jimmy Butler
 - Bob Marley
 - Isak
-- Apple Cider Vinegar
 - Liverpool vs Tottenham
-- Sri Lanka vs Australia
-- Santos
+- Invincible season 3
+- Sri Lanka. vs Australia
 - Kemi Badenoch
+- Santos
+- Mark Hughes
 - Black Sabbath
 - Motherland
 - Aga Khan
-- Leeds United
 - Coventry vs Leeds United
+- Leeds United
 - Gaza
-- Jurassic World Rebirth
 - England vs India
 - Eng vs Ind
 - Sri Lanka vs Australia
 - ICC
 - Shreyas Iyer
-- Valentine's Week
-- Rohit Sharma
+- Rose Day
 - Vidaamuyarchi
 - Joe Root
 - Vidaamuyarchi review
 - Ravindra Jadeja
 - Arsenal
-- Jurassic World: Rebirth
-- Cooper Connolly
 - SBI Q3 Results 2025
-- IND बनाम ENG
+- Cooper Connolly
+- Jurassic World: Rebirth
 - Zomato Eternal
-- Marcus Stoinis
+- IND बनाम ENG
+- Ed Sheeran
 - India-england
-- Delhi Election Result
+- Santos
+- Delhi elections
 - epgview
 - best epg
 - epg for iptv
