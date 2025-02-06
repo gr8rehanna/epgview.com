@@ -34,54 +34,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Kyle Kuzma
 - USPS suspends packages from China
-- Leganes vs Real Madrid
-- Politico
 - AC Milan
+- Politico
 - NOAA
 - Mitch McConnell
 - Boston Celtics
 - CIA
-- TGL
+- Workday layoffs today
+- Post Malone Oreos
 - 50501 protests
 - Bianca Censori Grammy outfit
-- Workday layoffs today
-- KJ Martin
-- Uber stock
 - Bourbon and Beyond 2025
+- Uber stock
+- KJ Martin
 - The thing
 - Gaza
+- Leganés  Real Madrid
 - Black Sabbath
 - Leeds United
 - Aga Khan
 - Leganes vs Real Madrid
 - Gaza
+- Greggs chicken burger
+- International transfer services
 - MoneyGram
 - Jurassic World Rebirth
-- Greggs chicken burger
-- Money transfer
 - Chagos Islands
+- Milan vs Roma
 - Brussels
 - Justin Bieber
 - DWP payments
 - Octopus Energy cut off
 - Bear Grylls
 - Boris Becker
+- League Cup
 - Coventry City
 - Tom Grennan
-- League Cup
-- Jesse Eisenberg
 - Newcastle vs Arsenal
 - Jurassic World Rebirth
 - Delhi elections
 - Voting time in Delhi
 - Asian Paints share price
 - ITC Hotels removed from BSE indices
-- Shantanu Naidu
 - Aga Khan
 - Delhi elections
 - Bryan Johnson
-- Cristiano Ronaldo
 - Vivo V50
+- Cristiano Ronaldo
+- Ronaldo
 - USAID
 - Cricket
 - Kanye West
