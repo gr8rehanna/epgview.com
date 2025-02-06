@@ -35,32 +35,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Kyle Kuzma
 - USPS suspends packages from China
-- NBA trade deadline
 - AC Milan
-- NOAA
 - Mitch McConnell
+- NOAA
+- Spurs
 - 50501 protests
-- Boston Celtics
 - Workday layoffs today
+- Boston Celtics
+- Toby Keith
 - CIA
 - Post Malone Oreos
 - Bourbon and Beyond 2025
+- Michigan basketball
 - Gisele Bündchen
 - Bianca Censori Grammy outfit
 - Uber stock
-- KJ Martin
-- The thing
-- Fa Cup
 - Black Sabbath
 - Leeds United
 - Aga Khan
 - Leganes vs Real Madrid
 - Amandaland cast
 - Gaza
+- FA Cup
 - International transfer services
 - Jurassic World Rebirth
 - MoneyGram
-- Greggs chicken burger
 - Milan vs Roma
 - Chagos Islands
 - Brussels
@@ -69,15 +68,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bear Grylls
 - Boris Becker
 - Octopus Energy cut off
-- League Cup
+- Tom Grennan
+- Coventry City
 - Newcastle vs Arsenal
 - Jurassic World Rebirth
+- Ed Sheeran
 - Delhi elections
 - Voting time in Delhi
-- Asian Paints share price
 - ITC Hotels removed from BSE indices
-- Shantanu Naidu
 - Aga Khan
+- Shantanu Naidu
 - Delhi elections
 - Bryan Johnson
 - Cristiano Ronaldo
