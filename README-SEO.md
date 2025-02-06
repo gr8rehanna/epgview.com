@@ -30,6 +30,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Kings
+- Impeachment
 - Jimmy Butler
 - Mark Williams
 - Kyle Kuzma
@@ -37,6 +39,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Leganés  Real Madrid
 - Celtics
+- Politico
 - Spurs
 - USPS suspends packages from China
 - AC Milan
@@ -47,16 +50,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brandon Ingram
 - Toby Keith
 - Duke basketball
-- Gisele Bündchen
-- Bourbon and Beyond 2025
-- Dennis Richmond
 - FA Cup
+- Bank of England base rate
 - Jimmy Butler
 - Grenfell Tower
 - IND vs ENG
-- Sri Lanka vs Australia
+- India vs England
 - Black Sabbath
-- Leganes vs Real Madrid
 - Motherland
 - Aga Khan
 - Coventry vs Leeds United
@@ -64,30 +64,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jurassic World Rebirth
 - Tesco Clubcard Prices
 - Chagos Islands
+- Brussels
 - Justin Bieber
 - Riviera
+- Copa del Rey
 - Octopus Energy cut off
 - Coventry City
-- DWP payments
-- Bear Grylls
 - England vs India
-- IND vs ENG
+- Eng vs Ind
 - Sri Lanka vs Australia
-- Hotstar
 - Vidaamuyarchi
+- Shreyas Iyer
+- Rose Day
+- Ravindra Jadeja
 - Arsenal
-- Ind vs Eng ODI 2025
 - Jurassic World: Rebirth
 - Cooper Connolly
 - Vidaamuyarchi movie review
 - Ed Sheeran
 - SBI Q3 Results 2025
+- Marcus Stoinis
 - Realme P3
-- IND बनाम ENG
-- Delhi elections
+- Delhi Elections
 - Delhi Election result date 2025
 - Aga Khan
-- ITC Hotels removed from BSE indices
 - Justin Bieber
 - Delhi elections
 - epgview
