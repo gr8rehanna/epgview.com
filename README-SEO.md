@@ -31,30 +31,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Valentine's Day Gifts
+- Arsenal
 - Kyle Kuzma
 - USPS suspends packages from China
-- Newcastle vs Arsenal
-- Politico
 - Leganes vs Real Madrid
-- Mavs
+- Politico
 - AC Milan
 - NOAA
-- Boston Celtics
 - Mitch McConnell
+- Boston Celtics
 - CIA
-- Palestine
 - TGL
 - 50501 protests
 - Bianca Censori Grammy outfit
-- Uber stock
-- The thing
+- Workday layoffs today
 - KJ Martin
+- Uber stock
+- Bourbon and Beyond 2025
+- The thing
 - Gaza
 - Black Sabbath
 - Leeds United
 - Aga Khan
-- Gaza
 - Leganes vs Real Madrid
+- Gaza
 - MoneyGram
 - Jurassic World Rebirth
 - Greggs chicken burger
@@ -64,12 +64,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Justin Bieber
 - DWP payments
 - Octopus Energy cut off
-- Jesse Eisenberg
-- Tom Grennan
 - Bear Grylls
-- Newcastle vs Arsenal
-- Brian Murphy
-- Sweden
+- Boris Becker
+- Coventry City
+- Tom Grennan
+- League Cup
+- Jesse Eisenberg
 - Newcastle vs Arsenal
 - Jurassic World Rebirth
 - Delhi elections
@@ -78,8 +78,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITC Hotels removed from BSE indices
 - Shantanu Naidu
 - Aga Khan
-- Zepto Skoda cars
-- TS TET Result 2025
 - Delhi elections
 - Bryan Johnson
 - Cristiano Ronaldo
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Champions Trophy
 - Vidaamuyarchi
 - ICC
+- Income tax slabs Union Budget 2025
+- Deva movie box office collection
 - epgview
 - best epg
 - epg for iptv
