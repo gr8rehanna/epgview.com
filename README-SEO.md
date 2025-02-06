@@ -31,9 +31,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Jimmy Butler
+- Mark Williams
 - Kyle Kuzma
 - Valentine's Day Gifts
-- Mark Williams
 - Leganés  Real Madrid
 - Arsenal
 - Celtics
@@ -49,47 +49,47 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Toby Keith
 - Duke basketball
 - Workday layoffs today
-- CIA
+- Gisele Bündchen
 - FA Cup
+- Isak
+- Grenfell Tower
 - Black Sabbath
-- Leeds United
 - Leganes vs Real Madrid
+- Motherland
 - Aga Khan
+- Coventry vs Leeds United
 - Gaza
 - Jurassic World Rebirth
 - Milan vs Roma
-- Money transfer
-- MoneyGram
+- Tesco Clubcard Prices
 - Chagos Islands
 - Justin Bieber
 - Riviera
+- League Cup
 - Coventry City
 - DWP payments
-- Bear Grylls
 - Octopus Energy cut off
-- Jesse Eisenberg
-- Newcastle vs Arsenal
-- Brian Murphy
+- Bear Grylls
 - England vs India
-- IND vs ENG
 - Sri Lanka vs Australia
-- Newcastle vs Arsenal
+- Hotstar
 - Vidaamuyarchi
+- Arsenal
 - Jurassic World: Rebirth
-- Vidaamuyarchi movie review
 - Cooper Connolly
+- Vidaamuyarchi movie review
 - Ed Sheeran
 - SBI Q3 Results 2025
-- Delhi Elections
-- Voting time in Delhi
+- Realme P3
+- Delhi elections
+- Delhi Election result date 2025
 - Aga Khan
 - ITC Hotels removed from BSE indices
-- Allu Arjun
+- Justin-bieber
 - Delhi elections
 - Cristiano Ronaldo
 - Bryan Johnson
 - Vivo V50
-- USAID
 - epgview
 - best epg
 - epg for iptv
