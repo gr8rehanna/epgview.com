@@ -31,12 +31,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Jimmy Butler
-- Valentine's Day Gifts
 - Kyle Kuzma
-- Arsenal
+- Valentine's Day Gifts
+- Leganés  Real Madrid
 - Mark Williams
+- Arsenal
 - Celtics
-- Politico
 - Spurs
 - USPS suspends packages from China
 - AC Milan
@@ -45,21 +45,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - 50501 protests
 - Pete Alonso
 - Toby Keith
+- Brandon Ingram
 - Duke basketball
 - Workday layoffs today
-- Brandon Ingram
 - CIA
-- Gisele Bündchen
-- Fa Cup
+- Post Malone Oreos
+- FA Cup
 - Black Sabbath
 - Leeds United
-- Aga Khan
 - Leganes vs Real Madrid
-- Amandaland cast
+- Aga Khan
 - Gaza
 - Jurassic World Rebirth
-- Money transfer
 - Milan vs Roma
+- Money transfer
 - MoneyGram
 - Chagos Islands
 - Brussels
@@ -70,10 +69,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Octopus Energy cut off
 - Coventry City
 - British Airways frequent flyer changes
+- Jesse Eisenberg
 - Sri Lanka vs Australia
 - Newcastle vs Arsenal
 - Vidaamuyarchi
 - Jurassic World Rebirth
+- Vidaamuyarchi movie review
 - Ed Sheeran
 - Delhi elections
 - Voting time in Delhi
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cricket
 - Kanye West
 - Champions Trophy
-- Vidaamuyarchi
 - epgview
 - best epg
 - epg for iptv
