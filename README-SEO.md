@@ -35,21 +35,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kyle Kuzma
 - USPS suspends packages from China
 - AC Milan
-- Politico
 - NOAA
 - Mitch McConnell
-- Boston Celtics
-- CIA
-- Workday layoffs today
-- Post Malone Oreos
 - 50501 protests
-- Bianca Censori Grammy outfit
+- Boston Celtics
+- Workday layoffs today
+- CIA
+- Post Malone Oreos
+- TGL
 - Bourbon and Beyond 2025
+- Bianca Censori Grammy outfit
 - Uber stock
 - KJ Martin
 - The thing
+- Gisele Bündchen
 - Gaza
-- Leganés  Real Madrid
 - Black Sabbath
 - Leeds United
 - Aga Khan
@@ -57,19 +57,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Gaza
 - Greggs chicken burger
 - International transfer services
-- MoneyGram
 - Jurassic World Rebirth
-- Chagos Islands
+- MoneyGram
 - Milan vs Roma
+- Chagos Islands
 - Brussels
 - Justin Bieber
 - DWP payments
-- Octopus Energy cut off
 - Bear Grylls
+- Octopus Energy cut off
 - Boris Becker
 - League Cup
-- Coventry City
 - Tom Grennan
+- Coventry City
 - Newcastle vs Arsenal
 - Jurassic World Rebirth
 - Delhi elections
@@ -78,10 +78,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ITC Hotels removed from BSE indices
 - Aga Khan
 - Delhi elections
+- Cristiano Ronaldo
+- Copa del Rey
 - Bryan Johnson
 - Vivo V50
-- Cristiano Ronaldo
-- Ronaldo
 - USAID
 - Cricket
 - Kanye West
