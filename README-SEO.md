@@ -31,32 +31,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Kings
+- Maine Mall shooting
 - Impeachment
 - Jimmy Butler
 - Mark Williams
 - Kyle Kuzma
 - Valentine's Day Gifts
 - Arsenal
-- Leganés  Real Madrid
 - Celtics
-- POLITICO
 - Spurs
 - USPS suspends packages from China
 - AC Milan
 - Mitch McConnell
 - Pete Alonso
-- NOAA
 - Brandon Ingram
+- NOAA
 - 50501 protests
+- Jurassic World
 - Toby Keith
 - Duke basketball
 - Bank of England base rate
 - FA Cup
+- IND vs ENG
 - Grenfell Tower
 - Jimmy Butler
-- IND vs ENG
 - Bob Marley
-- India vs England
 - Sri Lanka vs Australia
 - Black Sabbath
 - Motherland
@@ -69,27 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chagos Islands
 - Brussels
 - Justin Bieber
-- Riviera
+- Copa del Rey
+- League Cup
 - England vs India
 - Eng vs Ind
 - Sri Lanka vs Australia
+- ICC
 - Vidaamuyarchi
 - Shreyas Iyer
+- Rohit Sharma
+- Joe Root
+- Rose Day
+- Ravindra Jadeja
 - Arsenal
-- IND vs
-- Rose Day 2025
 - Vidaamuyarchi movie review
 - Jurassic World: Rebirth
-- Cooper Connolly
 - SBI Q3 Results 2025
 - Ed Sheeran
 - Realme P3
-- Marcus Stoinis
-- Ind बनाम Eng
-- Delhi elections
+- IND बनाम ENG
+- Delhi Elections
 - Delhi Election result date 2025
 - Aga Khan
-- Justin bieber
 - epgview
 - best epg
 - epg for iptv
