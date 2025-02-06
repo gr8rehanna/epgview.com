@@ -61,11 +61,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Money transfer
 - MoneyGram
 - Chagos Islands
-- Brussels
 - Justin Bieber
+- Riviera
+- Coventry City
 - DWP payments
 - Bear Grylls
-- Coventry City
 - Octopus Energy cut off
 - Jesse Eisenberg
 - Newcastle vs Arsenal
@@ -75,18 +75,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sri Lanka vs Australia
 - Newcastle vs Arsenal
 - Vidaamuyarchi
-- Vidaamuyarchi review
 - Jurassic World: Rebirth
-- Mawra Hocane
+- Vidaamuyarchi movie review
+- Cooper Connolly
 - Ed Sheeran
-- Delhi elections
+- SBI Q3 Results 2025
+- Delhi Elections
 - Voting time in Delhi
 - Aga Khan
 - ITC Hotels removed from BSE indices
-- Justin Bieber
+- Allu Arjun
 - Delhi elections
 - Cristiano Ronaldo
-- Copa del Rey
 - Bryan Johnson
 - Vivo V50
 - USAID
