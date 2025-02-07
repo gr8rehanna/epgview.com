@@ -36,23 +36,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Invincible season 3
 - Virginia McCaskey
 - De'Andre Hunter
-- Tornado Warning
 - P.J. Tucker
-- Bill Belichick girlfriend
-- Kings
-- Phyllis Fong
 - FC Barcelona
 - Bob Marley
 - Marcus Smart
+- Bill Belichick girlfriend
 - Sweet Magnolias
 - Lil Wayne
 - Adan Manzano
 - Joe Burrow
 - Kevin Porter Jr
+- Eli Manning
 - Duke
+- Sacramento Kings
+- Clippers
 - Barcelona
 - Marcelo
-- Liverpool fc
+- Metal Gear Solid Delta: Snake Eater
 - Bank of England base rate
 - Gino D'Acampo
 - Apple Cider Vinegar
@@ -77,13 +77,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - England vs India
 - IND vs ENG
 - Sri Lanka vs Australia
-- Rose Day
 - Cricket
 - ICC
-- India Match
+- Valentine's Week
+- Rose Day 2025
 - Harshit Rana
-- Valentine's Day
 - Shreyas Iyer
+- India vs England ODI
 - Copa del Rey
 - Rohit Sharma
 - Vidaamuyarchi
