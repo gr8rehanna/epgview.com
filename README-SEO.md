@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- NFL Honors
 - Barcelona
 - Invincible season 3
-- NFL Honors
+- Apple Cider Vinegar Netflix
 - Virginia McCaskey
 - De'Andre Hunter
 - P.J. Tucker
+- Tornado Warning
 - Kings
 - FC Barcelona
-- Apple Cider Vinegar
-- Phyllis Fong
 - Bob Marley
 - Marcus Smart
 - AMZN
 - Lil Wayne
 - Sweet Magnolias
-- Duke
 - Kevin Porter Jr
-- Tornado Warning
-- Maine Mall shooting
-- Santos
+- Duke
+- Joe Burrow
+- Adan Manzano
+- Canelo
 - Barcelona
 - Marcelo
 - Liverpool FC
@@ -63,31 +63,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - LFC
 - Jimmy Butler
 - Grenfell Tower
-- Fiorentina Vs Inter
 - Kevin Danso
 - Kemi Badenoch
 - Mark Hughes
 - Santos
-- Sri Lanka vs Australia
 - Liverpool vs Tottenham
+- Black Sabbath
+- Motherland
 - England vs India
 - IND vs ENG
+- India vs England
 - Sri Lanka vs Australia
 - Cricket
 - ICC
-- Rose Day 2025
-- Vidaamuyarchi
+- Valencia vs Barcelona
+- Rose Day
 - Shreyas Iyer
-- Rohit Sharma
-- Copa del Rey
 - Valentine's Week
+- Vidaamuyarchi
+- Vidaamuyarchi review
 - Zomato Eternal
 - SBI Q3 Results 2025
 - Marcus Stoinis
 - FA Cup
 - IND बनाम ENG
 - India-england
-- Santos
 - Delhi elections
 - Delhi Exit Poll 2025
 - epgview
