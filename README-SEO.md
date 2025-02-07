@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Barcelona
 - Invincible season 3
-- De'Andre Hunter
+- NFL Honors
 - Virginia McCaskey
+- De'Andre Hunter
 - P.J. Tucker
-- NFL Honors 2025
-- Apple Cider Vinegar Netflix
+- Kings
 - FC Barcelona
+- Apple Cider Vinegar
 - Phyllis Fong
 - Bob Marley
 - Marcus Smart
 - AMZN
-- Kings
 - Lil Wayne
+- Sweet Magnolias
 - Duke
 - Kevin Porter Jr
-- Sweet Magnolias
+- Tornado Warning
 - Maine Mall shooting
 - Santos
-- Impeachment
 - Barcelona
 - Marcelo
 - Liverpool FC
@@ -63,7 +63,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - LFC
 - Jimmy Butler
 - Grenfell Tower
-- Fiorentina vs Inter
+- Fiorentina Vs Inter
 - Kevin Danso
 - Kemi Badenoch
 - Mark Hughes
@@ -73,15 +73,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - England vs India
 - IND vs ENG
 - Sri Lanka vs Australia
+- Cricket
 - ICC
 - Rose Day 2025
-- Copa del Rey
-- Shreyas Iyer
 - Vidaamuyarchi
+- Shreyas Iyer
 - Rohit Sharma
+- Copa del Rey
 - Valentine's Week
-- Vidaamuyarchi review
-- KL Rahul
 - Zomato Eternal
 - SBI Q3 Results 2025
 - Marcus Stoinis
@@ -89,6 +88,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IND बनाम ENG
 - India-england
 - Santos
+- Delhi elections
 - Delhi Exit Poll 2025
 - epgview
 - best epg
