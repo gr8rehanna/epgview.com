@@ -37,50 +37,50 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - P.J. Tucker
 - FC Barcelona
 - Apple Cider Vinegar Netflix
-- Kings
 - Bob Marley
-- Duke
+- Kings
 - Marcus Smart
 - AMZN
+- Duke
 - Lil Wayne
-- Maine Mall shooting
 - Kevin Porter Jr
+- NFL Honors 2025
+- Maine Mall shooting
+- Sweet Magnolias
 - Santos
 - Impeachment
-- Sweet Magnolias
 - Gumbo
-- Jimmy Butler
+- Barcelona
+- Marcelo
 - Bank of England base rate
 - Gino D'Acampo
+- Liverpool FC
 - Apple Cider Vinegar
 - FA Cup
 - IND vs ENG
+- Premier League Darts
 - Invincible season 3
 - LFC
 - Jimmy Butler
 - Grenfell Tower
-- Premier League Darts
-- Kevin Danso
 - Fiorentina vs Inter
+- Kevin Danso
 - Kemi Badenoch
 - Isak
 - Mark Hughes
 - Santos
-- Liverpool vs Tottenham
-- Black Sabbath
-- Motherland
-- Aga Khan
+- OMNI
 - England vs India
 - Cricket
 - Sri Lanka vs Australia
 - ICC
+- Rose
 - Rose Day
+- Copa del Rey
 - Shreyas Iyer
 - Vidaamuyarchi
 - Rohit Sharma
-- Copa del Rey
 - Vidaamuyarchi review
-- KL Rahul
 - Zomato Eternal
 - SBI Q3 Results 2025
 - Marcus Stoinis
