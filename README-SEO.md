@@ -37,28 +37,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Apple Cider Vinegar Netflix
 - Invincible season 3
 - Barcelona
-- Virginia McCaskey
 - Bill Belichick girlfriend
+- Virginia McCaskey
 - Tornado Warning
-- P.J. Tucker
 - FC Barcelona
 - Marcus Smart
+- P.J. Tucker
 - Joe Burrow
-- Sweet Magnolias
 - Eli Manning
 - Canelo
+- Sweet Magnolias
 - Lil Wayne
-- Kevin Porter Jr
 - Kings
+- Duke
 - Barcelona
 - Netflix prices
 - Brandi Carlile
+- Alan Brazil
 - Marcelo
 - Metal Gear Solid Delta: Snake Eater
-- Liverpool FC
 - Gino D'Acampo
 - Bank of England base rate
 - Apple Cider Vinegar
+- Liverpool FC
+- Liverpool FC
 - Fran Healy
 - FA Cup
 - Premier League Darts
@@ -68,28 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Grenfell Tower
 - Weather snow forecast
 - Kemi Badenoch
-- Mark Hughes
-- Sri Lanka vs Australia
 - RBI Monetary Policy
 - Thandel
+- Valentine's Day
 - Barcelona
 - FC Barcelona
 - Today
 - Chocolate Day
 - Loveyapa review
 - Thandel review
+- Propose Day
 - Bengaluru
+- England vs India
 - IND vs ENG
+- Rose Day
 - Sri Lanka vs Australia
 - India vs England
-- Rose Day
-- IND vs ENG Live
 - Cricket
 - ICC
+- Rose Day quotes
 - Shreyas Iyer
-- Valentine's Day
-- Rohit Sharma
-- Vidaamuyarchi
 - epgview
 - best epg
 - epg for iptv
