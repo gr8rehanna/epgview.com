@@ -35,26 +35,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - De'Andre Hunter
 - Virginia McCaskey
 - P.J. Tucker
-- FC Barcelona
+- NFL Honors 2025
 - Apple Cider Vinegar Netflix
+- FC Barcelona
+- Phyllis Fong
 - Bob Marley
-- Kings
 - Marcus Smart
 - AMZN
-- Duke
+- Kings
 - Lil Wayne
+- Duke
 - Kevin Porter Jr
-- NFL Honors 2025
-- Maine Mall shooting
 - Sweet Magnolias
+- Maine Mall shooting
 - Santos
 - Impeachment
-- Gumbo
 - Barcelona
 - Marcelo
+- Liverpool FC
 - Bank of England base rate
 - Gino D'Acampo
-- Liverpool FC
 - Apple Cider Vinegar
 - FA Cup
 - IND vs ENG
@@ -66,30 +66,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fiorentina vs Inter
 - Kevin Danso
 - Kemi Badenoch
-- Isak
 - Mark Hughes
 - Santos
-- OMNI
+- Sri Lanka vs Australia
+- Liverpool vs Tottenham
 - England vs India
-- Cricket
+- IND vs ENG
 - Sri Lanka vs Australia
 - ICC
-- Rose
-- Rose Day
+- Rose Day 2025
 - Copa del Rey
 - Shreyas Iyer
 - Vidaamuyarchi
 - Rohit Sharma
+- Valentine's Week
 - Vidaamuyarchi review
+- KL Rahul
 - Zomato Eternal
 - SBI Q3 Results 2025
 - Marcus Stoinis
+- FA Cup
 - IND बनाम ENG
 - India-england
 - Santos
-- Delhi Election Result
-- Delhi elections
-- Aga Khan
+- Delhi Exit Poll 2025
 - epgview
 - best epg
 - epg for iptv
