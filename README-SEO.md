@@ -31,31 +31,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Amazon stock
-- Canelo Alvarez
 - NFL Honors
 - Liverpool vs Tottenham
 - Invincible season 3
 - Apple Cider Vinegar Netflix
-- Barcelona
 - Bill Belichick girlfriend
+- Barcelona
 - Virginia McCaskey
+- Tornado Warning
+- Canelo
 - FC Barcelona
+- Adan Manzano
 - Marcus Smart
 - Joe Burrow
-- P.J. Tucker
 - Eli Manning
-- Canelo
+- P.J. Tucker
 - Sweet Magnolias
 - Lil Wayne
 - NFL Hall of Fame 2025
 - Kings
-- Duke
+- FM25 cancelled
 - Barcelona
 - Netflix prices
 - Brandi Carlile
 - Alan Brazil
-- Marcelo
 - Metal Gear Solid Delta: Snake Eater
+- Marcelo
 - Gino D'Acampo
 - Bank of England base rate
 - Liverpool FC
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jimmy Butler
 - Grenfell Tower
 - Weather snow forecast
-- Kemi Badenoch
-- Thandel
 - RBI Monetary Policy
+- Thandel
 - Barcelona
-- Valentine's Day
-- Today
-- Chocolate Day
 - Loveyapa review
-- Bengaluru
+- Today
+- FC Barcelona
+- Chocolate Day
 - Propose Day
+- Bengaluru
+- Delhi Election result date 2025 Live
 - IND vs ENG
 - India vs England
 - Sri Lanka vs Australia
+- Happy Rose Day
+- Cricket
+- ICC
 - Rose Day 2025
 - IND vs ENG Live
-- Cricket
-- Rose Day quotes
-- ICC
 - Shreyas Iyer
-- Vidaamuyarchi
-- Ravindra Jadeja
+- Rohit Sharma
 - epgview
 - best epg
 - epg for iptv
