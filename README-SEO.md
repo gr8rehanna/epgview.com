@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Herring
+- Kanye West
+- Saquon Barkley
 - Amazon stock
+- Asteroid hitting Earth 2032 NASA
 - Mavs
-- Russell Wilson
-- Canelo Alvarez
 - NFL Honors
 - Barcelona
 - Invincible season 3
 - Liverpool
 - Virginia McCaskey
 - Bill Belichick girlfriend
-- Tornado Warning
 - Adan Manzano
+- Canelo
 - Will Smith
-- Apple Cider Vinegar
 - Marcus Smart
 - Eli Manning
 - Joe Burrow
-- P.J. Tucker
 - Ben Simmons
+- P.J. Tucker
+- Man United vs Leicester City
 - Netflix prices
 - Barcelona
 - Brandi Carlile
 - Alan Brazil
 - Metal Gear Solid Delta: Snake Eater
 - Marcelo
-- FM25
 - Derby County
 - Herring
+- FM25
+- The order
+- Buckingham Palace
 - Gino D'Acampo
 - Bank of England base rate
-- Liverpool fc
+- Liverpool FC
 - Apple Cider Vinegar
 - FA Cup
 - Fran Healy
 - Premier League Darts
 - LFC
-- Invincible season 3
-- Bob Marley
-- Jimmy Butler
-- Propose Day quotes
 - Thandel
 - RBI Monetary Policy
 - Barcelona
-- Loveyapa review
 - Chocolate Day
 - Today
 - Propose Day
 - NEET
+- Loveyapa review
 - Bengaluru
-- Day
 - Delhi election result date 2025 Live
 - IND vs ENG
-- Sri Lanka vs Australia
 - India vs England
+- Sri Lanka vs Australia
 - Rose
 - Rose Day 2025
 - Cricket
 - ICC
 - India vs England ODI
+- Shreyas Iyer
+- Rohit Sharma
 - epgview
 - best epg
 - epg for iptv
