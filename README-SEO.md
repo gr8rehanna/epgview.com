@@ -30,42 +30,42 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Barcelona
 - Invincible season 3
 - De'Andre Hunter
-- Valencia vs Barcelona
 - Virginia McCaskey
 - P.J. Tucker
-- Kings
 - FC Barcelona
 - Apple Cider Vinegar Netflix
+- Kings
 - Bob Marley
 - Duke
-- Detroit Pistons
-- Maine Mall shooting
+- Marcus Smart
+- AMZN
 - Lil Wayne
+- Maine Mall shooting
+- Kevin Porter Jr
 - Santos
 - Impeachment
-- Kevin Porter Jr
+- Sweet Magnolias
 - Gumbo
 - Jimmy Butler
-- Mark Williams
-- Kyle Kuzma
 - Bank of England base rate
-- Apple Cider Vinegar
 - Gino D'Acampo
+- Apple Cider Vinegar
 - FA Cup
 - IND vs ENG
 - Invincible season 3
+- LFC
 - Jimmy Butler
 - Grenfell Tower
 - Premier League Darts
 - Kevin Danso
+- Fiorentina vs Inter
 - Kemi Badenoch
 - Isak
-- Fiorentina vs Inter
 - Mark Hughes
 - Santos
-- Sri Lanka vs Australia
 - Liverpool vs Tottenham
 - Black Sabbath
 - Motherland
@@ -76,15 +76,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICC
 - Rose Day
 - Shreyas Iyer
-- Copa del Rey
 - Vidaamuyarchi
 - Rohit Sharma
+- Copa del Rey
 - Vidaamuyarchi review
-- Arsenal
+- KL Rahul
 - Zomato Eternal
 - SBI Q3 Results 2025
-- IND बनाम ENG
 - Marcus Stoinis
+- IND बनाम ENG
 - India-england
 - Santos
 - Delhi Election Result
