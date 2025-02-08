@@ -30,10 +30,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Real Madrid  atlético Madrid
 - Buffalo Chicken Dip
-- Delhi Election Results
 - AC Milan
+- Delhi election results
 - Donuts recalled
+- Rick Pitino
+- Hornets
 - PlayStation Network status
 - FA Cup
 - Kanye West
@@ -44,41 +47,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - CFPB
 - Saquon Barkley
 - Amazon stock
+- UConn basketball
 - Asteroid hitting Earth 2032 NASA
 - Mavs
-- St. John's basketball
-- NFL Honors
-- Bill Belichick girlfriend
-- NFL Honors 2025
 - FA Cup
 - PlayStation Network status
 - England vs France
-- Wales vs Italy
 - Birmingham vs Newcastle
+- Wales vs Italy
+- Brighton vs Chelsea
 - Everton vs Bournemouth
 - Leeds United vs Millwall
-- Anora
-- Robert De Niro
 - Andrew Gwynne
+- Robert De Niro
+- Celtic FC
+- FA Cup draw
 - PAK vs NZ
-- Sunderland
 - Real Betis
+- Real Madrid vs atlético Madrid
+- Sunderland
 - Sheffield united vs Portsmouth
 - Delhi election 2025
 - Bayern Munich
-- FA Cup draw
-- Man United vs Leicester City
-- Callum Kerr
-- Kanye West
-- Delhi Election Result
-- Leyton Orient vs Man City
+- Critics Choice Awards 2025
+- Real Madrid vs atlético Madrid
+- Election Commission
+- FA Cup
 - Milkipur By Election
-- Avadh Ojha Election seat
 - Propose Day quotes
+- Avadh Ojha Election seat
 - Fakhar Zaman
 - Swati Maliwal
+- Raghav chadha election result
 - Atishi
-- NEET UG 2025 Registration
 - News in Hindi
 - Manish Sisodia constituency
 - Erode Election Result 2025
@@ -86,10 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Parvesh Verma daughter
 - Sony PlayStation Network outage
 - Okhla Election Result
+- Delhi Election Result
 - New Zealand vs Pakistan
-- Delhi Election Result date 2025 LIVE
 - Propose Day
-- RBI Monetary Policy
 - epgview
 - best epg
 - epg for iptv
