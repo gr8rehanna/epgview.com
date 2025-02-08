@@ -32,6 +32,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Delhi Election Results
 - PlayStation Network status
+- Kanye West
 - FA Cup
 - Alaska plane crash
 - Kennedy Center
@@ -43,20 +44,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Walter Payton Man of the Year
 - Mavs
 - What time is Super Bowl 2025
-- Ye
 - Jake Paul
 - NFL Honors
-- Bill Belichick girlfriend
 - Apple Cider Vinegar Netflix
+- Bill Belichick girlfriend
 - Barcelona
-- LIVERPOOL
+- Liverpool
 - PlayStation Network status
 - Leyton Orient vs Man City
+- Leeds United vs Millwall
 - Robert De Niro
 - Anora
 - Bayern Munich
-- Leeds United vs Millwall
-- Delhi election 2025
+- Delhi Election 2025
 - Man United vs Leicester City
 - Kanye West
 - Elton John
@@ -67,29 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Derby County
 - The order
 - Herring
-- Montoya
 - Stanley Tucci
 - Liverpool
+- Gino D'Acampo
 - Delhi Election Result
 - Milkipur By Election
 - Avadh Ojha Election seat
 - Manchester United
+- Ramesh Bidhuri
+- Swati Maliwal
 - Aajtak news
+- Manish Sisodia constituency
+- Atishi
 - Erode Election Result 2025
-- NEET 2025
-- Delhi Election Result date 2025 LIVE
+- Okhla Election Result
+- Parvesh Verma daughter
 - New Zealand vs Pakistan
+- Delhi Election Result date 2025 LIVE
 - Propose Day
 - RBI Monetary Policy
+- Steve Smith
 - Thandel
 - Valentine's Day
-- Barcelona
 - NEET
-- Chocolate Day
-- Alex Carey
-- Bengaluru
-- Barca
-- Thandel movie
 - epgview
 - best epg
 - epg for iptv
