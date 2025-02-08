@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Delhi Election Results
-- Leyton Orient vs Man City
-- PlayStation Network Status
+- PlayStation Network status
 - Kanye West
+- FA Cup
 - Alaska plane crash
 - Kennedy Center
-- FA Cup
-- Saquon Barkley
 - Critics Choice Awards 2025
+- Saquon Barkley
 - Amazon stock
 - CFPB
 - UConn basketball
 - Asteroid hitting Earth 2032 NASA
 - What time is Super Bowl 2025
 - Mavs
-- Shannon Sharpe
 - Jake Paul
 - NFL Honors
 - Bill Belichick girlfriend
+- Barcelona
 - Apple Cider Vinegar
-- Leyton Orient vs Man City
+- Virginia McCaskey
+- FA Cup
 - PlayStation Network status
 - Leeds United vs Millwall
 - Robert De Niro
-- Anora
+- FA Cup on tv
+- Wales vs Italy
+- Everton vs Bournemouth
 - Bayern Munich
-- Delhi Election 2025
-- PAK vs NZ
+- Kanye
+- Sunderland
 - England vs France
+- PAK vs NZ
+- Delhi Election 2025
 - Man United vs Leicester City
 - Kanye West
 - Elton John
 - Buckingham Palace
+- Callum Kerr
 - Dorgu
 - Netflix prices
-- Barcelona
-- Derby County
-- The order
-- Herring
-- Stanley Tucci
 - Delhi Election Result
+- FA Cup
 - Milkipur By Election
-- Leyton Orient vs Man City
 - Avadh Ojha Election seat
+- Alka Lamba
 - Manchester United
 - Swati Maliwal
 - Aajtak news
 - Atishi
 - Manish Sisodia constituency
-- Erode Election Result 2025
 - Fakhar Zaman
+- Erode Election Result 2025
+- Siddharth Chopra
 - Okhla Election Result
 - Parvesh Verma daughter
-- Delhi Election Result date 2025
 - New Zealand vs Pakistan
+- Delhi Election Result date 2025 LIVE
 - Propose Day
 - Steve Smith
-- Thandel
 - RBI Monetary Policy
-- Valentine's Day
 - epgview
 - best epg
 - epg for iptv
