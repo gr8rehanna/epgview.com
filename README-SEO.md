@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Is PlayStation Network Down
 - Kanye West
 - Herring
-- FA Cup
-- Alaska plane crash
 - Kennedy Center
+- Manchester United
 - Saquon Barkley
-- Amazon stock
 - Critics Choice Awards 2025
+- Amazon stock
 - CFPB
 - UConn basketball
 - Walter Payton Man of the Year
 - Mavs
 - Shannon Sharpe
 - What time is Super Bowl 2025
-- Russell Wilson
+- Alaska
 - NFL Honors
 - Barcelona
 - Bill Belichick girlfriend
-- Apple Cider Vinegar Netflix
+- Apple Cider Vinegar
+- Liverpool
 - PlayStation Network status
 - Anora
 - Man United vs Leicester City
@@ -71,25 +71,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FA Cup
 - Liverpool FC
 - Milkipur By Election
-- Avadh Ojha election seat
+- Alka Lamba
+- NEET UG 2025 Registration
+- Avadh Ojha Election seat
 - Manish Sisodia constituency
 - Kshama Sawant
-- Propose Day
-- ECI
-- RBI Monetary Policy
-- Thandel
-- Steve Smith
-- Barcelona
-- Valentine's Day
-- Alex Carey
-- NEET UG 2025 Registration
-- NEET
-- Barca
-- YouTube .com
-- Thandel movie
+- Erode Election Result 2025
+- Siddharth Chopra
 - Delhi Election Result
-- Cricket
-- ICC
+- ECI
+- Propose Day
+- RBI Monetary Policy
+- Steve Smith
+- Thandel
+- Barcelona
+- Loveyapa movie
+- Valentine's Day
+- NEET
+- Chocolate Day
+- PAK vs NZ
 - epgview
 - best epg
 - epg for iptv
