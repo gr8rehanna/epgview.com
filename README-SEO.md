@@ -31,31 +31,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Herring
-- Kanye West
 - Saquon Barkley
 - Amazon stock
 - Asteroid hitting Earth 2032 NASA
 - Mavs
+- Alaska plane crash
 - Shannon Sharpe
 - Russell Wilson
-- Alaska plane crash
+- CFPB
 - Jake Paul
 - NFL Honors
 - Barcelona
-- Invincible season 3
+- Apple Cider Vinegar Netflix
 - Liverpool
 - Bill Belichick girlfriend
 - Virginia McCaskey
 - Adan Manzano
-- Ben Simmons
 - Will Smith
 - Marcus Smart
-- Kanye West
+- Joe Burrow
 - Brandi Carlile
+- Kanye West
 - Buckingham Palace
 - Dorgu
 - Netflix prices
 - Barcelona
+- Al Nassr
 - The order
 - Herring
 - Derby County
@@ -67,29 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool vs Tottenham
 - Man United vs Leicester City
 - Gino D'Acampo
-- Bank of England base rate
 - Liverpool FC
 - Apple Cider Vinegar
+- Propose Day quotes
+- Propose Day 2025
 - Thandel
 - RBI Monetary Policy
 - Barcelona
 - Steve Smith
 - Valentine's Day
-- Propose Day
 - Chocolate Day
 - Alex Carey
 - Loveyapa review
+- Bengaluru
 - NEET
 - Delhi Election Result date 2025 Live
+- Zomato name change
 - IND vs ENG
 - India vs England
 - Rose
+- IND vs ENG ODI
 - Cricket
 - ICC
-- India vs England ODI
-- Shreyas Iyer
-- Rohit Sharma
-- Zomato Eternal
 - epgview
 - best epg
 - epg for iptv
