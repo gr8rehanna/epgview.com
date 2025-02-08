@@ -30,11 +30,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Is PlayStation Network Down
+- PlayStation Network status
+- FA Cup
 - Kanye West
-- Herring
+- Alaska plane crash
 - Kennedy Center
-- Manchester United
 - Saquon Barkley
 - Critics Choice Awards 2025
 - Amazon stock
@@ -44,11 +44,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mavs
 - Shannon Sharpe
 - What time is Super Bowl 2025
-- Alaska
+- Jake Paul
 - NFL Honors
-- Barcelona
 - Bill Belichick girlfriend
 - Apple Cider Vinegar
+- Barcelona
 - Liverpool
 - PlayStation Network status
 - Anora
@@ -59,7 +59,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dorgu
 - Netflix prices
 - Barcelona
-- Al Nassr
 - The order
 - Derby County
 - Herring
@@ -69,27 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool vs Tottenham
 - Gino D'Acampo
 - FA Cup
-- Liverpool FC
+- Apple Cider Vinegar
+- Bank of England base rate
 - Milkipur By Election
-- Alka Lamba
-- NEET UG 2025 Registration
 - Avadh Ojha Election seat
+- Manchester United
+- Aajtak news
+- NEET UG 2025 Registration
 - Manish Sisodia constituency
-- Kshama Sawant
+- Ramesh Bidhuri
 - Erode Election Result 2025
+- Kshama Sawant
 - Siddharth Chopra
 - Delhi Election Result
-- ECI
 - Propose Day
 - RBI Monetary Policy
 - Steve Smith
+- Today
 - Thandel
 - Barcelona
 - Loveyapa movie
-- Valentine's Day
-- NEET
-- Chocolate Day
 - PAK vs NZ
+- Valentine's Day
 - epgview
 - best epg
 - epg for iptv
