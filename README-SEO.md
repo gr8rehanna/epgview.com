@@ -30,36 +30,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- PlayStation Network Down
+- Is PlayStation Network Down
 - FA Cup
 - Herring
 - Kanye West
 - Alaska plane crash
-- Saquon Barkley
 - Kennedy Center
+- Saquon Barkley
 - Amazon stock
 - Asteroid hitting Earth 2032 NASA
 - Critics Choice Awards 2025
+- UConn basketball
 - CFPB
 - Walter Payton Man of the Year
 - Mavs
 - Shannon Sharpe
 - What time is Super Bowl 2025
+- Russell Wilson
 - Oscars 2025
-- UConn basketball
 - NFL Honors
 - Barcelona
-- Bill Belichick girlfriend
+- Anora
 - PlayStation
 - Man United vs Leicester City
 - Kanye West
 - Elton John
 - Buckingham Palace
-- Dorgu
 - Netflix prices
 - Barcelona
 - Al Nassr
 - The order
+- Patrick Dorgu
 - Derby County
 - Alan Brazil
 - Herring
@@ -69,25 +70,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool vs Tottenham
 - Gino D'Acampo
 - FA Cup
-- Liverpool FC
 - Election Commission
 - Delhi Election Result
-- Thandel
 - Propose Day
+- Thandel
 - RBI Monetary Policy
-- Barcelona
 - Steve Smith
+- Barcelona
 - Valentine's Day
 - Chocolate Day
 - Alex Carey
 - Today
 - NEET UG 2025 Registration
 - NEET
+- Barca
 - YouTube .com
-- Zomato name change
-- IND vs ENG
+- Thandel movie
 - India vs England
-- Rose Day
+- Rose
 - Cricket
 - ICC
 - epgview
