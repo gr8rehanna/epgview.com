@@ -30,15 +30,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Is PlayStation Network Down
-- FA Cup
-- Herring
+- PlayStation Network status
 - Kanye West
+- Herring
+- FA Cup
 - Alaska plane crash
 - Kennedy Center
 - Saquon Barkley
 - Amazon stock
-- Asteroid hitting Earth 2032 NASA
 - Critics Choice Awards 2025
 - UConn basketball
 - CFPB
@@ -46,12 +45,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mavs
 - Shannon Sharpe
 - What time is Super Bowl 2025
-- Russell Wilson
 - Oscars 2025
 - NFL Honors
 - Barcelona
+- Bill Belichick girlfriend
+- Apple Cider Vinegar
+- PlayStation Network status
 - Anora
-- PlayStation
 - Man United vs Leicester City
 - Kanye West
 - Elton John
@@ -70,26 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool vs Tottenham
 - Gino D'Acampo
 - FA Cup
-- Election Commission
-- Delhi Election Result
+- ECI
+- Milkipur By Election
+- Kshama Sawant
 - Propose Day
-- Thandel
 - RBI Monetary Policy
+- Thandel
 - Steve Smith
 - Barcelona
 - Valentine's Day
-- Chocolate Day
 - Alex Carey
-- Today
 - NEET UG 2025 Registration
 - NEET
 - Barca
 - YouTube .com
 - Thandel movie
-- India vs England
-- Rose
+- Delhi Election Result
 - Cricket
 - ICC
+- IND vs ENG ODI
+- Axar Patel
 - epgview
 - best epg
 - epg for iptv
