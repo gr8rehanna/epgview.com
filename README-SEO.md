@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Delhi election results
 - PlayStation Network status
 - FA Cup
 - Kanye West
@@ -49,8 +50,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bill Belichick girlfriend
 - Apple Cider Vinegar
 - Barcelona
-- Liverpool
 - PlayStation Network status
+- Robert De Niro
 - Anora
 - Man United vs Leicester City
 - Kanye West
@@ -66,30 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Marcelo
 - Stanley Tucci
 - Liverpool vs Tottenham
+- Liverpool
 - Gino D'Acampo
 - FA Cup
-- Apple Cider Vinegar
-- Bank of England base rate
+- Delhi Election Result
 - Milkipur By Election
 - Avadh Ojha Election seat
 - Manchester United
 - Aajtak news
-- NEET UG 2025 Registration
 - Manish Sisodia constituency
-- Ramesh Bidhuri
+- Atishi
 - Erode Election Result 2025
-- Kshama Sawant
 - Siddharth Chopra
-- Delhi Election Result
+- Delhi Election Result date 2025 live
+- New Zealand vs Pakistan
 - Propose Day
 - RBI Monetary Policy
 - Steve Smith
-- Today
 - Thandel
 - Barcelona
-- Loveyapa movie
-- PAK vs NZ
+- NEET
 - Valentine's Day
+- Chocolate Day
+- Barca
 - epgview
 - best epg
 - epg for iptv
