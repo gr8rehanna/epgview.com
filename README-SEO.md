@@ -32,24 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - FA Cup
 - Herring
-- PlayStation
-- Saquon Barkley
+- Kanye West
+- PlayStation Network Down
 - Alaska plane crash
+- Saquon Barkley
 - Amazon stock
-- Asteroid hitting Earth 2032 NASA
 - Kennedy Center
 - Walter Payton Man of the Year
-- Mavs
-- Shannon Sharpe
 - CFPB
-- What time is Super Bowl 2025
+- Mavs
 - Critics Choice Awards 2025
+- Shannon Sharpe
+- Russell Wilson
+- What time is Super Bowl 2025
 - Oscars 2025
-- Jake Paul
 - NFL Honors
-- Bill Belichick girlfriend
 - Barcelona
-- Liverpool
+- Bill Belichick girlfriend
+- Apple Cider Vinegar
 - PlayStation Network status
 - Man United vs Leicester City
 - Kanye West
@@ -60,8 +60,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Al Nassr
 - The order
-- Herring
 - Derby County
+- Herring
 - Alan Brazil
 - FM25
 - Marcelo
@@ -69,34 +69,4 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool vs Tottenham
 - Gino D'Acampo
 - FA Cup
-- Bank of England base rate
-- Thandel
-- RBI Monetary Policy
-- Propose Day
-- Barcelona
-- Steve Smith
-- Loveyapa review
-- Valentine's Day
-- Chocolate Day
-- Alex Carey
-- Today
-- Bengaluru
-- NEET
-- Delhi Election result date 2025 live
-- Zomato name change
-- IND vs ENG
-- India vs England
-- Cricket
-- ICC
-- Shreyas Iyer
-- India vs England ODI
-- epgview
-- best epg
-- epg for iptv
-- cheap epg service
-- best epg for iptv
-- epg service
-- best epg service
-- cheap epg for iptv
-- epg service
-- best epg service
+- Liverpool FC
