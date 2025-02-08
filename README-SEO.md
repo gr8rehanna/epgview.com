@@ -30,26 +30,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- FA Cup
 - Herring
 - PlayStation
 - Saquon Barkley
-- Amazon stock
 - Alaska plane crash
-- Mavs
+- Amazon stock
+- Asteroid hitting Earth 2032 NASA
 - Kennedy Center
+- Walter Payton Man of the Year
+- Mavs
 - Shannon Sharpe
 - CFPB
+- What time is Super Bowl 2025
+- Critics Choice Awards 2025
+- Oscars 2025
 - Jake Paul
 - NFL Honors
 - Bill Belichick girlfriend
-- Sterling Sharpe
 - Barcelona
 - Liverpool
-- Adan Manzano
-- Virginia McCaskey
-- Tornado warning
-- Kevin Porter Jr
-- Waste Management Open
+- PlayStation Network status
+- Man United vs Leicester City
 - Kanye West
 - Elton John
 - Buckingham Palace
@@ -64,32 +66,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - FM25
 - Marcelo
 - Stanley Tucci
-- Man United vs Leicester City
 - Liverpool vs Tottenham
 - Gino D'Acampo
+- FA Cup
 - Bank of England base rate
-- Liverpool FC
-- Apple Cider Vinegar
 - Thandel
 - RBI Monetary Policy
+- Propose Day
 - Barcelona
 - Steve Smith
 - Loveyapa review
-- Propose Day
 - Valentine's Day
 - Chocolate Day
 - Alex Carey
+- Today
+- Bengaluru
 - NEET
-- Delhi election result date 2025 Live
+- Delhi Election result date 2025 live
 - Zomato name change
 - IND vs ENG
 - India vs England
-- Rose
 - Cricket
 - ICC
 - Shreyas Iyer
 - India vs England ODI
-- Rohit Sharma
 - epgview
 - best epg
 - epg for iptv
