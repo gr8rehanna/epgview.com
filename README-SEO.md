@@ -34,30 +34,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kanye West
 - Saquon Barkley
 - Amazon stock
+- Asteroid hitting Earth 2032 NASA
 - Mavs
-- Russell Wilson
 - Shannon Sharpe
+- Russell Wilson
 - Alaska plane crash
+- Jake Paul
 - NFL Honors
 - Barcelona
 - Invincible season 3
+- Liverpool
 - Bill Belichick girlfriend
 - Virginia McCaskey
-- Liverpool
 - Adan Manzano
-- Canelo
 - Ben Simmons
 - Will Smith
 - Marcus Smart
-- Eli Manning
+- Kanye West
+- Brandi Carlile
 - Buckingham Palace
+- Dorgu
 - Netflix prices
 - Barcelona
-- Dorgu
 - The order
-- Alan Brazil
-- Derby County
 - Herring
+- Derby County
+- Alan Brazil
 - Metal Gear Solid Delta: Snake Eater
 - Marcelo
 - FM25
@@ -65,24 +67,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool vs Tottenham
 - Man United vs Leicester City
 - Gino D'Acampo
+- Bank of England base rate
 - Liverpool FC
 - Apple Cider Vinegar
-- Bank of England base rate
-- Fran Healy
-- Premier League Darts
-- Propose Day quotes
-- Propose Day 2025
 - Thandel
 - RBI Monetary Policy
 - Barcelona
 - Steve Smith
-- Loveyapa review
 - Valentine's Day
+- Propose Day
 - Chocolate Day
 - Alex Carey
+- Loveyapa review
 - NEET
-- Delhi Election result date 2025 Live
-- Zomato name change
+- Delhi Election Result date 2025 Live
 - IND vs ENG
 - India vs England
 - Rose
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ICC
 - India vs England ODI
 - Shreyas Iyer
+- Rohit Sharma
+- Zomato Eternal
 - epgview
 - best epg
 - epg for iptv
