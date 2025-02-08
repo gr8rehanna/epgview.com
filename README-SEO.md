@@ -33,52 +33,51 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid  atlético Madrid
 - Buffalo Chicken Dip
 - AC Milan
-- Delhi election results
 - Donuts recalled
+- Michigan State basketball
+- Chelsea
 - Rick Pitino
-- Hornets
 - PlayStation Network status
 - FA Cup
-- Kanye West
+- Super Bowl Time
 - Kennedy Center
-- Super Bowl time
-- Alaska plane crash
 - Critics Choice Awards 2025
 - CFPB
 - Saquon Barkley
 - Amazon stock
 - UConn basketball
-- Asteroid hitting Earth 2032 NASA
+- Alaska
 - Mavs
+- NFL Honors
+- Barcelona
 - FA Cup
 - PlayStation Network status
 - England vs France
 - Birmingham vs Newcastle
-- Wales vs Italy
 - Brighton vs Chelsea
+- Wales vs Italy
 - Everton vs Bournemouth
 - Leeds United vs Millwall
 - Andrew Gwynne
+- Real Madrid vs atlético Madrid
 - Robert De Niro
-- Celtic FC
 - FA Cup draw
+- Chisora vs Wallin
+- Celtic FC
 - PAK vs NZ
 - Real Betis
-- Real Madrid vs atlético Madrid
 - Sunderland
 - Sheffield united vs Portsmouth
-- Delhi election 2025
-- Bayern Munich
-- Critics Choice Awards 2025
+- Josh Widdicombe
+- Norwich City vs Derby County
 - Real Madrid vs atlético Madrid
-- Election Commission
+- Delhi Election Result
 - FA Cup
 - Milkipur By Election
-- Propose Day quotes
 - Avadh Ojha Election seat
+- Propose Day quotes
 - Fakhar Zaman
 - Swati Maliwal
-- Raghav chadha election result
 - Atishi
 - News in Hindi
 - Manish Sisodia constituency
@@ -87,7 +86,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Parvesh Verma daughter
 - Sony PlayStation Network outage
 - Okhla Election Result
-- Delhi Election Result
+- Raghav chadha election result
+- Delhi Election Result date 2025
 - New Zealand vs Pakistan
 - Propose Day
 - epgview
