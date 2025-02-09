@@ -31,48 +31,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC 312
+- Real Madrid vs Atlético Madrid
 - Earthquake
-- Real Madrid vs atlético Madrid
 - Mark Williams
 - Warriors
-- Zhang Weili
 - Inter Miami
 - Donuts recalled
 - Austin Reaves
 - Clemson basketball
-- Man City
-- Chelsea
+- Tsunami
 - Westminster
 - Westminster Dog Show
 - Illinois basketball
-- PlayStation Network Down
+- PlayStation Network
 - What time is the Super Bowl
 - Anthony Davis
 - Kennedy Center
+- FA Cup
 - Alaska plane crash
+- Celtics
 - Super Bowl
-- Stephen Mangan
-- Scotland vs Ireland
+- Blackburn Rovers vs Wolves
 - IND vs ENG
+- Scotland vs Ireland
+- Stephen Mangan
 - PlayStation Network status
 - Leyton Orient vs MAN CITY
 - Brighton vs Chelsea
 - England vs France
-- Birmingham vs Newcastle
 - Chisora vs Wallin
 - Wales vs Italy
 - UFC 312
 - Andrew Gwynne
 - Real Madrid vs atlético Madrid
 - Leeds United vs Millwall
+- Newcastle
 - John Cooney
 - FA Cup draw
 - Robert De Niro
 - Josh Widdicombe
-- Anora
 - IND vs ENG
-- Real Madrid vs atlético Madrid
 - Eng vs Ind
+- Real Madrid vs atlético Madrid
 - Joe Root
 - UFC 312
 - Ed Sheeran
