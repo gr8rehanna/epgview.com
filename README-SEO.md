@@ -30,36 +30,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Real Madrid vs atlético Madrid
 - UFC 312
+- Real Madrid vs atlético Madrid
 - Earthquake
-- Chelsea
 - Donuts recalled
 - Rockets vs Mavericks
-- Buffalo chicken dip
 - Austin Reaves
+- Buffalo chicken dip
 - AC Milan
 - Mavs game
+- Chelsea
+- Inter Miami
+- Clemson basketball
 - Westminster
+- Warriors vs Bulls
 - Virgil
+- Thomas Detry
+- Illinois basketball
 - Hornets
+- Westminster dog show
 - PlayStation Network status
-- What time is the Super Bowl
-- Anthony Davis
-- FA Cup
-- Kennedy Center
-- Alaska plane crash
-- Critics Choice Awards 2025
-- FA Cup
 - PlayStation Network status
+- Leyton Orient vs MAN CITY
+- FA Cup
 - Brighton vs Chelsea
 - England vs France
 - Birmingham vs Newcastle
 - Wales vs Italy
 - Chisora vs Wallin
 - Real Madrid vs atlético Madrid
-- Everton vs Bournemouth
 - Andrew Gwynne
+- Everton vs Bournemouth
 - Leeds United vs Millwall
 - UFC 312
 - FA Cup draw
@@ -69,8 +70,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Josh Widdicombe
 - PAK vs NZ
 - Real Betis
-- FA Cup games
 - Real Madrid vs atlético Madrid
+- Chelsea
 - Delhi Election Result
 - Milkipur By Election
 - FA Cup
@@ -78,18 +79,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fakhar Zaman
 - Swati Maliwal
 - Atishi
-- Happy Propose Day
-- Manish Sisodia constituency
 - Rachin Ravindra
+- Manish Sisodia constituency
 - Erode Election Result 2025
 - Parvesh Verma daughter
 - Sony PlayStation Network outage
-- Okhla Election Result
 - New Zealand vs Pakistan
 - Delhi Election Result date 2025
-- Thandel
 - Chocolate Day
+- Thandel
 - Valentine's Day
+- Repo rate
 - epgview
 - best epg
 - epg for iptv
