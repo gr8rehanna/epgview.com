@@ -37,20 +37,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pacers vs Lakers
 - Warriors
 - Zhang Weili
-- Olimpia Inter Miami
 - Donuts recalled
 - Clemson basketball
 - Inter Miami
 - Tsunami
+- Olimpia Inter Miami
 - Chelsea
+- Michigan State basketball
 - Westminster
 - Thomas Detry
 - Westminster dog show
-- Illinois basketball
 - Virgil
+- Spurs vs Magic
 - PlayStation Network status
-- What time is the Super Bowl
 - Super Bowl
+- Jamie Donley
 - PlayStation Network status
 - Leyton Orient vs MAN CITY
 - FA Cup
@@ -59,37 +60,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Birmingham vs Newcastle
 - Wales vs Italy
 - Chisora vs Wallin
-- Real Madrid vs atlético Madrid
 - UFC 312
+- Real Madrid vs atlético Madrid
 - Andrew Gwynne
 - Leeds United vs Millwall
 - FA Cup draw
 - John Cooney
 - Robert De Niro
-- Celtic FC
 - Josh Widdicombe
 - Anora
 - Real Betis
-- England vs India
 - Real Madrid vs atlético Madrid
 - UFC 312
-- Chelsea
-- Delhi election result
+- Barabati Stadium
+- India versus England
+- Delhi Election Result
+- England vs India
 - Milkipur By Election
 - FA Cup
-- Live news
 - MI Cape Town vs Sunrisers Eastern Cape
-- Fakhar Zaman
 - Rachin Ravindra
+- Fakhar Zaman
 - Swati Maliwal
 - Atishi
+- Sanam Teri Kasam box office collection
 - Ravi Kumar box office collection
-- Sanam Teri Kasam Box Office Collection
 - Sony PlayStation Network outage
-- Sanam Teri Kasam Re-Release collection
 - Delhi Election Result date 2025
 - New Zealand vs Pakistan
-- Chocolate Day
+- Chocolate
+- Thandel
 - epgview
 - best epg
 - epg for iptv
