@@ -32,33 +32,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - UFC 312
 - Earthquake
-- Real Madrid vs Atlético Madrid
+- Real Madrid vs atlético Madrid
 - Mark Williams
 - Warriors
 - Zhang Weili
+- Inter Miami
 - Donuts recalled
 - Austin Reaves
 - Clemson basketball
 - Man City
-- Inter Miami
-- Olimpia Inter Miami
 - Chelsea
 - Westminster
-- Westminster dog show
+- Westminster Dog Show
 - Illinois basketball
-- PlayStation Network down
+- PlayStation Network Down
 - What time is the Super Bowl
 - Anthony Davis
-- Kanye West
+- Kennedy Center
+- Alaska plane crash
 - Super Bowl
-- England vs India
+- Stephen Mangan
+- Scotland vs Ireland
+- IND vs ENG
 - PlayStation Network status
-- Leyton Orient vs Man City
+- Leyton Orient vs MAN CITY
 - Brighton vs Chelsea
 - England vs France
 - Birmingham vs Newcastle
-- Wales vs Italy
 - Chisora vs Wallin
+- Wales vs Italy
 - UFC 312
 - Andrew Gwynne
 - Real Madrid vs atlético Madrid
@@ -68,14 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Robert De Niro
 - Josh Widdicombe
 - Anora
-- Real Betis
-- Richard E Grant
-- England vs India
+- IND vs ENG
 - Real Madrid vs atlético Madrid
+- Eng vs Ind
 - Joe Root
 - UFC 312
+- Ed Sheeran
 - Delhi Election Result
-- IND vs ENG
+- England vs India
 - Milkipur By Election
 - Rachin Ravindra
 - MI Cape Town vs Sunrisers Eastern Cape
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sony PlayStation Network outage
 - Milkipur election
 - Ravi Kumar box office collection
-- Delhi Election Result date 2025
-- New Zealand vs Pakistan
 - epgview
 - best epg
 - epg for iptv
