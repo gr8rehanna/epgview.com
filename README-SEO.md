@@ -30,46 +30,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Super Bowl halftime show
 - Liverpool
-- Halftime show 2025
-- Patrick mahomes
 - Saquon Barkley
+- Patrick Mahomes
 - Jimmy Butler
+- Jalen Hurts
 - MAVS
-- Celtics
 - Jon Batiste
+- Celtics
+- Aston Villa vs Tottenham
 - Aaron Rodgers
+- Cooper DeJean
 - Puerto Rico
-- Carlos Alcaraz
+- Football
 - A.J. Brown
+- Carlos Alcaraz
+- Deebo Samuel
 - UFC
 - Earthquake
-- Anthony Davis
 - Puppy Bowl 2025
-- Mark Williams
-- Warriors
-- Inter Miami
-- Donuts recalled
 - Aston Villa vs Tottenham
 - Scotland vs Ireland
+- UFC
 - Superbowl
+- England vs India
+- Liverpool fc
 - Blackburn Rovers vs Wolves
-- IND vs ENG
+- Super Bowl halftime show 2025
+- Sevilla vs Barcelona
+- NFL
 - Sky TV streaming crackdown
 - Chris Hoy
 - Stephen Mangan
 - Unforgotten
+- EasyJet emergency landing
 - Darcy Graham
-- Carlos Alcaraz
 - Patrick Mahomes
-- Super Bowl halftime show 2025
-- Bristol City
-- Sevilla vs Barcelona
+- Carlos Alcaraz
 - Galatasaray
-- Sam Prendergast
-- FA Cup
-- PlayStation Network status
-- Leyton Orient vs MAN CITY
+- Bristol City
 - Sevilla vs Barcelona
 - Super Bowl
 - Teddy
@@ -78,18 +78,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joe Root
 - Chocolate
 - Harshit Rana
-- ENG बनाम IND
+- Ind बनाम Eng लाइव
 - Liverpool
 - Ed Sheeran
 - Chocolate Day quotes
 - Manipur
-- Delhi Election Result
+- Delhi election result
 - Delhi Election Result Live
 - Parvesh Verma
 - Rachin Ravindra
 - CCL 2025
 - Fakhar Zaman
-- Swati Maliwal
+- Atishi
 - epgview
 - best epg
 - epg for iptv
