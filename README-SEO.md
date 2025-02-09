@@ -31,28 +31,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC 312
-- Real Madrid vs atlético Madrid
+- Real Madrid vs Atlético Madrid
 - Earthquake
-- Warriors
 - Mark Williams
+- Warriors
+- Zhang Weili
+- Olimpia Inter Miami
 - Donuts recalled
-- Rockets vs Mavericks
 - Austin Reaves
 - Buffalo chicken dip
 - AC Milan
 - Inter Miami
-- Delhi election results
-- Olimpia vs Inter Miami
 - Chelsea
 - Clemson basketball
 - Westminster
+- Thomas Detry
 - Westminster dog show
+- Illinois basketball
 - Virgil
-- Illinois Basketball
-- PlayStation Network down
-- PlayStation Network status
-- Leyton Orient vs MAN CITY
+- PlayStation Network
 - FA Cup
+- PlayStation Network status
 - Brighton vs Chelsea
 - England vs France
 - Birmingham vs Newcastle
@@ -60,9 +59,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chisora vs Wallin
 - Real Madrid vs atlético Madrid
 - Andrew Gwynne
-- Everton vs Bournemouth
-- Leeds United vs Millwall
 - UFC 312
+- Leeds United vs Millwall
 - FA Cup draw
 - John Cooney
 - Robert De Niro
@@ -70,9 +68,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Josh Widdicombe
 - PAK vs NZ
 - Real Betis
+- FA Cup games
+- Chelsea FC
 - Real Madrid vs atlético Madrid
 - UFC 312
-- Chelsea
 - Delhi Election Result
 - Milkipur By Election
 - FA Cup
@@ -82,7 +81,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Swati Maliwal
 - Rachin Ravindra
 - Atishi
-- Manish Sisodia constituency
 - Parvesh Verma daughter
 - Sony PlayStation Network outage
 - New Zealand vs Pakistan
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chocolate Day
 - Thandel
 - Repo rate
+- Barcelona
+- Cricket
 - epgview
 - best epg
 - epg for iptv
