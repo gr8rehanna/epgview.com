@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - UFC 312
 - Real Madrid vs atlético Madrid
 - Earthquake
+- Mark Williams
 - Donuts recalled
 - Rockets vs Mavericks
 - Austin Reaves
 - Buffalo chicken dip
-- AC Milan
-- Mavs game
-- Chelsea
-- Inter Miami
 - Clemson basketball
-- Westminster
+- AC Milan
+- Inter Miami
+- Delhi election results
+- Chelsea
 - Warriors vs Bulls
+- Westminster
 - Virgil
 - Thomas Detry
-- Illinois basketball
-- Hornets
-- Westminster dog show
-- PlayStation Network status
+- Westminster Dog Show
+- Bulls
+- PlayStation Network down
 - PlayStation Network status
 - Leyton Orient vs MAN CITY
 - FA Cup
@@ -68,9 +68,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Robert De Niro
 - Celtic FC
 - Josh Widdicombe
-- PAK vs NZ
 - Real Betis
+- Chelsea FC
 - Real Madrid vs atlético Madrid
+- UFC 312
 - Chelsea
 - Delhi Election Result
 - Milkipur By Election
@@ -81,7 +82,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Atishi
 - Rachin Ravindra
 - Manish Sisodia constituency
-- Erode Election Result 2025
 - Parvesh Verma daughter
 - Sony PlayStation Network outage
 - New Zealand vs Pakistan
