@@ -31,27 +31,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - UFC 312
-- Real Madrid vs atlético Madrid
-- Earthquake
+- Real Madrid vs Atlético Madrid
 - Mark Williams
 - Pacers vs Lakers
+- Tsunami
 - Warriors
 - Zhang Weili
 - Donuts recalled
 - Clemson basketball
 - Inter Miami
-- Tsunami
 - Olimpia Inter Miami
 - Chelsea
-- Michigan State basketball
 - Westminster
 - Thomas Detry
 - Westminster dog show
-- Virgil
-- Spurs vs Magic
 - PlayStation Network status
+- What Time is the Super Bowl
+- Anthony Davis
+- FA Cup
+- Kennedy Center
 - Super Bowl
-- Jamie Donley
+- England vs India
 - PlayStation Network status
 - Leyton Orient vs MAN CITY
 - FA Cup
@@ -70,26 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Josh Widdicombe
 - Anora
 - Real Betis
+- IND vs ENG
 - Real Madrid vs atlético Madrid
 - UFC 312
-- Barabati Stadium
-- India versus England
+- Mohammed shami
 - Delhi Election Result
 - England vs India
-- Milkipur By Election
 - FA Cup
+- Milkipur By Election
 - MI Cape Town vs Sunrisers Eastern Cape
 - Rachin Ravindra
 - Fakhar Zaman
 - Swati Maliwal
 - Atishi
 - Sanam Teri Kasam box office collection
+- Manish Sisodia
 - Ravi Kumar box office collection
 - Sony PlayStation Network outage
-- Delhi Election Result date 2025
+- Milkipur election
 - New Zealand vs Pakistan
-- Chocolate
-- Thandel
+- Delhi Election Result date 2025
 - epgview
 - best epg
 - epg for iptv
