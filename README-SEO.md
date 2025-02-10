@@ -70,3 +70,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Patrick Mahomes
 - Travis Kelce
 - Terry Chocolate Orange
+- Sevilla vs Barcelona
+- Super Bowl
+- England vs India
+- Virat Kohli
+- Joe Root
+- Chocolate
+- Harshit Rana
+- Liverpool
+- Ed Sheeran
+- रोहित शर्मा
+- Manipur
+- Delhi Election Result
+- Delhi Election Result LIVE
+- Parvesh Verma
+- Rachin Ravindra
+- Teddy Day
+- CCL 2025
+- Atishi
+- New Zealand vs Pakistan
+- Thandel
+- epgview
+- best epg
+- epg for iptv
+- cheap epg service
+- best epg for iptv
+- epg service
+- best epg service
+- cheap epg for iptv
+- epg service
+- best epg service
