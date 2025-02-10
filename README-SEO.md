@@ -32,29 +32,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Kendrick Lamar
 - Tubi
-- NFL
 - Travis Kelce
+- NFL
 - Jon Batiste
 - Cooper DeJean
+- Jalen Hurts
 - UFC
 - Saquon Barkley
-- Jalen Hurts
-- Sevilla  Barcelona
-- Tom Cruise
+- Patrick Mahomes
 - Tom Brady
+- Sevilla  Barcelona
+- Trump Super Bowl
+- Tom Cruise
 - Lauren Daigle
-- Harry Connick Jr
 - Liverpool
 - Sports
 - Lady Gaga
-- Aaron Rodgers
-- A.J. Brown
-- Bradley Cooper
+- Harry Connick Jr
+- Harrison Ford
 - Saquon Barkley
 - Jalen Hurts
+- Tom Brady
 - Ange Postecoglou
 - Plymouth Argyle vs Liverpool
-- Super Bowl 2025
+- Super Bowl
 - Aston Villa vs Tottenham
 - Scotland vs Ireland
 - UFC
@@ -69,34 +70,3 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Patrick Mahomes
 - Travis Kelce
 - Terry Chocolate Orange
-- Sky TV streaming crackdown
-- Sevilla vs Barcelona
-- Super Bowl
-- England vs India
-- Virat Kohli
-- Joe Root
-- Chocolate
-- Harshit Rana
-- Liverpool
-- Ed Sheeran
-- रोहित शर्मा
-- Manipur
-- Delhi Election Result
-- Delhi Election Result LIVE
-- Parvesh Verma
-- Rachin Ravindra
-- CCL 2025
-- Swati Maliwal
-- Teddy Day
-- Atishi
-- Ravikumar box office collection
-- epgview
-- best epg
-- epg for iptv
-- cheap epg service
-- best epg for iptv
-- epg service
-- best epg service
-- cheap epg for iptv
-- epg service
-- best epg service
