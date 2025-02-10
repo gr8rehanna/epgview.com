@@ -30,51 +30,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Superbowl
-- Jalen Hurts
+- Super Bowl
 - NFL
-- Travis Kelce
 - Eagles
+- Travis Kelce
 - Jon Batiste
 - Cooper DeJean
+- Saquon Barkley
 - UFC
 - Trump Super Bowl
 - Elon Musk super bowl ads
 - Lauren Daigle
 - Tom Cruise
 - Sports
-- Lady Gaga
-- Gulf of America
 - Aaron Rodgers
 - A.J. Brown
 - Harry Connick Jr
 - Liverpool
 - Harrison Ford
+- Lady Gaga
+- The Saints
 - Saquon Barkley
 - Kanye West Twitter
 - Ange Postecoglou
 - Cooper DeJean
 - Super Bowl 2025
 - Plymouth Argyle vs Liverpool
-- ASTON VILLA VS TOTTENHAM
+- Aston Villa vs Tottenham
 - Scotland vs Ireland
-- UFC
-- Kendrick Lamar
 - Patrick Mahomes
+- Kendrick Lamar
 - England vs India
-- Liverpool fc
-- Blackburn Rovers vs Wolves
+- Liverpool FC
 - Unforgotten
 - Sevilla vs Barcelona
 - EasyJet flight emergency landing
 - Travis Kelce
+- Wolves
 - Chris Hoy
 - Stephen Mangan
+- Darcy Graham
+- Matthew Breetzke
 - Pariksha Pe Charcha 2025
 - Super Bowl
 - NZ vs SA
-- Sanam Teri Kasam box office Collection
 - SBI Clerk Admit Card 2025
+- Sanam Teri Kasam box office Collection
 - Ajax Engineering IPO GMP
 - Super Bowl 2025
 - Happy Teddy Day Wishes quotes
@@ -83,11 +84,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joe Root
 - Ravindra Jadeja
 - Chocolate
+- Ranveer Allahbadia
 - Liverpool
 - Manipur
 - Ed Sheeran
-- India Got Latent
-- Karun Nair
 - Delhi Election Result
 - Delhi Election Result LIVE
 - epgview
