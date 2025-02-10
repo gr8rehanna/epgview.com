@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Kendrick Lamar
+- Tubi
 - NFL
-- Jon Batiste
 - Travis Kelce
-- UFC
+- Jon Batiste
 - Cooper DeJean
+- UFC
 - Saquon Barkley
 - Jalen Hurts
+- Sevilla  Barcelona
 - Tom Cruise
-- Lauren Daigle
-- Liverpool
 - Tom Brady
+- Lauren Daigle
+- Harry Connick Jr
+- Liverpool
 - Sports
-- A.J. Brown
-- Aaron Rodgers
-- Sevilla vs Barcelona
 - Lady Gaga
+- Aaron Rodgers
+- A.J. Brown
 - Bradley Cooper
-- Celtics
-- Black National Anthem
 - Saquon Barkley
+- Jalen Hurts
 - Ange Postecoglou
+- Plymouth Argyle vs Liverpool
 - Super Bowl 2025
 - Aston Villa vs Tottenham
 - Scotland vs Ireland
 - UFC
 - England vs India
 - Liverpool fc
-- Blackburn Rovers vs Wolves
 - Kendrick Lamar
+- Blackburn Rovers vs Wolves
 - Unforgotten
-- Sevilla vs Barcelona
 - NFL
+- Sevilla vs Barcelona
 - EasyJet flight emergency landing
 - Patrick Mahomes
 - Travis Kelce
 - Terry Chocolate Orange
 - Sky TV streaming crackdown
-- Chris Hoy
-- Stephen Mangan
 - Sevilla vs Barcelona
 - Super Bowl
 - England vs India
 - Virat Kohli
 - Joe Root
-- Harshit Rana
 - Chocolate
-- ENG बनाम IND
-- Happy Chocolate Day
+- Harshit Rana
 - Liverpool
 - Ed Sheeran
+- रोहित शर्मा
 - Manipur
 - Delhi Election Result
 - Delhi Election Result LIVE
 - Parvesh Verma
 - Rachin Ravindra
 - CCL 2025
-- Fakhar Zaman
 - Swati Maliwal
+- Teddy Day
 - Atishi
+- Ravikumar box office collection
 - epgview
 - best epg
 - epg for iptv
