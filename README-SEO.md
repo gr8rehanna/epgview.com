@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Super Bowl
-- Jalen Hurts
-- Eagles
 - NFL
+- Eagles
 - Travis Kelce
 - Cooper DeJean
 - Jon Batiste
+- Saquon Barkley
 - UFC
 - Trump Super Bowl
 - Elon Musk super bowl ads
 - Lauren Daigle
 - Tom Cruise
 - Sports
+- Gulf of America
 - Lady Gaga
 - Aaron Rodgers
 - AJ Brown
 - Harry Connick Jr
-- Liverpool
 - Harrison Ford
 - DeVonta Smith
 - Saquon Barkley
+- EastEnders
 - Tom Brady
 - Ange Postecoglou
+- Kanye West Twitter
 - Cooper DeJean
 - Tubi
 - Super Bowl 2025
 - Plymouth Argyle vs Liverpool
-- ASTON VILLA VS TOTTENHAM
+- Aston Villa vs Tottenham
+- Super Bowl
 - Scotland vs Ireland
-- Kendrick Lamar
 - Who won the Super Bowl 2025
 - Liverpool FC
 - Unforgotten
-- EasyJet flight emergency landing
+- easyJet flight emergency landing
 - Travis Kelce
 - IND vs ENG
 - Terry Chocolate Orange
 - Wolves
-- Bristol City vs Swansea
-- Chris Hoy
 - South Africa vs New Zealand
 - Matthew Breetzke
-- Pariksha Pe Charcha 2025
-- NZ vs SA
-- SBI Clerk Admit Card 2025
 - Super Bowl
+- Pariksha Pe Charcha 2025
+- SBI Clerk Admit Card 2025
 - Sanam Teri Kasam box office Collection
 - Ajax Engineering IPO GMP
-- Super Bowl 2025
 - NFL
 - Happy Teddy Day Wishes quotes
 - England vs India
 - Virat Kohli
 - Joe Root
+- Ranveer Allahbadia
 - Ravindra Jadeja
-- Cuttack
+- Kl rahul
 - Chocolate
 - Liverpool
 - Manipur
 - Ed Sheeran
+- Barabati Stadium
 - epgview
 - best epg
 - epg for iptv
