@@ -30,17 +30,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Super Bowl
+- Kendrick Lamar
 - Jalen Hurts
 - NFL
 - Travis Kelce
 - Tubi
-- Jon Batiste
 - Cooper DeJean
+- Jon Batiste
 - UFC
 - Trump Super Bowl
-- Sevilla  Barcelona
 - Lauren Daigle
+- Elon Musk super bowl ads
 - Tom Cruise
 - Sports
 - Liverpool
@@ -54,6 +54,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tom Brady
 - Ange Postecoglou
 - Tubi
+- Cooper DeJean
 - Plymouth Argyle vs Liverpool
 - Super Bowl 2025
 - Aston Villa vs Tottenham
@@ -62,29 +63,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - England vs India
 - Kendrick Lamar
 - Liverpool fc
-- Patrick Mahomes
 - Blackburn Rovers vs Wolves
 - Unforgotten
+- Patrick Mahomes
 - Sevilla vs Barcelona
 - EasyJet flight emergency landing
 - Travis Kelce
 - Terry Chocolate Orange
-- Sky TV streaming crackdown
 - Sevilla vs Barcelona
 - Super Bowl
 - NZ vs SA
-- Teddy bear
+- Pariksha Pe Charcha 2025
 - Ajax Engineering IPO GMP
-- Superbowl
+- SBI Clerk Admit Card 2025
 - England vs India
-- Virat Kohli
+- South Africa vs New Zealand
 - Joe Root
+- Harshit Rana
 - Chocolate
 - Liverpool
 - Ed Sheeran
-- Happy Chocolate Day
 - Manipur
-- IND बनाम ENG
+- रोहित शर्मा
 - Delhi Election Result
 - Teddy Day
 - Rachin Ravindra
