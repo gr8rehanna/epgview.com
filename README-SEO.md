@@ -35,30 +35,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Eagles
 - Tubi
 - Taylor Swift
-- Travis Kelce
 - Cooper DeJean
 - Jon Batiste
 - Saquon Barkley
+- Travis Kelce
 - Trump Super Bowl
 - Tom Brady
 - Elon Musk super bowl ads
 - Lauren Daigle
 - Tom Cruise
 - Sports
-- Gulf of America
 - Super Bowl commercials 2025
 - Lady Gaga
+- Taylor Swift Travis Kelce
 - Aaron Rodgers
 - A.J. Brown
+- Tottenham
+- Spurs
+- Barcelona
 - Lewisham
 - Saquon Barkley
-- Ange Postecoglou
 - EastEnders
 - Cooper DeJean
 - Tom Brady
 - Kanye West Twitter
-- State Pension
+- Ranveer Allahbadia
 - Gulf of America
+- State Pension
 - Tubi
 - Super Bowl
 - Plymouth Argyle vs Liverpool
@@ -66,12 +69,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aston Villa vs Tottenham
 - Scotland vs Ireland
 - Liverpool FC
-- Rangers vs Queens Park
 - Unforgotten
-- Travis Kelce
-- easyJet flight emergency landing
 - South Africa vs New Zealand
 - Matthew Breetzke
+- Ranveer Allahbadia
 - SBI Clerk Admit Card 2025
 - Pariksha Pe Charcha 2025
 - Super Bowl
@@ -79,17 +80,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Teddy Day wishes
 - Ajax Engineering IPO GMP
 - Teddy
+- JEE mains result 2025
 - Teddy bear
 - Super Bowl 2025
 - NFL
 - England vs India
 - Virat Kohli
-- Ranveer Allahbadia
 - Joe Root
 - Ravindra Jadeja
 - Hardik Pandya
 - Kl rahul
-- Cuttack
 - epgview
 - best epg
 - epg for iptv
