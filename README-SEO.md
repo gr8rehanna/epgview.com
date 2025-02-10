@@ -31,25 +31,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Kendrick Lamar
-- UFC
 - NFL
-- Patrick Mahomes
-- Saquon Barkley
-- Liverpool
 - Jon Batiste
-- Jalen Hurts
 - Travis Kelce
-- Jimmy Johnson
-- Mavs
-- Sevilla vs Barcelona
-- Celtics
-- Aaron Rodgers
-- Aston Villa vs Tottenham
-- A.J. Brown
-- Tom Brady
+- UFC
 - Cooper DeJean
-- Football
-- Puerto Rico
+- Saquon Barkley
+- Jalen Hurts
+- Tom Cruise
+- Lauren Daigle
+- Liverpool
+- Tom Brady
+- Sports
+- A.J. Brown
+- Aaron Rodgers
+- Sevilla vs Barcelona
+- Lady Gaga
+- Bradley Cooper
+- Celtics
+- Black National Anthem
+- Saquon Barkley
+- Ange Postecoglou
 - Super Bowl 2025
 - Aston Villa vs Tottenham
 - Scotland vs Ireland
@@ -57,29 +59,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - England vs India
 - Liverpool fc
 - Blackburn Rovers vs Wolves
-- Unforgotten
 - Kendrick Lamar
+- Unforgotten
 - Sevilla vs Barcelona
-- EasyJet emergency landing
-- Sky TV streaming crackdown
-- Terry Chocolate Orange
+- NFL
+- EasyJet flight emergency landing
 - Patrick Mahomes
+- Travis Kelce
+- Terry Chocolate Orange
+- Sky TV streaming crackdown
 - Chris Hoy
 - Stephen Mangan
-- Darcy Graham
-- Wellington
-- Travis Kelce
-- Carlos Alcaraz
 - Sevilla vs Barcelona
 - Super Bowl
 - England vs India
 - Virat Kohli
 - Joe Root
 - Harshit Rana
-- Happy Chocolate Day
 - Chocolate
-- Liverpool
 - ENG बनाम IND
+- Happy Chocolate Day
+- Liverpool
 - Ed Sheeran
 - Manipur
 - Delhi Election Result
