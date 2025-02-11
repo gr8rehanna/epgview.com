@@ -33,8 +33,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Earthquake
 - Cavs
+- PSG
 - FEMA
 - Florida
+- Marc Fogel
+- SpaceX launch
 - Lakers
 - Winter Storm Warning
 - Yeezy
@@ -43,23 +46,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Full moon February 2025
 - Barcelona
 - Kendrick Lamar Super Bowl halftime show
-- Department of Education
 - OpenAI
+- Department of Education
 - Starbucks free coffee
-- Warriors vs Bucks
-- Rod Blagojevich
-- UNC basketball
 - UEFA Champions League
 - Ticketmaster
+- PSG
 - Warren Gatland
 - Lakers
-- Bolster
 - Denis Law
+- Bolster
+- Peter Kay
 - Sheffield news
 - Sky Glass TV
 - Sam Altman
-- PSG
+- Armie Hammer
 - Mapi Leon
+- Manchester city
 - Inter Milan
 - Champions League
 - FA Cup draw
@@ -67,21 +70,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Serena Williams Drake
 - Doncaster vs Crystal Palace
 - Lewisham
-- SZA
-- Virdee
-- Spurs
 - Guru Ravidas
-- Ravidas Jayanti
+- Bumrah
 - From
+- Ravidas Jayanti
 - Lakers
 - Feb-11
 - JEE Mains Result 2025
 - Ranveer Allahbadia
-- UEFA Champions League
+- Man City vs Real Madrid
 - Realme P3 Pro
 - Pariksha Pe Charcha 2025
-- Box office collection Sanam Teri Kasam
-- Ind vs Eng 3rd ODI
 - Virat Kohli
 - Chocolate
 - Ed Sheeran
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi Election Result
 - Delhi Election Result LIVE
 - Rachin Ravindra
+- Ccl 2025
 - epgview
 - best epg
 - epg for iptv
