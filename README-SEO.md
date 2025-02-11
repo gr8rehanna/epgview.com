@@ -35,6 +35,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Yeezy
 - Vince Neil
 - Barcelona
+- Lakers vs Jazz
 - Starbucks free coffee
 - Department of Education
 - Champions League
@@ -42,18 +43,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Meta layoffs
 - Rod Blagojevich
 - Westminster dog show 2025
-- Kendrick Lamar tour
 - Full moon
+- FDIC
+- Kendrick Lamar tour
 - Clemson basketball
-- Super Bowl 2025
 - Super Bowl
+- Kendrick Lamar
 - Taylor Swift
-- Cooper DeJean
-- Travis Kelce
 - Lakers
 - Inter Milan
 - Hearts fc
 - FA Cup draw
+- Serena Williams Drake
 - Doncaster vs Crystal Palace
 - Tottenham
 - Lewisham
@@ -68,20 +69,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cooper DeJean
 - EastEnders
 - Tom Brady
-- Kanye West Twitter
 - Scottish Cup draw
-- Jeemain
 - UCL
 - South Africa vs New Zealand
-- Ranveer Allahbadia
 - JEE Mains Result 2025
+- JEE Mains
 - Promise Day
 - Pariksha Pe Charcha 2025
-- Super Bowl
-- Sanam Teri Kasam box office collection
-- Ajax Engineering IPO GMP
+- Sanam Teri Kasam Box Office Collection
 - Feb-10
-- India vs England
+- Rohit Sharma
+- Ranveer Allahbadia
 - Virat Kohli
 - Hardik Pandya
 - Chocolate
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi Election Result
 - Delhi Election Result LIVE
 - Rachin Ravindra
+- Ccl 2025
+- Teddy Day
 - epgview
 - best epg
 - epg for iptv
