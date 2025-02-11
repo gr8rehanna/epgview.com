@@ -30,12 +30,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Where to watch the Super Bowl
 - Yeezy
-- Eagles parade
+- Barcelona
 - Drake and Kendrick Lamar feud
 - Starbucks free coffee
 - Department of Education
+- Full moon February 2025
 - Myles Garrett
 - Kendrick Lamar tour
 - FDIC
@@ -50,6 +50,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Jon Batiste
 - Philadelphia Eagles
 - Trump Super Bowl
+- Inter Milan
+- Hearts fc
 - FA Cup draw
 - Doncaster vs Crystal Palace
 - Tottenham
@@ -67,21 +69,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tom Brady
 - Kanye West Twitter
 - Gulf of America
-- Thunderbolts*
-- Charles Hanson
 - Scottish Cup draw
 - JEE Main
 - South Africa vs New Zealand
 - Ranveer Allahbadia
-- Matthew Breetzke
 - SBI Clerk Admit Card 2025
 - Pariksha Pe Charcha 2025
 - Super Bowl
-- Sanam Teri Kasam box office collection
-- Ajax Engineering IPO GMP
 - Teddy
-- Teddy bear
-- Feb 10
+- Ajax Engineering IPO GMP
+- Box office collection Sanam Teri Kasam
+- Feb. 10
 - England vs India
 - Virat Kohli
 - Joe Root
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool
 - Manipur
 - Ed Sheeran
+- Delhi Election Result
+- Delhi Election Result LIVE
 - epgview
 - best epg
 - epg for iptv
