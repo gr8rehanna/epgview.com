@@ -38,18 +38,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Starbucks free coffee
 - Department of Education
 - Champions League
-- Meta layoffs
-- National Weather Service
-- Rod Blagojevich
-- Lakers vs Jazz
-- Myles Garrett
 - Warriors vs Bucks
+- Meta layoffs
+- Rod Blagojevich
 - Westminster dog show 2025
 - Kendrick Lamar tour
-- FDIC
 - Full moon
 - Clemson basketball
+- Super Bowl 2025
 - Super Bowl
+- Taylor Swift
+- Cooper DeJean
+- Travis Kelce
+- Lakers
 - Inter Milan
 - Hearts fc
 - FA Cup draw
@@ -69,18 +70,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tom Brady
 - Kanye West Twitter
 - Scottish Cup draw
-- Gulf of America
 - Jeemain
 - UCL
 - South Africa vs New Zealand
 - Ranveer Allahbadia
-- JEE Mains
-- Pariksha Pe Charcha 2025
+- JEE Mains Result 2025
 - Promise Day
+- Pariksha Pe Charcha 2025
 - Super Bowl
 - Sanam Teri Kasam box office collection
 - Ajax Engineering IPO GMP
-- Feb 10
+- Feb-10
 - India vs England
 - Virat Kohli
 - Hardik Pandya
