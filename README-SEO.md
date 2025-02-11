@@ -30,14 +30,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Luka Dončić
 - Lakers
 - Winter storm warning
 - Yeezy
 - Vince Neil
-- Barcelona
 - Starbucks free coffee
 - Department of Education
 - Champions League
+- Who won Super Bowl MVP
 - Warriors vs Bucks
 - Meta layoffs
 - Rod Blagojevich
@@ -45,11 +46,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Full moon
 - FDIC
 - Clemson basketball
+- NIH
 - Fort Bragg
 - Sam Altman
-- Super Bowl 2025
-- Kendrick Lamar
-- Serena Williams Drake
+- Super Bowl
 - Lakers
 - Hearts fc
 - Inter Milan
@@ -64,32 +64,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Spurs
 - Crystal Palace
 - Barcelona
+- Gulf of America
 - Saquon Barkley
 - Ranveer Allahbadia
 - Cooper DeJean
 - EastEnders
-- Tom Brady
 - Scottish Cup draw
 - UCL
 - Happy Promise Day
 - South Africa vs New Zealand
+- NTA
 - JEE Mains Result 2025
-- JEE Mains
 - Promise Day
 - Pariksha Pe Charcha 2025
+- Kane Williamson
 - Sanam Teri Kasam Box Office Collection
-- Feb-10
+- IND vs ENG 3rd ODI
 - Rohit Sharma
 - Ranveer Allahbadia
 - Virat Kohli
+- Realme P3 Pro
 - Chocolate
 - Manipur
 - Ed Sheeran
 - Delhi Election Result
 - Delhi Election Result LIVE
 - Rachin Ravindra
-- Ccl 2025
-- Teddy Day
 - epgview
 - best epg
 - epg for iptv
