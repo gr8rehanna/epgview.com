@@ -30,12 +30,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Winter storm warning
 - Lakers
+- Winter storm warning
 - Yeezy
 - Vince Neil
 - Barcelona
-- Lakers vs Jazz
 - Starbucks free coffee
 - Department of Education
 - Champions League
@@ -45,14 +44,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Westminster dog show 2025
 - Full moon
 - FDIC
-- Kendrick Lamar tour
 - Clemson basketball
-- Super Bowl
+- Fort Bragg
+- Sam Altman
+- Super Bowl 2025
 - Kendrick Lamar
-- Taylor Swift
+- Serena Williams Drake
 - Lakers
-- Inter Milan
 - Hearts fc
+- Inter Milan
 - FA Cup draw
 - Serena Williams Drake
 - Doncaster vs Crystal Palace
@@ -71,6 +71,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tom Brady
 - Scottish Cup draw
 - UCL
+- Happy Promise Day
 - South Africa vs New Zealand
 - JEE Mains Result 2025
 - JEE Mains
@@ -81,7 +82,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Rohit Sharma
 - Ranveer Allahbadia
 - Virat Kohli
-- Hardik Pandya
 - Chocolate
 - Manipur
 - Ed Sheeran
