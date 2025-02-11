@@ -30,58 +30,58 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Man City vs Real Madrid
+- Bolster
+- Manchester City  Real Madrid
 - Valentine's Day gifts
+- Canned tuna recalls
 - Earthquake
-- Cavs
 - PSG
+- Cavs
+- SAVE Act
 - Chicago Weather
 - Marc Fogel
 - FEMA
 - Florida
+- Duolingo Owl death
 - SpaceX launch
-- Tuna recall
+- Alex Len
 - Lakers
-- Yeezy
 - Champions League
+- Yeezy
 - Vince Neil
 - Full moon February 2025
-- Barcelona
-- UEFA Champions League
-- Kendrick Lamar Super Bowl halftime show
-- OpenAI
 - Exeter City vs nottm Forest
 - Sheffield
-- Ticketmaster
+- UEFA Champions League
 - PSG
+- Ticketmaster
 - Warren Gatland
-- Lakers
+- Watford vs Leeds United
 - Peter Kay
-- Bolster
+- Lakers
 - Sky Glass TV
+- Bolster
 - Denis Law
-- Manchester city
+- UCL
 - Sam Altman
 - Mapi Leon
+- Waterloo Road
 - Inter Milan
+- Ozzy Osbourne Black Sabbath tickets
 - Man City vs Real Madrid
 - FA Cup draw
-- Yeezy
-- Serena Williams Drake
-- Doncaster vs Crystal Palace
-- Lewisham
-- PSG
-- Guru Ravidas
 - Bumrah
+- Guru Ravidas
+- UCL
 - From
 - Ravidas Jayanti
 - Lakers
-- Feb. 11
 - JEE Mains Result 2025
 - Man City vs Real Madrid
 - Ranveer Allahbadia
 - Pariksha Pe Charcha 2025
 - Thaipusam
+- Box office collection Sanam Teri Kasam
 - Virat Kohli
 - Chocolate
 - Ed Sheeran
