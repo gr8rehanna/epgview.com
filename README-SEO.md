@@ -32,25 +32,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Yeezy
 - Barcelona
-- Drake and Kendrick Lamar feud
 - Starbucks free coffee
 - Department of Education
-- Full moon February 2025
 - Myles Garrett
 - Kendrick Lamar tour
-- FDIC
+- Westminster dog show 2025
 - Super Bowl 2025
-- Jalen Hurts
+- Super Bowl
 - NFL
 - Tubi
 - Taylor Swift
 - Cooper DeJean
+- Jon Batiste
 - Saquon Barkley
 - Travis Kelce
-- Jon Batiste
-- Philadelphia Eagles
 - Trump Super Bowl
-- Inter Milan
+- Super Bowl commercials 2025
+- Gulf of America
+- Eagles parade
 - Hearts fc
 - FA Cup draw
 - Doncaster vs Crystal Palace
@@ -70,7 +69,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kanye West Twitter
 - Gulf of America
 - Scottish Cup draw
+- Thunderbolts*
 - JEE Main
+- Promise Day Quotes
 - South Africa vs New Zealand
 - Ranveer Allahbadia
 - SBI Clerk Admit Card 2025
@@ -85,7 +86,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joe Root
 - Hardik Pandya
 - Chocolate
-- Liverpool
 - Manipur
 - Ed Sheeran
 - Delhi Election Result
