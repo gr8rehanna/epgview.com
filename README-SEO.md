@@ -34,22 +34,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Starbucks free coffee
 - Department of Education
+- Who won Super Bowl MVP
+- Meta layoffs employees
 - Myles Garrett
 - Kendrick Lamar tour
+- Rod Blagojevich
 - Westminster dog show 2025
+- Full moon
+- UNC basketball
 - Super Bowl 2025
 - Super Bowl
-- NFL
-- Tubi
-- Taylor Swift
-- Cooper DeJean
-- Jon Batiste
-- Saquon Barkley
 - Travis Kelce
-- Trump Super Bowl
-- Super Bowl commercials 2025
-- Gulf of America
-- Eagles parade
+- Tubi
+- Cooper DeJean
+- Saquon Barkley
+- Jon Batiste
+- Philadelphia Eagles
+- Inter Milan
 - Hearts fc
 - FA Cup draw
 - Doncaster vs Crystal Palace
@@ -57,8 +58,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Yeezy
 - Lewisham
 - SZA
-- Virdee
 - Champions League
+- Virdee
 - Spurs
 - Barcelona
 - Saquon Barkley
@@ -69,21 +70,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kanye West Twitter
 - Gulf of America
 - Scottish Cup draw
-- Thunderbolts*
 - JEE Main
-- Promise Day Quotes
+- JEE
 - South Africa vs New Zealand
 - Ranveer Allahbadia
+- Matthew Breetzke
 - SBI Clerk Admit Card 2025
 - Pariksha Pe Charcha 2025
 - Super Bowl
 - Teddy
+- Sanam Teri Kasam box office collection
 - Ajax Engineering IPO GMP
-- Box office collection Sanam Teri Kasam
-- Feb. 10
-- England vs India
+- Promise Day
+- India vs England
 - Virat Kohli
-- Joe Root
 - Hardik Pandya
 - Chocolate
 - Manipur
