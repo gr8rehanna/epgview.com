@@ -32,31 +32,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Lakers
 - Winter storm warning
-- Yeezy
 - Vince Neil
-- Jazz vs Lakers
 - Starbucks free coffee
 - Department of Education
 - Champions League
 - Warriors vs Bucks
 - Meta layoffs
 - Rod Blagojevich
-- Westminster dog show 2025
 - Full moon
 - FDIC
-- Clemson basketball
 - Fort Bragg
-- Where i's Super Bowl 2026
+- Clemson basketball
 - Sam Altman
+- Where i's Super Bowl 2026
 - Super Bowl
 - Kendrick Lamar
+- NFL
+- Serena Williams Drake
+- Taylor Swift
 - Lakers
 - Hearts fc
 - Inter Milan
 - FA Cup draw
 - Serena Williams Drake
 - Doncaster vs Crystal Palace
-- Tottenham
 - Lewisham
 - Champions League
 - SZA
@@ -70,26 +69,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ranveer Allahbadia
 - Cooper DeJean
 - Scottish Cup draw
+- Ange Postecoglou
 - UCL
+- Promise Day quotes
 - Champions League
 - From
 - South Africa vs New Zealand
 - JEE Mains Result 2025
-- NTA
-- Promise Day
 - Pariksha Pe Charcha 2025
-- Kane Williamson
 - Sanam Teri Kasam Box Office Collection
 - Ajax Engineering IPO GMP
+- Ind vs Eng 3rd ODI
 - New Zealand vs South Africa
 - Ranveer Allahbadia
 - Virat Kohli
+- Realme P3 Pro
 - Chocolate
 - Manipur
 - Ed Sheeran
-- Realme P3
 - Delhi Election Result
 - Delhi Election Result LIVE
+- Rachin Ravindra
 - epgview
 - best epg
 - epg for iptv
