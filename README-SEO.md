@@ -31,30 +31,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Lakers
-- Winter storm warning
 - Vince Neil
+- Jazz vs Lakers
+- Barcelona
+- Full moon February 2025
 - Starbucks free coffee
 - Department of Education
 - Champions League
 - Warriors vs Bucks
-- Meta layoffs
 - Rod Blagojevich
-- Full moon
+- Meta layoffs
+- Westminster Dog Show 2025
 - FDIC
 - Fort Bragg
 - Clemson basketball
 - Sam Altman
-- Where i's Super Bowl 2026
-- Super Bowl
+- SMCI stock
+- Super Bowl 2025
 - Kendrick Lamar
 - NFL
-- Serena Williams Drake
-- Taylor Swift
 - Lakers
-- Hearts fc
+- Warren Gatland
 - Inter Milan
 - FA Cup draw
-- Serena Williams Drake
+- Drake
 - Doncaster vs Crystal Palace
 - Lewisham
 - Champions League
@@ -65,22 +65,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Crystal Palace
 - Barcelona
 - Gulf of America
-- Saquon Barkley
 - Ranveer Allahbadia
 - Cooper DeJean
 - Scottish Cup draw
 - Ange Postecoglou
+- EastEnders
 - UCL
 - Promise Day quotes
 - Champions League
 - From
+- Ravidas Jayanti
+- Lakers
 - South Africa vs New Zealand
 - JEE Mains Result 2025
 - Pariksha Pe Charcha 2025
 - Sanam Teri Kasam Box Office Collection
-- Ajax Engineering IPO GMP
-- Ind vs Eng 3rd ODI
-- New Zealand vs South Africa
 - Ranveer Allahbadia
 - Virat Kohli
 - Realme P3 Pro
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi Election Result
 - Delhi Election Result LIVE
 - Rachin Ravindra
+- Ccl 2025
 - epgview
 - best epg
 - epg for iptv
