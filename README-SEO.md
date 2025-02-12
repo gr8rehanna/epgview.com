@@ -36,25 +36,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Marc Fogel
 - Alex Len
 - Valentine's Day Gifts
-- Beyonce Cowboy Carter tour
+- Beyonce Cowboy Carter Tour
+- Pistons
 - SAVE Act
 - Red, White, and Blueland
 - PSG
 - Duolingo Owl death
+- Michigan basketball
 - Earthquake
 - CAVS
 - Suns
 - Chicago Weather
-- Pistons
 - Greenland
+- Tennessee basketball
 - FEMA
-- Powerbeats Pro 2
-- Florida
 - Lantern Festival
+- India vs England
 - Duolingo
 - Mbappe
 - Sporting vs Dortmund
-- India vs England
 - Raul Asencio
 - Norwich City
 - Exeter City vs nottm Forest
@@ -66,16 +66,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - PSG
 - Denis Law
-- Gulf of Mexico
 - Visa
 - Sam Altman
 - Armie Hammer
+- Birmingham vs Cambridge United
 - India vs England
 - Sri Lanka vs Australia
 - Hug Day Quotes
 - Jasprit Bumrah
+- Ranveer Allahbadia news
 - Maghi Purnima 2025
-- Ranveer Allahbadia Controversy news
 - CBSE Board Exams 2025 FAQ
 - Man City vs Real Madrid
 - Ravidas Jayanti
@@ -83,8 +83,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lakers
 - JEE Mains Result 2025
 - Ranveer Allahbadia
-- PAK vs SA
-- Stock market
+- Pak vs Sa
+- Stock Market
 - Box Office Collection Sanam Teri Kasam
 - Virat Kohli
 - Chocolate
