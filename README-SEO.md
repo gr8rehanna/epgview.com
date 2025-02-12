@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Gulf of Mexico
 - Real Madrid
-- Bolster
 - Tuna recall
 - Marc Fogel
-- Valentine's Day gifts
 - Alex Len
-- Greenland
-- Beyonce Cowboy Carter Tour
+- Valentine's Day gifts
+- Beyonce Cowboy Carter tour
 - SAVE Act
+- Red, White, and Blueland
 - PSG
 - Earthquake
-- CAVS
 - Michigan basketball
+- CAVS
 - Duolingo Owl death
 - Chicago Weather
+- Alabama basketball
 - Pistons
-- FEMA
+- Greenland
 - Tennessee basketball
-- Powerbeats Pro 2
-- Florida
+- FEMA
 - Lantern Festival
 - Mbappe
 - Exeter City vs nottm Forest
@@ -61,15 +61,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sky Glass TV
 - Lakers
 - Denis Law
-- Gulf of Mexico
 - Sam Altman
+- Armie Hammer
 - Waterloo Road
 - Mapi Leon
-- Ozzy Osbourne Black Sabbath tickets
+- Exeter fc
 - Juventus
+- Ozzy Osbourne Black Sabbath tickets
 - Inter Milan
 - Wayne Rooney
-- Man City vs Real Madrid
+- Sri Lanka vs Australia
 - Hug Day Quotes
 - Bumrah
 - Maghi Purnima 2025
@@ -79,7 +80,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - JEE Mains Result 2025
 - Man City vs Real Madrid
 - Ranveer Allahbadia
-- Thaipusam
 - Virat Kohli
 - Chocolate
 - Ed Sheeran
