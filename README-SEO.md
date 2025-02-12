@@ -30,31 +30,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Real Madrid
 - Bolster
-- Manchester City  Real Madrid
 - Valentine's Day gifts
-- Alex Len
 - Canned tuna recalls
+- Alex Len
 - PSG
+- SAVE Act
 - Earthquake
 - Cavs
-- SAVE Act
 - Marc Fogel
 - Chicago Weather
+- Beyonce Cowboy Carter Tour
+- Duolingo Owl death
 - FEMA
 - Florida
-- Duolingo Owl death
-- SpaceX launch
 - Powerbeats Pro 2
+- SpaceX launch
+- Beverly The Bachelor
 - Lakers
-- Real Madrid
 - Yeezy
-- Vince Neil
 - Exeter City vs nottm Forest
 - UEFA Champions League
 - Sheffield
-- PSG
 - Leeds United
+- PSG
 - Ticketmaster
 - Warren Gatland
 - Peter Kay
@@ -67,14 +67,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Juventus vs PSV
 - Sam Altman
 - Armie Hammer
-- Mapi Leon
 - Waterloo Road
+- Mapi Leon
 - City
 - Bumrah
-- Guru Ravidas
 - UCL
 - From
 - Ravidas Jayanti
+- Guru Ravidas Jayanti
 - Lakers
 - JEE Mains Result 2025
 - Man City vs Real Madrid
