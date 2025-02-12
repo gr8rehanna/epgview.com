@@ -33,27 +33,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Bolster
 - Tuna recall
+- Marc Fogel
 - Valentine's Day gifts
 - Alex Len
 - Greenland
+- Beyonce Cowboy Carter Tour
 - SAVE Act
 - PSG
-- Marc Fogel
 - Earthquake
 - CAVS
 - Michigan basketball
-- Chicago Weather
 - Duolingo Owl death
-- Beyonce Cowboy Carter Tour
+- Chicago Weather
+- Pistons
 - FEMA
 - Tennessee basketball
-- Florida
 - Powerbeats Pro 2
-- Pistons
+- Florida
 - Lantern Festival
 - Mbappe
 - Exeter City vs nottm Forest
-- UEFA Champions League
 - Sheffield
 - Leeds United
 - PSG
@@ -62,24 +61,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sky Glass TV
 - Lakers
 - Denis Law
+- Gulf of Mexico
 - Sam Altman
-- Armie Hammer
 - Waterloo Road
 - Mapi Leon
 - Ozzy Osbourne Black Sabbath tickets
 - Juventus
 - Inter Milan
 - Wayne Rooney
-- Hug Day 2025
+- Man City vs Real Madrid
+- Hug Day Quotes
 - Bumrah
 - Maghi Purnima 2025
 - Ravidas Jayanti
 - From
 - Lakers
-- Feb. 11
 - JEE Mains Result 2025
 - Man City vs Real Madrid
 - Ranveer Allahbadia
+- Thaipusam
 - Virat Kohli
 - Chocolate
 - Ed Sheeran
