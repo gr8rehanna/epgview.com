@@ -30,8 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Jalen Brunson
+- Android
 - Grimes
+- Volcano eruption
 - Jordan
 - Gulf of Mexico
 - Marc Fogel
@@ -44,32 +45,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Duolingo Owl death
 - PSG
 - Michigan basketball
+- Suns
 - Chicago Weather
-- Beyonce Cowboy Carter tour
-- Alabama basketball
+- Beyonce Cowboy Carter Tour
 - Greenland
-- Tennessee basketball
 - Powerbeats Pro 2
 - Lantern festival
 - India vs England
 - South Africa vs Pakistan
 - Havertz
+- NASA asteroid hitting Earth
+- Captain America: Brave New World
 - Duolingo
 - OURA ring
 - Sri Lanka vs Australia
+- Ryanair passenger water bottle charge
+- Forest
 - Mbappe
 - Elma Love Island
 - DOGE
+- Everton vs Liverpool
+- Bayern Munich
+- Marc Fogel
 - Norwich City
 - Beyonce tickets
 - Exeter City vs nottm Forest
-- Sheffield
-- Leeds United
-- Peter Kay
-- Warren Gatland
-- Sky Glass TV
-- Gulf of Mexico
-- Visa
 - India vs England
 - IND vs ENG
 - England vs India
@@ -78,14 +78,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hotstar
 - ICC
 - Virat Kohli
+- Tom Banton
+- Champions Trophy
 - Sports
+- Shab-E-Barat 2025
 - Adil Rashid
 - Hardik Pandya
 - KL Rahul
-- Shab-E-Barat 2025
 - Hug Day Quotes
-- Jasprit Bumrah
-- ICC Champions Trophy
 - Ranveer Allahbadia news
 - Income tax bill introduced
 - PSG
