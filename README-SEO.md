@@ -33,43 +33,43 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bolster
 - Manchester City  Real Madrid
 - Valentine's Day gifts
+- Alex Len
 - Canned tuna recalls
-- Earthquake
 - PSG
+- Earthquake
 - Cavs
 - SAVE Act
-- Chicago Weather
 - Marc Fogel
+- Chicago Weather
 - FEMA
 - Florida
 - Duolingo Owl death
 - SpaceX launch
-- Alex Len
+- Powerbeats Pro 2
 - Lakers
-- Champions League
+- Real Madrid
 - Yeezy
 - Vince Neil
-- Full moon February 2025
 - Exeter City vs nottm Forest
-- Sheffield
 - UEFA Champions League
+- Sheffield
 - PSG
+- Leeds United
 - Ticketmaster
 - Warren Gatland
-- Watford vs Leeds United
 - Peter Kay
-- Lakers
 - Sky Glass TV
+- Lakers
 - Bolster
 - Denis Law
+- Gulf of Mexico
 - UCL
+- Juventus vs PSV
 - Sam Altman
+- Armie Hammer
 - Mapi Leon
 - Waterloo Road
-- Inter Milan
-- Ozzy Osbourne Black Sabbath tickets
-- Man City vs Real Madrid
-- FA Cup draw
+- City
 - Bumrah
 - Guru Ravidas
 - UCL
