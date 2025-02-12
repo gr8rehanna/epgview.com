@@ -32,55 +32,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Real Madrid
 - Bolster
-- Valentine's Day gifts
 - Tuna recall
+- Valentine's Day gifts
 - Alex Len
 - Greenland
 - SAVE Act
 - PSG
+- Marc Fogel
 - Earthquake
 - CAVS
-- Marc Fogel
+- Michigan basketball
 - Chicago Weather
 - Duolingo Owl death
 - Beyonce Cowboy Carter Tour
 - FEMA
-- Michigan basketball
-- Florida
-- Beverly The Bachelor
-- Powerbeats Pro 2
 - Tennessee basketball
+- Florida
+- Powerbeats Pro 2
+- Pistons
+- Lantern Festival
+- Mbappe
 - Exeter City vs nottm Forest
 - UEFA Champions League
 - Sheffield
 - Leeds United
 - PSG
-- Ticketmaster
 - Warren Gatland
 - Peter Kay
 - Sky Glass TV
 - Lakers
 - Denis Law
-- Gulf of Mexico
 - Sam Altman
+- Armie Hammer
 - Waterloo Road
 - Mapi Leon
 - Ozzy Osbourne Black Sabbath tickets
 - Juventus
 - Inter Milan
 - Wayne Rooney
-- Man City vs Real Madrid
-- PSG
+- Hug Day 2025
 - Bumrah
-- UCL
+- Maghi Purnima 2025
 - Ravidas Jayanti
 - From
 - Lakers
+- Feb. 11
 - JEE Mains Result 2025
 - Man City vs Real Madrid
 - Ranveer Allahbadia
-- Pariksha Pe Charcha 2025
-- Box office collection Sanam Teri Kasam
 - Virat Kohli
 - Chocolate
 - Ed Sheeran
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi Election Result LIVE
 - Rachin Ravindra
 - Ccl 2025
+- Teddy Day
 - epgview
 - best epg
 - epg for iptv
