@@ -35,21 +35,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Valentine's Day gifts
 - Tuna recall
 - Alex Len
-- PSG
-- SAVE Act
-- Earthquake
 - Greenland
-- Cavs
+- SAVE Act
+- PSG
+- Earthquake
+- CAVS
 - Marc Fogel
 - Chicago Weather
 - Duolingo Owl death
 - Beyonce Cowboy Carter Tour
 - FEMA
-- Boston Celtics
-- Florida
-- Powerbeats Pro 2
 - Michigan basketball
+- Florida
 - Beverly The Bachelor
+- Powerbeats Pro 2
+- Tennessee basketball
 - Exeter City vs nottm Forest
 - UEFA Champions League
 - Sheffield
@@ -60,18 +60,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Peter Kay
 - Sky Glass TV
 - Lakers
-- Bolster
 - Denis Law
 - Gulf of Mexico
-- Juventus vs PSV
 - Sam Altman
 - Waterloo Road
 - Mapi Leon
-- City
 - Ozzy Osbourne Black Sabbath tickets
+- Juventus
 - Inter Milan
+- Wayne Rooney
+- Man City vs Real Madrid
+- PSG
 - Bumrah
-- Guru Ravidas
 - UCL
 - Ravidas Jayanti
 - From
