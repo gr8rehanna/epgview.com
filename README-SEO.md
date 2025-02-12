@@ -33,48 +33,49 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Android
 - Grimes
 - Volcano eruption
+- CPI
 - Jordan
+- Elden Ring Nightreign
 - Gulf of Mexico
 - Marc Fogel
 - Tuna recall
 - Bulls
-- John Rocker
 - Alex Len
 - Valentine's Day gifts
 - SAVE Act
+- Beyonce Cowboy Carter tour
 - Duolingo Owl death
 - PSG
-- Michigan basketball
 - Suns
 - Chicago Weather
-- Beyonce Cowboy Carter Tour
-- Greenland
-- Powerbeats Pro 2
+- UCL
+- Alabama basketball
 - Lantern festival
+- Everton vs Liverpool
 - India vs England
 - South Africa vs Pakistan
 - Havertz
 - NASA asteroid hitting Earth
 - Captain America: Brave New World
 - Duolingo
+- Ryanair passenger water bottle charge
 - OURA ring
 - Sri Lanka vs Australia
-- Ryanair passenger water bottle charge
-- Forest
-- Mbappe
-- Elma Love Island
 - DOGE
-- Everton vs Liverpool
+- Forest
+- Elma Love Island
+- UK citizenship for refugees
+- Mbappe
 - Bayern Munich
 - Marc Fogel
 - Norwich City
 - Beyonce tickets
-- Exeter City vs nottm Forest
+- Everton vs Liverpool
 - India vs England
 - IND vs ENG
 - England vs India
-- Sri Lanka vs Australia
 - South Africa vs Pakistan
+- Sri Lanka vs Australia
 - Hotstar
 - ICC
 - Virat Kohli
@@ -86,9 +87,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hardik Pandya
 - KL Rahul
 - Hug Day Quotes
-- Ranveer Allahbadia news
 - Income tax bill introduced
-- PSG
+- Ranveer Allahbadia news
 - Maghi Purnima 2025
 - epgview
 - best epg
