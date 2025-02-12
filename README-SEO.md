@@ -30,7 +30,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Jalen Brunson
 - Jordan
 - Gulf of Mexico
 - Marc Fogel
@@ -38,26 +37,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Alex Len
 - Valentine's Day gifts
 - Greenland
+- Pistons
 - SAVE Act
 - Duolingo Owl death
+- PSG
 - Michigan basketball
 - Suns
 - Chicago Weather
 - Alabama basketball
-- Pistons
+- Tennessee basketball
 - Powerbeats Pro 2
 - FEMA
-- Florida
 - Pete Davidson
-- Illinois basketball
+- Florida
 - Lantern festival
 - India vs England
-- South Africa vs Pakistan
+- Havertz
+- IND vs ENG
 - Duolingo
 - Sri Lanka vs Australia
-- Sporting vs Dortmund
-- Havertz
+- Pak vs sa
 - Mbappe
+- Elma Love Island
 - Norwich City
 - Exeter City vs nottm Forest
 - Sheffield
@@ -66,30 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Warren Gatland
 - Sky Glass TV
 - PSG
-- Lakers
 - Gulf of Mexico
-- Denis Law
-- Sam Altman
+- Lakers
+- Visa
 - India vs England
+- IND vs ENG
+- Sri Lanka vs Australia
+- England vs India
 - Hotstar
 - ICC
-- Cricket
+- LIVE Cricket Score
 - Virat Kohli
 - Sports
 - Hug Day Quotes
+- Hardik Pandya
 - Shab-E-Barat 2025
-- SL vs AUS
 - Jasprit Bumrah
-- India Match
 - Adil Rashid
 - Ranveer Allahbadia news
+- GDS Recruitment 2025
+- PSG
 - Maghi Purnima 2025
 - Income Tax Bill Parliament
-- GDS Recruitment 2025
-- CBSE Board Exams 2025 FAQ
-- Feb 12
-- Shaheen Afridi
-- Man City vs Real Madrid
+- Happy Hug Day Wishes
 - epgview
 - best epg
 - epg for iptv
