@@ -40,23 +40,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Red, White, and Blueland
 - Duolingo Owl death
 - Michigan basketball
-- CAVS
+- Earthquake
 - Suns
 - Chicago Weather
+- Alabama basketball
 - Pistons
 - Greenland
 - Tennessee basketball
-- FEMA
 - Powerbeats Pro 2
+- FEMA
 - Florida
-- Illinois basketball
 - Lantern Festival
 - India vs England
 - Duolingo
-- Sporting vs Dortmund
+- IND vs ENG
 - Sri Lanka vs Australia
+- Sporting vs Dortmund
 - Mbappe
-- Raul Asencio
 - Norwich City
 - Exeter City vs nottm Forest
 - Sheffield
@@ -67,29 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - PSG
 - Lakers
 - Denis Law
+- Visa
 - Sam Altman
 - Armie Hammer
-- Birmingham vs Cambridge United
-- Sri Lanka vs Australia
+- Hotstar
 - ICC
-- Live Score
+- Eng vs Ind
 - Virat Kohli
+- Sports
+- SL vs AUS
 - Hug Day Quotes
 - Jasprit Bumrah
-- Ranveer Allahbadia news
-- Maghi Purnima 2025
 - Adil rashid
+- Ranveer Allahbadia news
+- India vs England Live
+- Maghi Purnima 2025
 - CBSE Board Exams 2025 FAQ
-- Shab-E Barat
+- Shab-e-Barat
+- Income Tax Bill Parliament
 - Man City vs Real Madrid
 - Ravidas Jayanti
 - From
 - India vs England
-- JEE mains Result 2025
-- South Africa vs Pakistan
-- Ranveer Allahbadia
-- Stock market
-- Virat Kohli
+- JEE Mains Result 2025
 - epgview
 - best epg
 - epg for iptv
