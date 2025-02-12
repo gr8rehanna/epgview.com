@@ -30,7 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Jalen Brunson
 - Jordan
+- India vs England
 - Gulf of Mexico
 - Marc Fogel
 - Tuna recall
@@ -43,20 +45,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Earthquake
 - Suns
 - Chicago Weather
-- Alabama basketball
 - Pistons
 - Greenland
-- Tennessee basketball
 - Powerbeats Pro 2
 - FEMA
 - Florida
 - Lantern Festival
 - India vs England
 - Duolingo
-- IND vs ENG
 - Sri Lanka vs Australia
 - Sporting vs Dortmund
 - Mbappe
+- PAK vs SA
 - Norwich City
 - Exeter City vs nottm Forest
 - Sheffield
@@ -70,26 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Visa
 - Sam Altman
 - Armie Hammer
+- India vs England
+- Sri Lanka vs Australia
 - Hotstar
 - ICC
-- Eng vs Ind
+- England vs India
+- Cricket
+- क्रिकेट
 - Virat Kohli
 - Sports
-- SL vs AUS
 - Hug Day Quotes
 - Jasprit Bumrah
-- Adil rashid
+- Adil Rashid
 - Ranveer Allahbadia news
-- India vs England Live
 - Maghi Purnima 2025
-- CBSE Board Exams 2025 FAQ
-- Shab-e-Barat
 - Income Tax Bill Parliament
+- CBSE Board Exams 2025 FAQ
+- Shab e Barat
+- India Post GDS
 - Man City vs Real Madrid
 - Ravidas Jayanti
-- From
-- India vs England
-- JEE Mains Result 2025
 - epgview
 - best epg
 - epg for iptv
