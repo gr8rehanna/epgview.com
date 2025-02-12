@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Captain America: Brave New World
 - Liverpool
+- Captain America: Brave New World
 - Android
 - CPI
-- Grimes
 - JCPenney stores closing
-- Volcano eruption
+- Tulsi Gabbard confirmation
+- Grimes
 - Elden Ring Nightreign
+- UConn basketball
+- Volcano eruption
+- Ben Christman
+- Grizzlies
+- Asteroid
 - Jordan
+- Matt Patricia
 - Gulf of Mexico
 - Marc Fogel
 - Tuna recall
-- John Rocker
 - Alex Len
-- Valentine's Day gifts
-- Pistons
-- Beyonce Cowboy Carter tour
-- Duolingo Owl death
-- SAVE Act
-- PSG
+- Bulls
 - Lantern festival
 - Everton vs Liverpool
 - India vs England
+- Celtic vs Bayern
 - Liverpool FC
 - South Africa vs Pakistan
-- Celtic vs Bayern
 - NASA asteroid hitting Earth
 - Havertz
 - Captain America: Brave New World
 - Ryanair passenger water bottle charge
-- Duolingo
 - LFC
-- OURA ring
+- Duolingo
 - Sri Lanka vs Australia
+- Club Brugge vs Atalanta
+- Sheffield United
 - Android
 - Elma Love Island
 - DOGE
-- Club Brugge vs Atalanta
 - Forest
 - UK citizenship for refugees
 - Everton vs Liverpool
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
-- England vs India
 - Sri Lanka vs Australia
+- England vs India
 - Hotstar
 - ICC
 - Virat Kohli
-- Tom Banton
 - Champions Trophy
 - Sports
 - Hardik Pandya
+- Shab-E-Barat 2025
 - KL Rahul
+- ICC Champions Trophy
 - Income tax bill introduced
 - Ranveer Allahbadia news
 - Maghi Purnima 2025
 - क्रिकेट
 - Shaheen Afridi
-- Hug Day 2025
 - epgview
 - best epg
 - epg for iptv
