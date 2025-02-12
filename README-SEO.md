@@ -32,31 +32,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Jalen Brunson
 - Jordan
-- India vs England
 - Gulf of Mexico
 - Marc Fogel
 - Tuna recall
 - Alex Len
 - Valentine's Day gifts
+- Greenland
 - SAVE Act
-- Red, White, and Blueland
 - Duolingo Owl death
 - Michigan basketball
-- Earthquake
 - Suns
 - Chicago Weather
+- Alabama basketball
 - Pistons
-- Greenland
 - Powerbeats Pro 2
 - FEMA
 - Florida
-- Lantern Festival
+- Pete Davidson
+- Illinois basketball
+- Lantern festival
 - India vs England
+- South Africa vs Pakistan
 - Duolingo
 - Sri Lanka vs Australia
 - Sporting vs Dortmund
+- Havertz
 - Mbappe
-- PAK vs SA
 - Norwich City
 - Exeter City vs nottm Forest
 - Sheffield
@@ -66,30 +67,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sky Glass TV
 - PSG
 - Lakers
+- Gulf of Mexico
 - Denis Law
-- Visa
 - Sam Altman
-- Armie Hammer
 - India vs England
-- Sri Lanka vs Australia
 - Hotstar
 - ICC
-- England vs India
 - Cricket
-- क्रिकेट
 - Virat Kohli
 - Sports
 - Hug Day Quotes
+- Shab-E-Barat 2025
+- SL vs AUS
 - Jasprit Bumrah
+- India Match
 - Adil Rashid
 - Ranveer Allahbadia news
 - Maghi Purnima 2025
 - Income Tax Bill Parliament
+- GDS Recruitment 2025
 - CBSE Board Exams 2025 FAQ
-- Shab e Barat
-- India Post GDS
+- Feb 12
+- Shaheen Afridi
 - Man City vs Real Madrid
-- Ravidas Jayanti
 - epgview
 - best epg
 - epg for iptv
