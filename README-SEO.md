@@ -31,62 +31,62 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Liverpool
-- Tulsi Gabbard
 - Captain America: Brave New World
 - 4 Nations Face-Off
 - Asteroid
+- Premier League
 - Android
 - Joann fabrics stores closing
 - JCPenney stores closing
 - Inflation
+- Kadarius Toney
 - Alex Bregman
 - Kennedy Center
-- Grimes
 - Warriors vs Mavericks
+- Grimes
 - Rfk Jr confirmation
+- Cobra Kai
+- Tulsi Gabbard confirmation
+- Clippers
 - Ben Christman
 - Elden Ring Nightreign
-- NASCAR
-- Volcano eruption
-- Bayern Munich
-- Shakespeare
 - State of Play
 - Tulsi Gabbard
+- Bristol City vs Stoke City
 - Lantern festival
 - Everton vs Liverpool
 - Celtic vs Bayern
 - India vs England
 - NASA asteroid hitting Earth
-- Sheffield United vs Middlesbrough
 - Liverpool fixtures
 - LFC
 - Captain America: Brave New World
 - Elon Musk
 - Havertz
-- PAK vs SA
+- Sheffield United
 - Duolingo
 - Elma Love Island
-- Android
 - Everton fc
 - DOGE
 - Sunderland
+- Marc Fogel
 - Everton vs Liverpool
 - Kiss Day
 - Tulsi Gabbard
 - Kiss Day quotes
+- Women's Day 2025
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
 - Sri Lanka vs Australia
 - England vs India
 - ICC
-- Cricket
 - Virat Kohli
 - Sports
-- Real Madrid
 - Shreyas Iyer
 - Shab-E-Barat 2025
 - Rohit Sharma
+- Real Madrid
 - Champions Trophy
 - ICC Champions Trophy
 - Jasprit Bumrah
