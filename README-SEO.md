@@ -31,59 +31,59 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Galentine's Day
+- Lainey Wilson engaged
 - Europa League
-- Portland Weather
-- Medicaid
 - Linda McMahon
+- Portland weather
+- Medicaid
 - 4 Nations
 - Tulsi Gabbard
+- Rfk Jr
 - Liverpool
 - Captain America: Brave New World
-- Rfk Jr
-- Joann Fabrics stores closing
 - Asteroid
+- Joann fabrics stores closing
 - Alex Bregman
 - 4 Nations Face-Off
 - Premier League
 - JCPenney stores closing
-- Android
 - Cobra Kai
+- Android
 - Inflation
-- Kennedy Center
+- Europa League
 - Munich
 - Cobra Kai
-- Plymouth Argyle
-- Europa League
 - UK rare weather phenomenon freezing rain
+- Plymouth Argyle
+- Live Nation
 - John Lithgow
 - Tulsi Gabbard
 - State of Play
 - Premier League fixtures
 - Premier League games
+- Ring doorbell
 - Ukraine
 - Lantern Festival
 - Everton vs Liverpool
 - Premier League
 - Celtic vs Bayern
+- Liverpool fixtures
 - Liverpool FC
 - India vs England
-- NASA asteroid hitting Earth
-- Liverpool fixtures
-- Captain America: Brave New World
 - Valentine's Day quotes
-- WPL
+- Europa League
+- Women's Premier League
 - Valentine's Day
+- Kiss Day
 - Captain America
-- Liverpool
 - Tulsi Gabbard
+- Liverpool
 - JPMorgan Chase layoffs
 - Manipur
 - Women's Day
 - Kash Patel
-- Kiss Day 2025
 - Cobra Kai
 - India vs England
-- Sri Lanka vs Australia
 - ICC
 - Virat Kohli
 - Shab-E-Barat 2025
