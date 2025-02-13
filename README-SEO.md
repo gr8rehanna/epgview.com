@@ -31,15 +31,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Tanner Buchanan
+- Devlin Hodges
 - Galentine's Day
-- Lainey Wilson engaged
+- Happy Valentine's Day
 - Earthquake
 - Linda McMahon
-- Portland weather
+- Portland Weather
 - Medicaid
+- Elizabeth Holmes
 - Tar heels
 - 4 Nations
 - Markelle Fultz
+- Bridget Jones
 - Reddit stock
 - Tulsi Gabbard
 - Rfk Jr
@@ -47,49 +50,46 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool
 - Asteroid
 - Joann Fabrics stores closing
-- Alex Bregman
-- 4 Nations Face-Off
-- Premier League
 - Europa League
-- Munich
-- Cobra Kai
 - UK rare weather phenomenon freezing rain
+- Cobra Kai
+- Munich
 - Plymouth Argyle
 - Live Nation
-- When is Pancake Day
 - John Lithgow
+- When is Pancake Day
 - Ring doorbell
 - Tulsi Gabbard
 - State of Play
 - Premier League fixtures
 - Premier League games
+- Tanner Buchanan
 - Ukraine
+- Shab-e-Barat
 - Sheffield Wednesday
 - Lantern Festival
 - Everton vs Liverpool
 - Liverpool FC
-- Premier League
-- Celtic vs Bayern
 - Valentine's Day quotes
-- Europa League
 - Women's Premier League
 - Valentine's Day
 - Premier League
-- Kiss Day
 - Captain America
+- Kiss Day
 - Tulsi Gabbard
 - JPMorgan Chase layoffs
 - Manipur
-- National Women's Day
 - Women's Day
 - Kash Patel
 - Cobra Kai
 - India vs England
-- Sri Lanka vs Australia
 - ICC
 - Virat Kohli
 - Champions Trophy
 - Sports
+- Shab-e-Barat 2025
+- Harshit Rana
+- Shreyas Iyer
 - epgview
 - best epg
 - epg for iptv
