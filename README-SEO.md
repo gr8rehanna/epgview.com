@@ -41,15 +41,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Inflation
 - Alex Bregman
 - Kennedy Center
-- Warriors vs Mavericks
 - Grimes
 - Cobra Kai
-- RFK Jr confirmation
+- Rfk Jr confirmation
 - Clippers
 - Ben Christman
 - Elden Ring Nightreign
 - State of Play
 - NASCAR
+- Volcano eruption
+- Plymouth Argyle
 - State of Play
 - Tulsi Gabbard
 - Bristol City vs Stoke City
@@ -61,35 +62,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NASA asteroid hitting Earth
 - LFC
 - Captain America: Brave New World
-- Elon Musk
 - Havertz
 - Sheffield United
 - Duolingo
 - Elma Love Island
 - Sunderland
 - DOGE
-- Marc Fogel
 - Elden Ring Nightreign
-- Everton vs Liverpool
-- Happy Kiss Day
+- Marc Fogel
+- Kiss Day
+- Liverpool
 - Tulsi Gabbard
-- Kiss Day Quotes
 - Women's Day 2025
+- Women's Day
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
 - Sri Lanka vs Australia
-- England vs India
+- IND vs ENG Live
 - ICC
 - Virat Kohli
 - Sports
 - Shab-E-Barat 2025
 - Shreyas Iyer
 - Rohit Sharma
-- Real Madrid
 - Champions Trophy
 - ICC Champions Trophy
 - Jasprit Bumrah
+- AUS vs SL
 - epgview
 - best epg
 - epg for iptv
