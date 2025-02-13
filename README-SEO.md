@@ -33,24 +33,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool
 - Tulsi Gabbard
 - Captain America: Brave New World
-- Android
-- JCPenney stores closing
+- 4 Nations Face-Off
 - Asteroid
+- Android
 - Joann fabrics stores closing
+- JCPenney stores closing
 - Inflation
 - Kennedy Center
+- Anthony Edwards
 - Grimes
+- Rfk Jr confirmation
+- Alex Bregman
 - Elden Ring Nightreign
 - Ben Christman
 - State of Play
+- NASCAR
 - Volcano eruption
-- Bayern Munich
-- Shakespeare
-- Jordan
-- Gulf of Mexico
-- Marc Fogel
-- Tuna recall
+- Matt Patricia
 - State of Play
+- Tulsi Gabbard
 - Lantern festival
 - Everton vs Liverpool
 - Celtic vs Bayern
@@ -58,38 +59,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NASA asteroid hitting Earth
 - Sheffield United vs Middlesbrough
 - Liverpool fixtures
-- Ryanair passenger water bottle charge
 - LFC
 - Captain America: Brave New World
 - Havertz
 - PAK vs SA
 - Duolingo
-- OURA ring
 - Elma Love Island
 - Android
 - DOGE
 - Sunderland
 - Marc Fogel
+- Forest
 - Everton vs Liverpool
 - Kiss Day
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
 - Sri Lanka vs Australia
-- England vs India
 - ICC
+- England vs India
 - Cricket
+- Virat Kohli
 - Sports
 - Champions Trophy
 - Real Madrid
-- Shab-E-Barat 2025
+- Shreyas Iyer
+- Adil Rashid
 - Hardik Pandya
-- KL Rahul
-- Jasprit Bumrah
-- Income Tax Bill introduced
+- ICC Champions Trophy
 - Ranveer Allahbadia news
-- Shaheen Afridi
-- Maghi Purnima 2025
+- Income Tax Bill introduced
+- Shab-e-Barat
 - epgview
 - best epg
 - epg for iptv
