@@ -30,50 +30,50 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Tulsi Gabbard
 - Liverpool
 - Captain America: Brave New World
 - 4 Nations Face-Off
 - Asteroid
 - Premier League
 - Joann fabrics stores closing
-- Android
 - JCPenney stores closing
 - Inflation
-- Kadarius Toney
 - Alex Bregman
 - Kennedy Center
 - Warriors vs Mavericks
 - Grimes
-- RFK Jr confirmation
 - Cobra Kai
+- RFK Jr confirmation
 - Clippers
-- Tulsi Gabbard confirmation
 - Ben Christman
 - Elden Ring Nightreign
+- State of Play
+- NASCAR
 - State of Play
 - Tulsi Gabbard
 - Bristol City vs Stoke City
 - Lantern Festival
 - Everton vs Liverpool
+- Celtic vs Bayern
 - Liverpool FC
 - India vs England
-- Celtic vs Bayern
 - NASA asteroid hitting Earth
 - LFC
 - Captain America: Brave New World
 - Elon Musk
 - Havertz
-- Celtic v Bayern Munich
 - Sheffield United
 - Duolingo
 - Elma Love Island
-- Everton fc
 - Sunderland
 - DOGE
+- Marc Fogel
+- Elden Ring Nightreign
 - Everton vs Liverpool
-- Kiss Day
+- Happy Kiss Day
 - Tulsi Gabbard
-- Kiss Day quotes
+- Kiss Day Quotes
 - Women's Day 2025
 - India vs England
 - IND vs ENG
