@@ -30,28 +30,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Medicaid
+- 4 Nations
+- Galentine's Day
 - Tulsi Gabbard
 - Liverpool
 - Captain America: Brave New World
 - Asteroid
 - Joann fabrics stores closing
+- Alex Bregman
 - 4 Nations Face-Off
 - Premier League
 - JCPenney stores closing
 - Android
-- Alex Bregman
 - Inflation
-- Kennedy Center
 - Cobra Kai
+- Kennedy Center
 - RFK Jr confirmation
+- Bulls
 - Clippers
 - Ben Christman
-- Elden Ring Nightreign
-- NASCAR
-- State of Play
-- Matt Patricia
-- Plymouth Argyle
 - Munich
+- John Lithgow
 - Tulsi Gabbard
 - State of Play
 - Premier League games
@@ -70,26 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Havertz
 - Sheffield United
 - Duolingo
-- RCB Captain 2025
 - WPL
+- Kiss Day
 - Premier league
+- Captain America
 - Liverpool
 - Tulsi Gabbard
-- Happy Kiss Day
-- Captain America: Brave New World
 - JPMorgan Chase layoffs
 - Kiss Day 2025
+- Happy Valentine's Day
 - India vs England
 - IND vs ENG
-- Sri Lanka vs Australia
 - ICC
 - Virat Kohli
-- PAK vs SA
+- Cricket
 - Champions Trophy
+- Shab-e-Barat 2025
 - Sports
-- Shab-E-Barat 2025
 - Shreyas Iyer
 - Rohit Sharma
+- KL Rahul
 - epgview
 - best epg
 - epg for iptv
