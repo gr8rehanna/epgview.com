@@ -36,60 +36,60 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Android
 - JCPenney stores closing
 - Asteroid
+- Joann fabrics stores closing
 - Inflation
-- Joann stores closing
 - Kennedy Center
-- Anthony Edwards
 - Grimes
 - Elden Ring Nightreign
 - Ben Christman
 - State of Play
 - Volcano eruption
-- Matt Patricia
 - Bayern Munich
-- Jordan
 - Shakespeare
+- Jordan
 - Gulf of Mexico
+- Marc Fogel
+- Tuna recall
 - State of Play
 - Lantern festival
 - Everton vs Liverpool
 - Celtic vs Bayern
-- Liverpool FC
 - India vs England
 - NASA asteroid hitting Earth
 - Sheffield United vs Middlesbrough
 - Liverpool fixtures
+- Ryanair passenger water bottle charge
 - LFC
 - Captain America: Brave New World
 - Havertz
 - PAK vs SA
 - Duolingo
+- OURA ring
 - Elma Love Island
-- Sri Lanka vs Australia
-- Club Brugge vs Atalanta
 - Android
 - DOGE
 - Sunderland
+- Marc Fogel
 - Everton vs Liverpool
+- Kiss Day
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
 - Sri Lanka vs Australia
-- ICC
 - England vs India
-- Virat Kohli
+- ICC
 - Cricket
-- Champions Trophy
 - Sports
+- Champions Trophy
 - Real Madrid
 - Shab-E-Barat 2025
 - Hardik Pandya
 - KL Rahul
-- ICC Champions Trophy
-- Income tax bill introduced
+- Jasprit Bumrah
+- Income Tax Bill introduced
 - Ranveer Allahbadia news
+- Shaheen Afridi
 - Maghi Purnima 2025
-- क्रिकेट
 - epgview
 - best epg
 - epg for iptv
