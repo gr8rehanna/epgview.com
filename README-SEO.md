@@ -33,9 +33,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tulsi Gabbard
 - Liverpool
 - Captain America: Brave New World
-- 4 Nations Face-Off
 - Asteroid
 - Joann fabrics stores closing
+- 4 Nations Face-Off
 - Premier League
 - JCPenney stores closing
 - Android
@@ -43,22 +43,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Inflation
 - Kennedy Center
 - Cobra Kai
-- Grimes
 - RFK Jr confirmation
 - Clippers
 - Ben Christman
 - Elden Ring Nightreign
 - NASCAR
 - State of Play
+- Matt Patricia
+- Plymouth Argyle
 - Munich
 - Tulsi Gabbard
 - State of Play
 - Premier League games
 - Premier League fixtures
+- Cobra Kai
 - Ukraine
 - Lantern Festival
 - Everton vs Liverpool
 - Celtic vs Bayern
+- Liverpool FC
 - India vs England
 - NASA asteroid hitting Earth
 - LFC
@@ -67,24 +70,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Havertz
 - Sheffield United
 - Duolingo
-- Elma Love Island
-- Elden Ring Nightreign
-- Sunderland
-- Everton vs Liverpool
+- RCB Captain 2025
 - WPL
-- Premier League
-- Kiss Day
+- Premier league
+- Liverpool
 - Tulsi Gabbard
 - Happy Kiss Day
 - Captain America: Brave New World
-- Women's Day 2025
 - JPMorgan Chase layoffs
-- Women's Day
+- Kiss Day 2025
 - India vs England
 - IND vs ENG
-- South Africa vs Pakistan
+- Sri Lanka vs Australia
 - ICC
 - Virat Kohli
+- PAK vs SA
 - Champions Trophy
 - Sports
 - Shab-E-Barat 2025
