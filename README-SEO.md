@@ -38,25 +38,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joann fabrics stores closing
 - Premier League
 - JCPenney stores closing
-- Inflation
+- Android
 - Alex Bregman
+- Inflation
 - Kennedy Center
 - Cobra Kai
+- Grimes
 - RFK Jr confirmation
 - Clippers
 - Ben Christman
 - Elden Ring Nightreign
 - NASCAR
 - State of Play
-- Volcano eruption
-- Bayern Munich
-- Plymouth Argyle
 - Munich
 - Tulsi Gabbard
 - State of Play
+- Premier League games
 - Premier League fixtures
-- John Lithgow
-- Bristol City vs Stoke City
+- Ukraine
 - Lantern Festival
 - Everton vs Liverpool
 - Celtic vs Bayern
@@ -70,24 +69,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Duolingo
 - Elma Love Island
 - Elden Ring Nightreign
+- Sunderland
 - Everton vs Liverpool
-- RCB Captain 2025
 - WPL
 - Premier League
-- Captain America
+- Kiss Day
 - Tulsi Gabbard
 - Happy Kiss Day
+- Captain America: Brave New World
 - Women's Day 2025
+- JPMorgan Chase layoffs
 - Women's Day
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
-- Sri Lanka vs Australia
-- IND vs ENG Live
 - ICC
 - Virat Kohli
+- Champions Trophy
 - Sports
-- Harshit Rana
+- Shab-E-Barat 2025
 - Shreyas Iyer
 - Rohit Sharma
 - epgview
