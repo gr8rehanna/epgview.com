@@ -31,8 +31,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Medicaid
-- 4 Nations
+- Portland Weather
+- Elizabeth Holmes
 - Galentine's Day
+- 4 Nations
 - Tulsi Gabbard
 - Liverpool
 - Captain America: Brave New World
@@ -43,20 +45,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Premier League
 - JCPenney stores closing
 - Android
+- Rfk Jr confirmation
 - Inflation
 - Cobra Kai
 - Kennedy Center
-- RFK Jr confirmation
 - Bulls
-- Clippers
-- Ben Christman
 - Munich
+- Plymouth Argyle
 - John Lithgow
 - Tulsi Gabbard
-- State of Play
-- Premier League games
-- Premier League fixtures
 - Cobra Kai
+- State of Play
+- Premier League fixtures
+- Premier League games
 - Ukraine
 - Lantern Festival
 - Everton vs Liverpool
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Elon Musk
 - Havertz
 - Sheffield United
-- Duolingo
 - WPL
-- Kiss Day
-- Premier league
 - Captain America
 - Liverpool
 - Tulsi Gabbard
 - JPMorgan Chase layoffs
-- Kiss Day 2025
+- Women's Day 2025
+- Manipur
+- Women's Day
 - Happy Valentine's Day
+- Cobra Kai
 - India vs England
 - IND vs ENG
+- Sri Lanka vs Australia
 - ICC
 - Virat Kohli
 - Cricket
 - Champions Trophy
 - Shab-e-Barat 2025
 - Sports
-- Shreyas Iyer
-- Rohit Sharma
-- KL Rahul
+- Harshit Rana
 - epgview
 - best epg
 - epg for iptv
