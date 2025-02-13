@@ -35,24 +35,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Captain America: Brave New World
 - 4 Nations Face-Off
 - Asteroid
-- Premier League
 - Joann fabrics stores closing
+- Premier League
 - JCPenney stores closing
 - Inflation
 - Alex Bregman
-- Kadarius Toney
 - Kennedy Center
-- Warriors vs Mavericks
 - Cobra Kai
 - RFK Jr confirmation
 - Clippers
 - Ben Christman
 - Elden Ring Nightreign
-- State of Play
 - NASCAR
+- State of Play
+- Volcano eruption
+- Bayern Munich
 - Plymouth Argyle
+- Munich
 - Tulsi Gabbard
 - State of Play
+- Premier League fixtures
+- John Lithgow
 - Bristol City vs Stoke City
 - Lantern Festival
 - Everton vs Liverpool
@@ -66,13 +69,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sheffield United
 - Duolingo
 - Elma Love Island
-- Sunderland
 - Elden Ring Nightreign
-- DOGE
-- Marc Fogel
 - Everton vs Liverpool
 - RCB Captain 2025
 - WPL
+- Premier League
+- Captain America
 - Tulsi Gabbard
 - Happy Kiss Day
 - Women's Day 2025
@@ -80,16 +82,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
+- Sri Lanka vs Australia
 - IND vs ENG Live
 - ICC
 - Virat Kohli
 - Sports
-- Shab-E-Barat 2025
 - Harshit Rana
 - Shreyas Iyer
 - Rohit Sharma
-- Champions Trophy
-- ICC Champions Trophy
 - epgview
 - best epg
 - epg for iptv
