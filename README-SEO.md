@@ -40,56 +40,56 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - JCPenney stores closing
 - Inflation
 - Alex Bregman
+- Kadarius Toney
 - Kennedy Center
-- Grimes
+- Warriors vs Mavericks
 - Cobra Kai
-- Rfk Jr confirmation
+- RFK Jr confirmation
 - Clippers
 - Ben Christman
 - Elden Ring Nightreign
 - State of Play
 - NASCAR
-- Volcano eruption
 - Plymouth Argyle
-- State of Play
 - Tulsi Gabbard
+- State of Play
 - Bristol City vs Stoke City
 - Lantern Festival
 - Everton vs Liverpool
 - Celtic vs Bayern
-- Liverpool FC
 - India vs England
 - NASA asteroid hitting Earth
 - LFC
 - Captain America: Brave New World
+- Elon Musk
 - Havertz
 - Sheffield United
 - Duolingo
 - Elma Love Island
 - Sunderland
-- DOGE
 - Elden Ring Nightreign
+- DOGE
 - Marc Fogel
-- Kiss Day
-- Liverpool
+- Everton vs Liverpool
+- RCB Captain 2025
+- WPL
 - Tulsi Gabbard
+- Happy Kiss Day
 - Women's Day 2025
 - Women's Day
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
-- Sri Lanka vs Australia
 - IND vs ENG Live
 - ICC
 - Virat Kohli
 - Sports
 - Shab-E-Barat 2025
+- Harshit Rana
 - Shreyas Iyer
 - Rohit Sharma
 - Champions Trophy
 - ICC Champions Trophy
-- Jasprit Bumrah
-- AUS vs SL
 - epgview
 - best epg
 - epg for iptv
