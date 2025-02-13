@@ -39,17 +39,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Joann fabrics stores closing
 - JCPenney stores closing
 - Inflation
+- Kadarius Toney
 - Alex Bregman
 - Kennedy Center
 - Grimes
 - Rfk Jr confirmation
-- Elden Ring Nightreign
+- Warriors vs Mavericks
 - Ben Christman
+- Elden Ring Nightreign
 - State of Play
 - NASCAR
 - Volcano eruption
-- Bayern Munich
-- Warriors vs Mavericks
 - State of Play
 - Tulsi Gabbard
 - Lantern festival
@@ -61,6 +61,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Liverpool fixtures
 - LFC
 - Captain America: Brave New World
+- Elon Musk
 - Havertz
 - Duolingo
 - Elma Love Island
@@ -69,10 +70,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sunderland
 - Marc Fogel
 - Forest
-- Champions League games
 - Everton vs Liverpool
-- Kiss Day
 - Tulsi Gabbard
+- Happy Kiss Day
 - India vs England
 - IND vs ENG
 - South Africa vs Pakistan
@@ -80,16 +80,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - England vs India
 - ICC
 - Virat Kohli
+- Champions Trophy
 - Sports
 - Real Madrid
 - Shreyas Iyer
 - Rohit Sharma
 - Shab-E-Barat 2025
-- Champions Trophy
-- Hardik Pandya
 - ICC Champions Trophy
-- Jasprit Bumrah
 - Ranveer Allahbadia news
+- Income Tax Bill introduced
+- Hug Day 2025
 - epgview
 - best epg
 - epg for iptv
