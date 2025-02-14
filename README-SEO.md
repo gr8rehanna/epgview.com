@@ -30,11 +30,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Valentine's Day
 - Eagles parade
 - Día de San Valentín
+- Chelsea
 - Chernobyl
-- Heart-shaped pizza
-- Valentines day card
+- Happy Valentine's
+- Kanye and Bianca
+- Valentine's Day card
 - Backstreet Boys
 - Halsey
 - Yellowjackets Season 3
@@ -42,34 +45,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dolly Parton
 - Probationary federal employees
 - Valentine's Day
-- Happy Valentine's Day
-- Cobra Kai
+- Tanner Buchanan
 - Earthquake
 - Aaron Rodgers
-- Europa League
-- Bridget Jones
-- Linda McMahon
 - Kayaker swallowed by whale
+- Europa League
 - Valentine's Day
 - Brighton vs Chelsea
 - Pakistan vs New Zealand
+- The gorge
 - Chernobyl
 - Valentine's
-- The gorge
 - Black Sabbath tickets
+- Chiltern Firehouse
 - Patrick Barclay
 - Suki Waterhouse
 - St. Valentine
-- Chiltern Firehouse
-- Wigan Warriors
 - JD Vance
+- Snow weather forecast
+- Wigan Warriors
 - Valentine's Day 2025
 - Man swallowed by whale
 - Happy Valentine's Day
 - UK rare weather phenomenon freezing rain
 - Europa League
 - Cobra Kai
-- Munich
 - Pakistan vs New Zealand
 - JioHotstar
 - Chhaava
