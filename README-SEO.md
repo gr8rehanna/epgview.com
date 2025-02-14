@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Valentine's
 - Eagles parade
 - Valentine's Day
 - Tanner Buchanan
@@ -38,28 +39,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Galentine's Day
 - Lainey Wilson engaged
 - Jack the Ripper
-- Bridget Jones
 - Warriors vs Rockets
+- Bridget Jones
 - Linda McMahon
 - The Gorge
-- Robert F. Kennedy Jr
 - Aircraft carrier USS Harry Truman
 - Portland Weather
 - Medicaid
-- Munich
 - Thunder vs Timberwolves
+- Munich
 - 4 Nations
 - Paramount channels YouTube TV
 - Valentine's Day
 - Pakistan vs New Zealand
 - Valentine's Day
 - Valentine's
+- Black Sabbath tickets
 - Wigan Warriors
 - Suki Waterhouse
+- Chernobyl
 - The gorge
 - UK rare weather phenomenon freezing rain
-- Happy Valentine's Day
-- Europa League
 - Cobra Kai
 - Munich
 - Tanner Buchanan
@@ -77,19 +77,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy Valentine's Day, my love!
 - Chhaava
 - Elon Musk
-- New India Co-operative Bank
 - Laila Movie Review
+- New India Co-operative Bank
+- Dhoom Dhaam
 - Modi Trump Meeting
 - Tahawwur Rana
 - Honda NX200
-- Valentine's Day gift
-- Chhaava Review
 - Reciprocal tariffs
 - Women's Premier League
-- Pulwama Attack
 - Captain America
-- JPMorgan Chase layoffs
+- Pulwama Attack
 - Manipur
+- JPMorgan Chase layoffs
+- NATCO Pharma Share
 - epgview
 - best epg
 - epg for iptv
