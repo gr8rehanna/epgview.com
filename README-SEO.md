@@ -30,36 +30,37 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Valentine's
 - Eagles parade
 - Día de San Valentín
-- Halsey
-- Valentines day card
 - Chernobyl
+- Valentines day card
+- Halsey
+- Happy Valentine's
 - Valentine's Day
+- Happy Valentine's Day
 - Tanner Buchanan
 - Earthquake
 - Aaron Rodgers
-- USA vs Finland
-- Galentine's Day
 - Lainey Wilson engaged
 - Warriors vs Rockets
 - Bridget Jones
+- USA vs Finland
 - Linda McMahon
+- Galentine's Day
+- The Gorge
 - Aircraft carrier USS Harry Truman
-- Genesis Invitational
-- Portland Weather
-- Medicaid
+- Renee Zellweger
 - Valentine's Day
 - Pakistan vs New Zealand
+- Valentine's Day
 - Valentine's
-- Happy Valentine's Day
 - Black Sabbath tickets
 - Chernobyl
 - The gorge
 - Suki Waterhouse
-- Wigan Warriors
 - Patrick Barclay
+- Wigan Warriors
+- St. Valentine
 - Valentine's Day 2025
 - Leo Woodall
 - Happy Valentine's Day
@@ -68,28 +69,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Cobra Kai
 - Munich
 - Tanner Buchanan
-- Bridget Jones: Mad About The Boy
-- Plymouth Argyle
+- Bridget Jones: Mad About the Boy
 - Pakistan vs New Zealand
-- Valentine's Day
 - Zimbabwe vs Ireland
 - JioHotstar
+- Happy Valentine's Day, my love!
+- Chhaava
 - IPL
-- Elon Musk
 - New India Co-operative Bank
+- Elon Musk
 - Laila Movie Review
 - Tahawwur Rana
 - Modi Trump Meeting
+- Kane Williamson
 - Honda NX200
-- Chhaava review
 - Reciprocal tariffs
 - Women's Premier League
-- Happy Valentine's Day
+- Valentine's Day
 - Captain America
 - Pulwama Attack
 - Manipur
 - Astronauts Sunita Williams
-- NATCO Pharma Share
 - epgview
 - best epg
 - epg for iptv
