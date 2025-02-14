@@ -38,45 +38,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy Valentine's
 - Kanye and Bianca
 - Valentine's Day card
-- Backstreet Boys
 - Halsey
+- Backstreet Boys
 - Yellowjackets Season 3
 - CUPID
 - Dolly Parton
 - Probationary federal employees
 - Valentine's Day
-- Tanner Buchanan
+- Emil Bove
+- Cobra Kai
 - Earthquake
 - Aaron Rodgers
 - Kayaker swallowed by whale
-- Europa League
 - Valentine's Day
 - Brighton vs Chelsea
 - Pakistan vs New Zealand
-- The gorge
+- The Gorge
 - Chernobyl
 - Valentine's
-- Black Sabbath tickets
 - Chiltern Firehouse
+- Black Sabbath tickets
+- Happy Valentine's Day
 - Patrick Barclay
 - Suki Waterhouse
-- St. Valentine
-- JD Vance
 - Snow weather forecast
+- JD Vance
+- St. Valentine
+- Heart Eyes
+- QPR
 - Wigan Warriors
+- Chelsea FC
 - Valentine's Day 2025
 - Man swallowed by whale
-- Happy Valentine's Day
-- UK rare weather phenomenon freezing rain
-- Europa League
-- Cobra Kai
+- Chelsea
 - Pakistan vs New Zealand
 - JioHotstar
 - Chhaava
 - IPL
 - New India Co-operative Bank
 - Smriti Mandhana
-- Babar Azam
 - Elon Musk
 - Laila Movie Review
 - Tahawwur Rana
@@ -85,11 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Women's Premier League
 - Valentine's Day
 - Captain America
-- Pulwama Attack
-- Premier League
 - Astronauts Sunita Williams
 - Manipur
-- Natco Pharma share
+- NATCO Pharma share
+- Nirmala Sitharaman Income Tax Bill
+- Hotstar
 - epgview
 - best epg
 - epg for iptv
