@@ -30,6 +30,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Valentine's Day
 - Tanner Buchanan
 - Earthquake
 - Devlin Hodges
@@ -37,19 +38,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy Valentine's Day
 - Galentine's Day
 - Linda McMahon
+- Bridget Jones
 - Warriors vs Rockets
 - Genesis Invitational
-- Portland Weather
 - The Gorge
-- USA vs Finland
+- Portland Weather
 - Medicaid
-- Elizabeth Holmes
-- Munich
 - Aircraft carrier USS Harry Truman
-- Bridget Jones: Mad About the Boy
+- Munich
 - Paramount channels YouTube TV
-- Happy Valentine's Day
+- Rfk Jr
 - Captain America: Brave New World
+- Tulsi Gabbard
 - Valentine's Day
 - Wigan Warriors
 - Europa League
@@ -58,38 +58,38 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Dig
 - Munich
 - Plymouth Argyle
-- Bridget Jones: Mad About the Boy
 - Tanner Buchanan
+- Bridget Jones: Mad About the Boy
 - John Lithgow
-- When is Pancake Day
 - My Fault: London
-- Ring doorbell
 - Happy Valentine's Day
+- Ring doorbell
 - Tulsi Gabbard
-- Al Nassr
 - Shab-e-Barat
 - State of Play
 - Premier League fixtures
+- Premier League games
+- Rugby 25
 - Happy Valentine's Day, my love!
 - Chhaava
 - Modi Trump Meeting
 - Women's Premier League
 - Valentine's Day
+- Pulwama Attack
 - Captain America
 - Tulsi Gabbard
 - JPMorgan Chase layoffs
 - Manipur
 - Women's Day
-- National Women's Day
 - ONGC
 - Today Wordle hints
 - Hotstar
 - ICC
 - Virat Kohli
+- Live Score
 - Sports
 - Shab-E-Barat 2025
 - Shreyas Iyer
-- KL Rahul
 - epgview
 - best epg
 - epg for iptv
