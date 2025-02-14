@@ -30,39 +30,39 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Valentine's Day
 - Eagles parade
-- Valentine's
 - Día de San Valentín
 - Chernobyl
+- Heart-shaped pizza
+- Kanye and Bianca
+- Backstreet Boys
 - Valentines day card
 - Happy Valentine's
-- Halsey
 - St. Valentine
-- Yellowjackets Season 3
+- Halsey
+- Yellowjackets season 3
 - Valentine's Day
 - Tanner Buchanan
 - Earthquake
 - Aaron Rodgers
+- Happy Valentine's Day
 - Kayaker swallowed by whale
 - Europa League
 - Warriors vs Rockets
-- Bridget Jones
-- USA vs Finland
-- Linda McMahon
-- Galentine's Day
 - Valentine's Day
 - Pakistan vs New Zealand
 - Valentine's
 - Black Sabbath tickets
-- Chernobyl
 - The gorge
+- Chernobyl
 - Suki Waterhouse
 - Patrick Barclay
 - Wigan Warriors
 - St. Valentine
+- Match for Hope
 - Valentine's Day 2025
-- Leo Woodall
-- Man swallowed by whale
+- Kayaker swallowed by whale
 - Happy Valentine's Day
 - UK rare weather phenomenon freezing rain
 - Europa League
@@ -71,11 +71,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tanner Buchanan
 - Bridget Jones: Mad About the Boy
 - Pakistan vs New Zealand
+- Zimbabwe vs Ireland
 - JioHotstar
-- Valentine's Day wishes
 - Chhaava
+- Happy Valentine's Day wishes quotes
 - IPL
 - New India Co-operative Bank
+- Babar Azam
 - Elon Musk
 - Laila Movie Review
 - Kane Williamson
@@ -87,9 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Valentine's Day
 - Captain America
 - Pulwama Attack
-- Manipur
 - Astronauts Sunita Williams
-- Natco Pharma share
 - epgview
 - best epg
 - epg for iptv
