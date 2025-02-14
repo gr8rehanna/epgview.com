@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Earthquake
 - Tanner Buchanan
+- Earthquake
 - Devlin Hodges
 - Aaron Rodgers
 - Galentine's Day
-- Europa League
 - Happy Valentine's Day
 - Linda McMahon
 - Bridget Jones
 - Genesis Invitational
-- Portland Weather
-- Robert F. Kennedy Jr
-- Medicaid
 - Warriors vs Rockets
+- Portland Weather
+- Medicaid
+- Elizabeth Holmes
+- The Gorge
 - Munich
+- USA Hockey
 - Paramount channels YouTube TV
-- Rfk Jr
 - Captain America: Brave New World
 - Tulsi Gabbard
-- Asteroid
+- Rfk
 - Valentine's Day
 - Wigan Warriors
 - Europa League
@@ -68,35 +68,5 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tulsi Gabbard
 - Al Nassr
 - Real Betis
-- State of Play
 - Shab-e-Barat
-- Happy Valentine's Day, my love!
-- Chhaava
-- 14 February
-- Women's Premier League
-- Valentine's Day
-- Premier League
-- Captain America
-- Tulsi Gabbard
-- JPMorgan Chase layoffs
-- Manipur
-- Women's Day
-- National Women's Day
-- ONGC
-- Hotstar
-- ICC
-- Virat Kohli
-- Shab-E-Barat 2025
-- Sports
-- IND vs ENG ODI
-- Shreyas Iyer
-- epgview
-- best epg
-- epg for iptv
-- cheap epg service
-- best epg for iptv
-- epg service
-- best epg service
-- cheap epg for iptv
-- epg service
-- best epg service
+- State of Play
