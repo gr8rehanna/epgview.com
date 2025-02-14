@@ -36,48 +36,51 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Devlin Hodges
 - Aaron Rodgers
 - Bridget Jones
-- USA vs Finland
+- Linda McMahon
+- Warriors vs Rockets
 - Galentine's Day
+- Genesis Invitational
 - The Gorge
+- Robert F. Kennedy Jr
 - Aircraft carrier USS Harry Truman
 - Portland Weather
 - Medicaid
+- Galentine's
 - Munich
+- Thunder vs Timberwolves
 - Paramount channels YouTube TV
-- Reddit stock
-- Captain America: Brave New World
-- Rfk
-- Tulsi Gabbard
-- Cobra Kai
-- Asteroid
+- Rfk Jr
 - Valentine's Day
 - Valentine's
 - Wigan Warriors
 - UK rare weather phenomenon freezing rain
 - Europa League
-- Cobra Kai
 - Happy Valentine's Day
+- Cobra Kai
 - Munich
 - Tanner Buchanan
-- Plymouth Argyle
 - Bridget Jones: Mad About the Boy
+- Plymouth Argyle
 - Live Nation
-- John Lithgow
 - My Fault: London
+- John Lithgow
 - Ring doorbell
 - Real Betis
 - Tulsi Gabbard
 - State of Play
 - Premier League fixtures
-- Rugby 25
-- Happy Valentine's Day, my love!
+- Premier League games
+- Pakistan vs New Zealand
 - Zimbabwe vs Ireland
+- Happy Valentine's Day, my love!
 - JioHotstar
 - Chhaava
 - Elon Musk
 - New India Co-operative Bank
 - Modi Trump Meeting
+- Dhoom Dhaam
 - Tahawwur Rana
+- Laila Movie Review
 - Honda NX200
 - Women's Premier League
 - Valentine's Day
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - JPMorgan Chase layoffs
 - Manipur
 - NATCO Pharma share
-- Women's Day
-- ONGC
-- Today Wordle hints
 - epgview
 - best epg
 - epg for iptv
