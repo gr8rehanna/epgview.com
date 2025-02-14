@@ -30,20 +30,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Tanner Buchanan
 - Earthquake
+- Tanner Buchanan
 - Devlin Hodges
 - Aaron Rodgers
 - Galentine's Day
+- Europa League
 - Happy Valentine's Day
 - Linda McMahon
+- Bridget Jones
 - Genesis Invitational
 - Portland Weather
-- Medicaid
-- Elizabeth Holmes
-- Bridget Jones
 - Robert F. Kennedy Jr
-- Markelle Fultz
+- Medicaid
+- Warriors vs Rockets
 - Munich
 - Paramount channels YouTube TV
 - Rfk Jr
@@ -59,6 +59,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Munich
 - Plymouth Argyle
 - Bridget Jones: Mad About the Boy
+- Tanner Buchanan
 - John Lithgow
 - When is Pancake Day
 - My Fault: London
@@ -66,7 +67,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Happy Valentine's Day
 - Tulsi Gabbard
 - Al Nassr
-- Tanner Buchanan
 - Real Betis
 - State of Play
 - Shab-e-Barat
@@ -81,7 +81,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - JPMorgan Chase layoffs
 - Manipur
 - Women's Day
-- Cobra Kai
+- National Women's Day
+- ONGC
 - Hotstar
 - ICC
 - Virat Kohli
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Sports
 - IND vs ENG ODI
 - Shreyas Iyer
-- ICC Champions Trophy
 - epgview
 - best epg
 - epg for iptv
