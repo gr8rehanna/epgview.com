@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Eagles parade
 - Valentine's Day
 - Tanner Buchanan
 - Earthquake
 - Aaron Rodgers
-- Lainey Wilson engaged
-- Bridget Jones
-- Linda McMahon
-- Warriors vs Rockets
-- USA vs Finland
 - Galentine's Day
-- Genesis Invitational
+- Lainey Wilson engaged
+- Jack the Ripper
+- Bridget Jones
+- Warriors vs Rockets
+- Linda McMahon
 - The Gorge
 - Robert F. Kennedy Jr
 - Aircraft carrier USS Harry Truman
 - Portland Weather
 - Medicaid
-- Galentine's
 - Munich
 - Thunder vs Timberwolves
+- 4 Nations
 - Paramount channels YouTube TV
 - Valentine's Day
+- Pakistan vs New Zealand
 - Valentine's Day
 - Valentine's
-- Pakistan vs New Zealand
 - Wigan Warriors
+- Suki Waterhouse
+- The gorge
 - UK rare weather phenomenon freezing rain
+- Happy Valentine's Day
 - Europa League
 - Cobra Kai
 - Munich
 - Tanner Buchanan
-- Bridget Jones: Mad About the Boy
+- Bridget Jones: Mad About The Boy
 - Plymouth Argyle
 - Live Nation
 - My Fault: London
 - John Lithgow
 - Ring doorbell
 - Jack the Ripper
-- Real Betis
-- Tulsi Gabbard
-- State of Play
+- Pakistan vs New Zealand
+- Valentine's Day
 - Zimbabwe vs Ireland
 - JioHotstar
-- Happy Valentine's Day wishes quotes
+- Happy Valentine's Day, my love!
 - Chhaava
-- Modi Trump Meeting
 - Elon Musk
 - New India Co-operative Bank
-- Dhoom Dhaam
 - Laila Movie Review
+- Modi Trump Meeting
+- Tahawwur Rana
 - Honda NX200
 - Valentine's Day gift
+- Chhaava Review
 - Reciprocal tariffs
 - Women's Premier League
-- Valentine's Day
 - Pulwama Attack
 - Captain America
 - JPMorgan Chase layoffs
 - Manipur
-- NATCO Pharma share
-- Women's Day
 - epgview
 - best epg
 - epg for iptv
