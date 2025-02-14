@@ -31,65 +31,65 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Valentine's Day
-- Tanner Buchanan
 - Earthquake
-- Happy Valentine's Day
 - Devlin Hodges
 - Aaron Rodgers
-- Galentine's Day
 - Bridget Jones
-- Linda McMahon
 - Warriors vs Rockets
+- Galentine's Day
 - Genesis Invitational
-- Robert F. Kennedy Jr
 - The Gorge
 - Portland Weather
-- Medicaid
 - Aircraft carrier USS Harry Truman
+- Medicaid
 - Munich
-- Renee Zellweger
 - Paramount channels YouTube TV
 - Captain America: Brave New World
+- Rfk
+- Tulsi Gabbard
+- Asteroid
+- Cobra Kai
+- Joann fabrics stores closing
 - Valentine's Day
+- Valentine's
 - Wigan Warriors
 - Europa League
 - UK rare weather phenomenon freezing rain
 - Cobra Kai
-- Dig
 - Munich
+- Happy Valentine's Day
 - Tanner Buchanan
 - Plymouth Argyle
 - Bridget Jones: Mad About the Boy
-- Happy Valentine's Day
+- Live Nation
 - John Lithgow
 - My Fault: London
 - Ring doorbell
-- Tulsi Gabbard
 - Real Betis
+- Tulsi Gabbard
 - State of Play
 - Premier League fixtures
-- Premier League games
 - Rugby 25
 - Happy Valentine's Day, my love!
-- JioHotstar
+- Zimbabwe vs Ireland
 - Chhaava
 - Elon Musk
-- Modi Trump Meeting
+- Modi Trump meeting
 - New India Co-operative Bank
 - Honda NX200
+- Tahawwur Rana
 - Women's Premier League
 - Valentine's Day
 - Captain America
+- Rajat Patidar
 - Tulsi Gabbard
 - JPMorgan Chase layoffs
 - Manipur
+- NATCO Pharma share
 - Women's Day
-- Cobra Kai
 - ONGC
 - Today Wordle hints
-- ICC
-- Virat Kohli
-- Sports
+- Hotstar
 - epgview
 - best epg
 - epg for iptv
