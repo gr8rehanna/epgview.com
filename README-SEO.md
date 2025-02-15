@@ -31,25 +31,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Día de San Valentín
+- Valentine's Day
 - Eagles parade
 - NBA All-Star 2025
 - Yellowjackets
 - Brighton vs Chelsea
-- Celebrity All-Star game
+- Celebrity All-Star Game
 - Orlando City  Inter Miami
+- SNL50
 - Chernobyl
+- Love Is Blind Season 8
 - Backstreet Boys
 - St. Valentine
-- SNL50
 - JD Vance
-- Dolly Parton
 - Keyshawn Davis
-- Inter Miami
+- Dolly Parton
 - Rising Stars game
 - CHER
 - Saint Valentine
 - Pope Francis
-- Howie Roseman
 - Stephen Graham
 - Valentine's Day
 - Brighton vs Chelsea
@@ -57,22 +57,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chiltern Firehouse
 - Pakistan vs New Zealand
 - Chernobyl
-- Bridget Jones Diary
+- Valentine's Day
 - Valentine's
 - Black Sabbath tickets
 - JD Vance
+- Happy Valentine's Day
 - Patrick Barclay
 - Suki Waterhouse
 - QPR
 - Chelsea FC
 - St. Valentine
+- Hugh Grant
 - Wigan Warriors
 - Beyonce tickets
-- Valentine's Day 2025
-- Man swallowed by whale
 - Chhaava film box office collection
 - Chelsea
 - Inter Miami
+- The gorge
 - Pakistan vs New Zealand
 - JioHotstar
 - IPL
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Nirmala Sitharaman Income Tax Bill
 - ONGC
 - Hotstar
-- ICC
 - epgview
 - best epg
 - epg for iptv
