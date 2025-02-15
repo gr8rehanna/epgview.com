@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- NBA All-Star Weekend
 - Día de San Valentín
 - Eagles parade
+- Valentine's Day
+- NBA All-Star 2025
 - Yellowjackets
 - Brighton vs Chelsea
-- Valentine's Day
 - Celebrity All-Star game
 - SNL50
 - Chernobyl
-- Love Is Blind Season 8
 - Backstreet Boys
-- UCLA basketball
 - St. Valentine
 - Keyshawn Davis
-- Happy Valentine's
 - JD Vance
+- Happy Valentine's
 - Orlando City  Inter Miami
-- Dolly Parton
 - Inter Miami
 - CHER
+- Rising Stars game 2025
+- Pope Francis
+- Saint Valentine
 - Stephen Graham
 - Valentine's Day
 - Brighton vs Chelsea
@@ -71,6 +71,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Valentine's Day 2025
 - Man swallowed by whale
 - Chhaava film box office collection
+- Prateik Babbar
 - Chelsea
 - Inter Miami
 - The gorge
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manipur
 - Nirmala Sitharaman Income Tax Bill
 - ONGC
-- Hotstar
 - epgview
 - best epg
 - epg for iptv
