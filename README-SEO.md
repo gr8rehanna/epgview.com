@@ -31,33 +31,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Eagles parade
+- NBA All-Star Weekend
 - Día de San Valentín
 - Valentine's Day
-- Chelsea
-- NBA All-Star Weekend
+- Brighton vs Chelsea
+- Heart-shaped pizza
 - Chernobyl
-- St. Valentine
 - Yellowjackets Season 3
-- Valentine's Day card
+- St. Valentine
 - Backstreet Boys
+- Valentines day card
 - Dolly Parton
-- CUPID
+- Celebrity All-Star Game
+- Saint Valentine
 - Probationary federal employees
-- JuJu Watkins
+- Pope Francis
 - Valentine's Day
-- Happy Valentine's Day
 - Emil Bove
-- Aaron Rodgers
+- Happy Valentine's Day
 - Kayaker swallowed by whale
-- Earthquake
 - Stephen Graham
 - Valentine's Day
 - Brighton vs Chelsea
 - Pakistan vs New Zealand
 - The gorge
-- Chernobyl
-- Chiltern Firehouse
 - Valentine's Day
+- Chiltern Firehouse
+- Chernobyl
 - Valentine's
 - Black Sabbath tickets
 - Patrick Barclay
@@ -65,23 +65,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bridget Jones Diary
 - Suki Waterhouse
 - QPR
+- Heart Eyes
 - Chelsea FC
 - St. Valentine
 - Hugh Grant
 - Wigan Warriors
-- Beyonce tickets
+- Live Score
 - Brighton vs Chelsea
 - Pakistan vs New Zealand
 - Valentine's Day
+- Hotstar
 - JioHotstar
 - Chhaava
 - IPL
 - New India Co-operative Bank
 - Elon Musk
-- Tahawwur Rana
-- Modi Trump meeting
-- NASA astronaut Sunita Williams
 - CCL
+- Tahawwur Rana
+- Modi Trump Meeting
 - Reciprocal tariffs
 - Women's Premier League
 - Happy Valentine's Day
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pulwama Attack
 - Manipur
 - NATCO Pharma share
-- Nirmala Sitharaman Income Tax Bill
 - epgview
 - best epg
 - epg for iptv
