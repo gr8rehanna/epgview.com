@@ -32,27 +32,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Día de San Valentín
 - Eagles parade
+- NBA All-Star 2025
 - Yellowjackets
 - Brighton vs Chelsea
-- Celebrity All-Star game
-- Rising Stars game
+- Celebrity All-Star Game
 - Chernobyl
 - SNL50
-- Backstreet Boys
 - Keyshawn Davis
 - St. Valentine
 - JD Vance
 - Orlando City  Inter Miami
 - Happy Valentine's
 - Inter Miami
-- Cher
+- Rising Stars game 2025
 - Valentine's Day card
 - Pope Francis
 - Cupid
-- Love Is Blind
+- Howie Roseman
+- Bridgerton Season 4
 - Premier League
+- Leicester City vs Arsenal
 - Gracie Abrams
 - Stephen Graham
+- Epl
 - Danielle Lloyd
 - Premier League games
 - Valentine's Day
@@ -66,30 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Black Sabbath tickets
 - Patrick Barclay
 - QPR
-- Suki Waterhouse
 - Chelsea FC
 - St. Valentine
-- Wigan Warriors
+- WPL
+- Chhaava film box office collection
+- Premier League
 - Chelsea
-- CBSE Class 10 board exam
+- Prateik Babbar
 - Pakistan vs New Zealand
-- RCB vs GG
 - Valentine's Day
-- Chhaava
+- Richa Ghosh
 - JioHotstar
 - IPL
 - New India Co-operative Bank
 - Babar Azam
 - Elon Musk
+- 14 February
 - Tahawwur Rana
 - Modi Trump meeting
-- New India Co-operative Bank RBI
+- New India Cooperative Bank RBI
 - Reciprocal tariffs
 - Women's Premier League
 - Happy Valentine's Day
-- Captain America
-- Manipur
-- ONGC
 - epgview
 - best epg
 - epg for iptv
