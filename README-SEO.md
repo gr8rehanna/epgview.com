@@ -37,19 +37,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brighton vs Chelsea
 - Valentine's Day
 - Celebrity All-Star game
-- Orlando City  Inter Miami
 - SNL50
 - Chernobyl
 - Love Is Blind Season 8
 - Backstreet Boys
+- UCLA basketball
 - St. Valentine
+- Keyshawn Davis
 - Happy Valentine's
 - JD Vance
-- Keyshawn Davis
+- Orlando City  Inter Miami
 - Dolly Parton
 - Inter Miami
 - CHER
-- Rising Stars game 2025
 - Stephen Graham
 - Valentine's Day
 - Brighton vs Chelsea
@@ -59,8 +59,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chernobyl
 - Valentine's Day
 - Valentine's
-- Black Sabbath tickets
 - JD Vance
+- Black Sabbath tickets
 - Patrick Barclay
 - QPR
 - Suki Waterhouse
@@ -75,16 +75,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Inter Miami
 - The gorge
 - Pakistan vs New Zealand
+- Valentine's Day
 - JioHotstar
 - IPL
-- New India Cooperative Bank
+- New India Co-operative Bank
 - Elon Musk
-- 14 February
 - Tahawwur Rana
 - Modi Trump meeting
 - Reciprocal tariffs
 - Women's Premier League
-- Valentine's Day
+- Happy Valentine's Day
 - Captain America
 - Manipur
 - Nirmala Sitharaman Income Tax Bill
