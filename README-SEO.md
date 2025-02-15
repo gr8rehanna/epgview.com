@@ -31,53 +31,53 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Premier League
-- Osasuna  Real Madrid
 - Man City vs Newcastle
 - Osasuna vs Real Madrid
 - Earthquake Los Angeles
+- Atletico Madrid
 - SNL 50
 - Día de San Valentín
 - Valentine's Day
 - Eagles parade
 - Yellowjackets
-- NBA All-Star 2025
+- NBA All-Star Weekend
 - Kayaker swallowed by whale
 - Celebrity All-Star Game
 - Orlando City  Inter Miami
 - Rising Stars game
-- Love Is Blind season 8
 - Chernobyl
 - Chelsea
 - Keyshawn Davis
-- UCLA basketball
+- St. Valentine
+- JD Vance
 - Premier League
 - Man City vs Newcastle
 - Aston Villa
+- Crystal Palace vs Everton
 - West Ham
 - Fulham vs nottm Forest
 - Real Madrid
-- Epl
 - Osasuna vs Real Madrid
+- Epl
 - Gracie Abrams
-- Crystal Palace vs Everton
 - Stephen Graham
+- BT email outages
 - Danielle Lloyd
+- Leverkusen vs Bayern
 - Knockholt
 - Cardiff City
-- Cardiff City vs Bristol City
-- Crystal Palace
-- Blackburn Rovers
 - Caroline Flack
-- BT email Down
-- Valentine's Day
+- Cardiff City vs Bristol City
+- Blackburn Rovers
+- Amad Diallo
 - Man City vs Newcastle
 - Premier League
 - Chhaava film box office collection
 - Real Madrid
+- Kerala Blasters
 - Prateik Babbar
+- ISPL
 - Arsenal
-- Max
-- CBSE Class 10 board exam
 - MS Dhoni
 - Pakistan vs New Zealand
 - WPL
