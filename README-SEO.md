@@ -30,30 +30,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Alabama basketball
+- USA vs Canada Hockey
+- Mac McClung
 - Premier League
-- USA vs Canada hockey
 - Man City vs Newcastle
+- Alabama vs Auburn basketball
 - Arsenal
 - Earthquake
-- 3-Point Contest 2025
+- 3-point contest 2025
+- Jared Cannonier
 - Purdue basketball
-- Gregory Rodrigues
 - Arkansas basketball
+- Matas Buzelis
 - Nirvana
-- Kid Rock
-- Bayern Munich
 - Biff Wiff
-- Mac McClung
+- Bayern Munich
+- Kid Rock
+- NBA All-Star weekend
 - SNL50
-- NBA All-Star 2025
 - Día de San Valentín
-- Valentine's Day
 - Eagles parade
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
-- Marti Pellow
+- Masked Singer 2025
 - Aston Villa
 - Crystal Palace vs Everton
 - West Ham
@@ -61,23 +61,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Osasuna vs Real Madrid
 - Bayern Munich
+- Elon Musk children
 - Epl
 - Gracie Abrams
 - Stephen Graham
-- BT email outages
 - Jack Catterall
 - Caroline Flack
 - Danielle Lloyd
 - Knockholt
 - Amad Diallo
-- New Delhi Railway Station Stampede
-- WPL
+- New Delhi Railway Station
+- Fire
+- Bayern Munich
 - Man City vs Newcastle
 - Premier League
 - Real Madrid
-- Chhaava film box office collection
+- Chhaava Box Office Collection Day
 - Arsenal
 - CBSE Class 10 board exam
+- Pakistan vs New Zealand
+- WPL
 - Valentine's Day
 - IPL
 - New India Cooperative Bank
@@ -87,9 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manipur
 - ONGC
 - Hotstar
-- ICC
-- Virat Kohli
-- Sports
 - epgview
 - best epg
 - epg for iptv
