@@ -30,47 +30,47 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Daytona 500
 - USA vs Canada hockey
 - Mac McClung
 - Premier League
 - 3-Point Contest 2025
 - Alabama vs Auburn basketball
-- Earthquake
 - Man City vs Newcastle
 - Arsenal
-- Purdue basketball
-- NBA All-Star
-- UConn basketball
 - Biff Wiff
+- UConn basketball
 - Matthew Tkachuk
 - Gregory Rodrigues
-- Hockey
 - Daytona 500 start time
+- Hockey
 - Sheryl Crow
 - SNL50
 - Valentine's Day
+- Eagles parade
+- Orlando City  Inter Miami
+- Love Is Blind Season 8
+- Chernobyl
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
-- Masked Singer 2025
 - Aston Villa
 - Crystal Palace vs Everton
 - West Ham vs Brentford
-- Fulham vs nottm Forest
 - Real Madrid
-- Bayern Munich
 - Elon Musk children
-- Epl
-- Gracie Abrams
 - Stephen Graham
 - Jack Catterall
+- Nottingham Forest
+- Masked Singer 2025
+- Bayern Munich
 - Michael Ball
 - Caroline Flack
 - Danielle Lloyd
 - Amad Diallo
 - Knockholt
-- New Delhi Railway Station
+- Cardiff City
+- Cardiff City vs Bristol City
+- New Delhi Railway Station Stampede
 - WPL
 - Premier League
 - Real Madrid
