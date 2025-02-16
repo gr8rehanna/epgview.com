@@ -30,30 +30,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Liverpool vs Wolves
 - USA vs Canada hockey
 - Mac McClung
 - Premier League
 - Daytona 500
-- 3-Point Contest 2025
 - Alabama vs Auburn basketball
+- 3-Point Contest 2025
 - Earthquake
-- Man City vs Newcastle
 - Arsenal
-- NBA All-Star
+- All-Star Game
 - Jared Cannonier
 - Biff Wiff
+- UConn basketball
 - Sheryl Crow
-- SNL50
+- SNL 50
 - Valentine's Day
 - Eagles parade
-- Orlando City  Inter Miami
 - Chernobyl
 - Keyshawn Davis
 - JD Vance
 - Michael O'Sullivan
+- Wireless
+- BAFTAs 2025
 - Premier League
 - Leicester City vs Arsenal
 - Man City vs Newcastle
+- Masked Singer 2025
 - Aston Villa
 - Crystal Palace vs Everton
 - West Ham vs Brentford
@@ -61,15 +64,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Stephen Graham
 - Jack Catterall
 - Nottingham Forest
-- Masked Singer 2025
 - Bayern Munich
 - Michael Ball
 - Caroline Flack
 - Amad Diallo
 - Danielle Lloyd
 - Knockholt
-- Cardiff City
-- Cardiff City vs Bristol City
 - IPL 2025 Schedule
 - New Delhi Railway Station Stampede
 - Liverpool vs Wolves
@@ -77,9 +77,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - WPL
 - Premier League
 - Real Madrid
-- Chhaava Box Office Collection Day
+- Chhaava Box Office collection day
 - Prateik Babbar
-- Ms Dhoni
+- MS Dhoni
 - Pakistan vs New Zealand
 - Valentine's Day
 - IPL
