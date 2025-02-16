@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - USA vs Canada hockey
 - Mac McClung
 - Premier League
+- Daytona 500
 - 3-Point Contest 2025
 - Alabama vs Auburn basketball
+- Earthquake
 - Man City vs Newcastle
 - Arsenal
+- Purdue basketball
+- NBA All-Star
+- Jared Cannonier
 - Biff Wiff
 - UConn basketball
-- Matthew Tkachuk
-- Gregory Rodrigues
-- Daytona 500 start time
 - Hockey
 - Sheryl Crow
 - SNL50
 - Valentine's Day
 - Eagles parade
 - Orlando City  Inter Miami
-- Love Is Blind Season 8
-- Chernobyl
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
@@ -58,6 +58,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - West Ham vs Brentford
 - Real Madrid
 - Elon Musk children
+- Epl
 - Stephen Graham
 - Jack Catterall
 - Nottingham Forest
@@ -69,8 +70,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Amad Diallo
 - Knockholt
 - Cardiff City
-- Cardiff City vs Bristol City
-- New Delhi Railway Station Stampede
+- New Delhi Railway Station
+- Fire
 - WPL
 - Premier League
 - Real Madrid
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hotstar
 - ICC
 - Virat Kohli
-- Sports
 - epgview
 - best epg
 - epg for iptv
