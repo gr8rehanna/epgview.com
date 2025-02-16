@@ -32,48 +32,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Tottenham vs Man United
 - Liverpool vs Wolves
+- Michigan basketball
+- Justin Tucker
+- Connor McDavid
 - USA vs Canada hockey
-- Mac McClung
 - Daytona 500
+- Mac McClung
 - Premier League
-- 3-Point Contest 2025
 - Alabama vs Auburn basketball
+- Earthquake
+- UConn women's basketball
 - Arsenal
 - Purdue basketball
 - Hockey
 - Biff Wiff
-- UConn basketball
 - Sheryl Crow
-- SNL 50th anniversary
+- SNL 50th Anniversary
 - Valentine's Day
 - Eagles parade
-- Chernobyl
-- JD Vance
-- Inter Miami
 - BAFTAs 2025
 - Everton
 - Michael O'Sullivan
-- Lunar eclipse
 - Wireless
+- Lunar eclipse
+- Kneecap
 - Gmail users red alert
 - Michael Ball
 - Arsenal Women
+- Take That
+- WSL
 - Premier League
 - Leicester City vs Arsenal
 - Liverpool vs Wolves
 - Man City vs Newcastle
+- Aston Villa
 - Crystal Palace vs Everton
 - West Ham vs Brentford
-- Aston Villa vs Ipswich Town
-- Aston Villa
 - Real Madrid
-- Epl
 - Timothee Chalamet
-- Stephen Graham
-- IPL 2025 schedule
 - Tottenham vs Man United
 - New Delhi Railway Station Stampede
 - Warriorz vs Giants
+- IPL Schedule 2025
 - Fire
 - WPL
 - Premier League
