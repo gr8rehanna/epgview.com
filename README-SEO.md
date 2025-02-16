@@ -30,57 +30,54 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Manchester United
+- Tottenham vs Man United
 - Liverpool vs Wolves
 - USA vs Canada hockey
 - Mac McClung
 - Daytona 500
 - Premier League
-- Tornado Warning
 - 3-Point Contest 2025
 - Alabama vs Auburn basketball
 - Earthquake
 - Arsenal
 - Purdue basketball
+- Hockey
 - Biff Wiff
 - UConn basketball
 - Sheryl Crow
-- Clemson Basketball
-- SNL' 50th anniversary
+- SNL 50th anniversary
 - Valentine's Day
 - Eagles parade
 - Chernobyl
+- JD Vance
 - Tottenham vs Man United
 - Everton
 - Michael O'Sullivan
 - Lunar eclipse
 - Wireless
 - Baftas 2025
+- Michael Ball
+- Arsenal Women
 - Premier League
 - Leicester City vs Arsenal
 - Man City vs Newcastle
 - Aston Villa
 - Crystal Palace vs Everton
+- West Ham vs Brentford
 - Real Madrid
-- West Ham
+- Epl
+- Timothee Chalamet
 - Stephen Graham
-- Jack Catterall
 - Masked Singer 2025
-- Nottingham Forest
-- Michael Ball
-- Bayern Munich
-- Caroline Flack
-- IPL 2025 schedule
+- Jack Catterall
+- IPL 2025 Schedule
 - New Delhi Railway Station Stampede
-- Liverpool vs Wolves
 - Tottenham vs Man United
+- GG vs UPW
 - Fire
-- Warriorz vs Giants
 - WPL
 - Premier League
-- Real Madrid
-- Chhaava Box Office collection day
-- Ms Dhoni
+- Chhaava box office collection day
 - Pakistan vs New Zealand
 - Valentine's Day
 - IPL
@@ -90,6 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Captain America
 - Manipur
 - ONGC
+- Hotstar
+- ICC
+- Virat Kohli
 - epgview
 - best epg
 - epg for iptv
