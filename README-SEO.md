@@ -35,24 +35,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mac McClung
 - Premier League
 - Daytona 500
-- Alabama vs Auburn basketball
 - 3-Point Contest 2025
+- Alabama vs Auburn basketball
 - Earthquake
 - Arsenal
-- All-Star Game
-- Jared Cannonier
+- NBA All-Star
 - Biff Wiff
-- UConn basketball
 - Sheryl Crow
-- SNL 50
+- Clemson Basketball
+- SNL' 50th anniversary
 - Valentine's Day
 - Eagles parade
+- Inter Miami
 - Chernobyl
 - Keyshawn Davis
 - JD Vance
+- Tottenham vs Man United
 - Michael O'Sullivan
 - Wireless
 - BAFTAs 2025
+- Paddy Kirk
 - Premier League
 - Leicester City vs Arsenal
 - Man City vs Newcastle
@@ -68,8 +70,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michael Ball
 - Caroline Flack
 - Amad Diallo
-- Danielle Lloyd
-- Knockholt
 - IPL 2025 Schedule
 - New Delhi Railway Station Stampede
 - Liverpool vs Wolves
@@ -79,7 +79,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Madrid
 - Chhaava Box Office collection day
 - Prateik Babbar
-- MS Dhoni
+- Ms Dhoni
 - Pakistan vs New Zealand
 - Valentine's Day
 - IPL
