@@ -38,7 +38,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Premier League
 - 3-Point Contest 2025
 - Alabama vs Auburn basketball
-- Earthquake
 - Arsenal
 - Purdue basketball
 - Hockey
@@ -50,34 +49,36 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Eagles parade
 - Chernobyl
 - JD Vance
-- Tottenham vs Man United
+- Inter Miami
+- BAFTAs 2025
 - Everton
 - Michael O'Sullivan
 - Lunar eclipse
 - Wireless
-- Baftas 2025
+- Gmail users red alert
 - Michael Ball
 - Arsenal Women
 - Premier League
 - Leicester City vs Arsenal
+- Liverpool vs Wolves
 - Man City vs Newcastle
-- Aston Villa
 - Crystal Palace vs Everton
 - West Ham vs Brentford
+- Aston Villa vs Ipswich Town
+- Aston Villa
 - Real Madrid
 - Epl
 - Timothee Chalamet
 - Stephen Graham
-- Masked Singer 2025
-- Jack Catterall
-- IPL 2025 Schedule
-- New Delhi Railway Station Stampede
+- IPL 2025 schedule
 - Tottenham vs Man United
-- GG vs UPW
+- New Delhi Railway Station Stampede
+- Warriorz vs Giants
 - Fire
 - WPL
 - Premier League
 - Chhaava box office collection day
+- Arsenal
 - Pakistan vs New Zealand
 - Valentine's Day
 - IPL
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ONGC
 - Hotstar
 - ICC
-- Virat Kohli
 - epgview
 - best epg
 - epg for iptv
