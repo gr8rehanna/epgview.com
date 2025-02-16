@@ -31,16 +31,18 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Tottenham vs Man United
-- Liverpool vs Wolves
 - Michigan basketball
+- Liverpool vs Wolves
 - Justin Tucker
+- Kansas basketball
+- Daytona weather
 - Connor McDavid
+- BAFTA Awards 2025
 - USA vs Canada hockey
 - Daytona 500
 - Mac McClung
+- Alabama basketball
 - Premier League
-- Alabama vs Auburn basketball
-- Earthquake
 - UConn women's basketball
 - Arsenal
 - Purdue basketball
@@ -48,32 +50,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Biff Wiff
 - Sheryl Crow
 - SNL 50th Anniversary
-- Valentine's Day
-- Eagles parade
+- Liverpool vs Wolves
 - BAFTAs 2025
+- Warwick Davis
 - Everton
-- Michael O'Sullivan
 - Wireless
+- Michael O'Sullivan
+- Eden Project
 - Lunar eclipse
-- Kneecap
 - Gmail users red alert
-- Michael Ball
-- Arsenal Women
+- John Major
+- Steph McGovern
+- Kneecap
+- David Jonsson
+- David Tennant
 - Take That
+- Kieran Culkin
+- Arsenal Women
+- Michael Ball
 - WSL
 - Premier League
-- Leicester City vs Arsenal
-- Liverpool vs Wolves
-- Man City vs Newcastle
-- Aston Villa
-- Crystal Palace vs Everton
-- West Ham vs Brentford
-- Real Madrid
-- Timothee Chalamet
 - Tottenham vs Man United
 - New Delhi Railway Station Stampede
 - Warriorz vs Giants
-- IPL Schedule 2025
+- IPL schedule 2025
 - Fire
 - WPL
 - Premier League
