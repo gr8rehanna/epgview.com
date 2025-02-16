@@ -39,26 +39,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Earthquake
 - Man City vs Newcastle
 - Arsenal
-- Purdue basketball
 - NBA All-Star
 - Jared Cannonier
 - Biff Wiff
-- UConn basketball
-- Hockey
 - Sheryl Crow
 - SNL50
 - Valentine's Day
 - Eagles parade
 - Orlando City  Inter Miami
-- Leicester City vs Arsenal
+- Chernobyl
+- Keyshawn Davis
+- JD Vance
+- Michael O'Sullivan
 - Premier League
+- Leicester City vs Arsenal
 - Man City vs Newcastle
 - Aston Villa
 - Crystal Palace vs Everton
 - West Ham vs Brentford
 - Real Madrid
-- Elon Musk children
-- Epl
 - Stephen Graham
 - Jack Catterall
 - Nottingham Forest
@@ -66,17 +65,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bayern Munich
 - Michael Ball
 - Caroline Flack
-- Danielle Lloyd
 - Amad Diallo
+- Danielle Lloyd
 - Knockholt
 - Cardiff City
-- New Delhi Railway Station
+- Cardiff City vs Bristol City
+- IPL 2025 Schedule
+- New Delhi Railway Station Stampede
+- Liverpool vs Wolves
 - Fire
 - WPL
 - Premier League
 - Real Madrid
 - Chhaava Box Office Collection Day
-- Arsenal
+- Prateik Babbar
 - Ms Dhoni
 - Pakistan vs New Zealand
 - Valentine's Day
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Manipur
 - ONGC
 - Hotstar
-- ICC
-- Virat Kohli
 - epgview
 - best epg
 - epg for iptv
