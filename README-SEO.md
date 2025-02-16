@@ -35,12 +35,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Premier League
 - Alabama vs Auburn basketball
 - Arsenal
-- 3-Point Contest 2025
 - Earthquake
 - Man City vs Newcastle
 - Jared Cannonier
-- Purdue basketball
 - Arkansas basketball
+- NBA 3-Point Contest 2025
 - UConn basketball
 - Biff Wiff
 - Matthew Tkachuk
@@ -49,7 +48,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Daytona 500 start time
 - Sheryl Crow
 - SNL50
-- NBA All-Star 2025
+- All-Star Weekend
+- Día de San Valentín
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
@@ -71,7 +71,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Amad Diallo
 - Cardiff City
 - New Delhi Railway Station
-- Bayern Munich
+- Fire
 - WPL
 - Premier League
 - Chhaava Box Office Collection Day
