@@ -34,22 +34,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Mac McClung
 - Premier League
 - Alabama vs Auburn basketball
+- 3-Point Contest 2025
 - Earthquake
 - Man City vs Newcastle
-- Jared Cannonier
 - Arsenal
 - Purdue basketball
 - Arkansas basketball
-- NBA 3-Point Contest 2025
 - UConn basketball
 - Biff Wiff
 - Matthew Tkachuk
+- Gregory Rodrigues
 - Bayern Munich
 - Daytona 500 start time
 - Clemson Basketball
 - Sheryl Crow
 - SNL50
-- NBA All-Star weekend
+- Valentine's Day
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
