@@ -32,28 +32,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Premier League
 - Alabama basketball
-- Earthquake
 - Man City vs Newcastle
 - Arsenal
+- USA vs Canada hockey
+- Earthquake
 - Purdue basketball
 - Luigi Mangione
 - Arkansas basketball
-- USA vs Canada hockey
+- 3-point contest 2025
 - Nirvana
 - Bayern Munich
-- 3-point contest 2025
-- NBA All-Star Weekend
+- Kid Rock
 - SNL50
+- NBA All-Star 2025
 - Día de San Valentín
 - Eagles parade
 - Yellowjackets
 - Kayaker swallowed by whale
 - Orlando City  Inter Miami
-- Love Is Blind Season 8
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
-- Masked Singer 2025
+- Marti Pellow
 - Aston Villa
 - Crystal Palace vs Everton
 - West Ham
@@ -71,16 +71,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Knockholt
 - Amad Diallo
 - New Delhi Railway Station
-- Fire
+- WPL
 - Man City vs Newcastle
 - Premier League
 - Real Madrid
 - Chhaava film box office collection
 - Arsenal
 - Pakistan vs New Zealand
-- WPL
 - Valentine's Day
-- JioHotstar
 - IPL
 - New India Cooperative Bank
 - CCL
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Captain America
 - Manipur
 - ONGC
+- Hotstar
+- ICC
 - epgview
 - best epg
 - epg for iptv
