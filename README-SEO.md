@@ -30,53 +30,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- White Lotus Season 3
 - Tottenham vs Man United
 - Michigan basketball
 - Liverpool vs Wolves
 - Justin Tucker
-- Kansas basketball
 - Daytona weather
+- BAFTA awards 2025
+- Kansas basketball
 - Connor McDavid
-- BAFTA Awards 2025
 - USA vs Canada hockey
 - Daytona 500
 - Mac McClung
-- Alabama basketball
 - Premier League
 - UConn women's basketball
+- Alabama vs Auburn basketball
+- Earthquake
 - Arsenal
-- Purdue basketball
+- Matthew Tkachuk
 - Hockey
-- Biff Wiff
-- Sheryl Crow
-- SNL 50th Anniversary
+- Jared Cannonier
+- Conclave
 - Liverpool vs Wolves
-- BAFTAs 2025
 - Warwick Davis
 - Everton
 - Wireless
-- Michael O'Sullivan
 - Eden Project
-- Lunar eclipse
+- Michael O'Sullivan
 - Gmail users red alert
+- Lunar eclipse
 - John Major
+- White Lotus season 3
 - Steph McGovern
 - Kneecap
 - David Jonsson
-- David Tennant
-- Take That
 - Kieran Culkin
+- Take That
 - Arsenal Women
-- Michael Ball
 - WSL
+- Michael Ball
 - Premier League
 - Tottenham vs Man United
 - New Delhi Railway Station Stampede
+- Liverpool vs Wolves
 - Warriorz vs Giants
-- IPL schedule 2025
 - Fire
 - WPL
-- Premier League
 - Chhaava box office collection day
 - Arsenal
 - Pakistan vs New Zealand
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ONGC
 - Hotstar
 - ICC
+- Virat Kohli
 - epgview
 - best epg
 - epg for iptv
