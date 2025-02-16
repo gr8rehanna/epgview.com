@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Premier League
 - Alabama basketball
+- Premier League
+- USA vs Canada hockey
 - Man City vs Newcastle
 - Arsenal
-- USA vs Canada hockey
 - Earthquake
+- 3-Point Contest 2025
 - Purdue basketball
-- Luigi Mangione
+- Gregory Rodrigues
 - Arkansas basketball
-- 3-point contest 2025
 - Nirvana
-- Bayern Munich
 - Kid Rock
+- Bayern Munich
+- Biff Wiff
+- Mac McClung
 - SNL50
 - NBA All-Star 2025
 - Día de San Valentín
+- Valentine's Day
 - Eagles parade
-- Yellowjackets
-- Kayaker swallowed by whale
-- Orlando City  Inter Miami
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
@@ -70,26 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Danielle Lloyd
 - Knockholt
 - Amad Diallo
-- New Delhi Railway Station
+- New Delhi Railway Station Stampede
 - WPL
 - Man City vs Newcastle
 - Premier League
 - Real Madrid
 - Chhaava film box office collection
 - Arsenal
-- Pakistan vs New Zealand
+- CBSE Class 10 board exam
 - Valentine's Day
 - IPL
 - New India Cooperative Bank
-- CCL
 - Modi Trump meeting
-- Reciprocal tariffs
 - Women's Premier League
 - Captain America
 - Manipur
 - ONGC
 - Hotstar
 - ICC
+- Virat Kohli
+- Sports
 - epgview
 - best epg
 - epg for iptv
