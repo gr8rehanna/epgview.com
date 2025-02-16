@@ -35,21 +35,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Premier League
 - Alabama vs Auburn basketball
 - Arsenal
-- 3-point contest 2025
+- 3-Point Contest 2025
 - Earthquake
 - Man City vs Newcastle
 - Jared Cannonier
 - Purdue basketball
-- Luigi Mangione
 - Arkansas basketball
-- Tornado Warning
+- UConn basketball
 - Biff Wiff
+- Matthew Tkachuk
 - Bayern Munich
 - Kid Rock
-- Matthew Tkachuk
 - Daytona 500 start time
 - Sheryl Crow
-- SNL 50
+- SNL50
+- NBA All-Star 2025
 - Leicester City vs Arsenal
 - Premier League
 - Man City vs Newcastle
@@ -59,7 +59,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - West Ham
 - Fulham vs nottm Forest
 - Real Madrid
-- Osasuna vs Real Madrid
 - Bayern Munich
 - Elon Musk children
 - Epl
@@ -70,6 +69,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Danielle Lloyd
 - Knockholt
 - Amad Diallo
+- Cardiff City
 - New Delhi Railway Station
 - Bayern Munich
 - WPL
@@ -77,11 +77,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chhaava Box Office Collection Day
 - Real Madrid
 - Arsenal
-- CBSE Class 10 board exam
 - Pakistan vs New Zealand
 - Valentine's Day
 - IPL
-- New India Cooperative Bank
+- New India Co-operative Bank
 - Modi Trump meeting
 - Women's Premier League
 - Captain America
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Hotstar
 - ICC
 - Virat Kohli
+- Sports
 - epgview
 - best epg
 - epg for iptv
