@@ -30,7 +30,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- White Lotus season 3
+- White Lotus Season 3
+- NBA All-Star Game
 - Brittany Howard
 - Paul McCartney
 - Who won the Daytona 500
@@ -38,48 +39,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tottenham vs Man United
 - BAFTA Awards 2025
 - Dan Aykroyd
+- Eddie Murphy
 - Bill Murray
 - Adam Sandler
-- Cecily Strong
+- Justin Tucker
 - Liverpool vs Wolves
 - Kentucky flooding
 - Bob dylan
+- Oregon basketball
 - Michigan State basketball
 - Ludvig Aberg
 - Ohio State basketball
-- Pedro Pascal
-- Daytona weather
-- Eddie Murphy
 - Juventus
-- Antony
+- Oscars 2025
 - Conclave
 - Liverpool vs Wolves
 - Warwick Davis
-- Michael O'Sullivan
 - Gmail users red alert
+- Michael O'Sullivan
 - Wireless
 - Eden Project
+- Real Betis
 - John Major
 - Lunar eclipse
-- White Lotus Season 3
+- White Lotus season 3
+- Isabella Rossellini
 - Steph McGovern
+- David Jonsson
 - Kneecap
 - David Tennant
 - Kieran Culkin
 - State pension
-- Take that
-- Arsenal Women
-- WSL
 - Earthquake in Delhi
 - Delhi earthquake tremors
 - News Today
 - Chhaava Box Office Collection
+- BYD Sealion 7 launch
+- Live News
+- IPL 2025 Schedule
 - New Delhi Railway Station Stampede
-- IPL Schedule 2025
-- Stampede
-- Delhi News
 - Fire
-- Chhaava box office collection day
+- Delhi stampede
+- Chhaava Box Office Collection Day
 - Pakistan vs New Zealand
 - Valentine's Day
 - IPL
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Captain America
 - Manipur
 - ONGC
-- Hotstar
 - epgview
 - best epg
 - epg for iptv
