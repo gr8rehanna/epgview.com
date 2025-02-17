@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Paquita la del Barrio
 - Ryan Reynolds
 - George Washington
+- Tiger Woods
 - Karl-Anthony Towns
-- White Lotus season 3
 - Sabrina Carpenter
+- White Lotus season 3
 - NASCAR
 - Presidents Day
 - NBA All-Star Game
 - Paul McCartney
 - BAFTA Awards 2025
-- Dan Aykroyd
 - Adam Sandler
 - Kentucky flooding
-- Tottenham vs Man United
 - Justin Tucker
-- Patrick Schwarzenegger
+- Michigan basketball
 - Kyle Busch
 - Trump Daytona 500
 - Bob dylan
+- Tom Hanks
 - Community Fibre
 - Juventus
 - Gabby Petito
@@ -65,19 +65,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michael O'Sullivan
 - Real Betis
 - Eden Project
-- White Lotus' Season 3
+- White Lotus Season 3
 - David Jonsson
-- Lunar eclipse
 - Isabella Rossellini
+- Lunar eclipse
 - Kneecap
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
 - Delhi earthquake tremors
 - Vivo V50
 - News today
-- CET 12th Level Result
-- Chhaava box office collection
+- Live News
 - KIIT
+- Chhaava box office collection
 - AR Murugadoss Sivakarthikeyan
 - Narendra Modi
 - BYD Sealion 7 launch
@@ -85,11 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aprilia Tuono 457
 - The White Lotus
 - Javier Milei
+- CET 12th Level Result 2025
 - IPL 2025 Schedule
 - New Delhi railway station
 - New Delhi Railway Station stampede
-- Fire
-- Chhaava Box Office Collection Day
+- Delhi News
 - epgview
 - best epg
 - epg for iptv
