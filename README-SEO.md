@@ -30,26 +30,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- White Lotus' Season 3
+- White Lotus season 3
+- Brittany Howard
 - Tottenham vs Man United
-- Presidents Day
+- UConn women's basketball
 - Michigan basketball
 - Liverpool vs Wolves
+- Daytona weather
 - Justin Tucker
 - BAFTA Awards 2025
+- Bob dylan
 - Ludvig Aberg
+- Is Presidents Day a federal holiday
 - Dan Aykroyd
+- Anthony Edwards
+- Trump Daytona 500
 - Daytona 500
 - Sabrina Carpenter
 - USA vs Canada hockey
 - NBA All-Star Game
 - Mac McClung
-- Premier League
-- UConn women's basketball
-- Alabama vs Auburn basketball
-- Earthquake
-- Arsenal
-- Biff Wiff
 - Juventus
 - Conclave
 - Liverpool vs Wolves
@@ -64,19 +64,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Lunar eclipse
 - White Lotus season 3
 - Steph McGovern
-- David Jonsson
 - Kneecap
 - David Tennant
 - Kieran Culkin
 - Take that
 - WSL
+- Michael Ball
 - Earthquake in Delhi
 - Manchester United
-- Latest news
-- Earthquake in delhi today Time
+- Deandra Dottin
+- Earthquakes Today
+- IPL 2025 schedule
 - New Delhi Railway Station Stampede
 - Warriorz vs Giants
-- IPL schedule 2025
+- Delhi news
 - Fire
 - Chhaava box office collection day
 - Arsenal
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Captain America
 - Manipur
 - ONGC
-- Hotstar
 - epgview
 - best epg
 - epg for iptv
