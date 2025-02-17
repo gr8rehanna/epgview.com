@@ -30,9 +30,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- White Lotus Season 3
-- Michigan basketball
+- White Lotus season 3
 - Tottenham vs Man United
+- Michigan basketball
 - Liverpool vs Wolves
 - Justin Tucker
 - BAFTA Awards 2025
@@ -46,34 +46,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - UConn women's basketball
 - Alabama vs Auburn basketball
 - Earthquake
-- Sam Nordquist
 - Arsenal
-- Hockey
-- Biff Wiff
+- SNL 50th anniversary
+- NBA All-Star Game
+- Valentine's Day
 - Juventus
 - Conclave
 - Liverpool vs Wolves
 - Warwick Davis
 - Wireless
 - Everton
-- David Tennant
-- Eden Project
 - Michael O'Sullivan
+- Eden Project
 - Gmail users red alert
-- Lunar eclipse
 - John Major
+- Lunar eclipse
 - White Lotus season 3
 - Steph McGovern
 - David Jonsson
 - Kneecap
+- Real Betis
+- David Tennant
 - Kieran Culkin
 - Take That
-- Arsenal Women
 - WSL
+- Earthquake
+- IPL 2025 Schedule
 - New Delhi Railway Station Stampede
-- Warriorz vs Giants
 - Manchester United
-- IPL Schedule 2025
 - Fire
 - Chhaava box office collection day
 - Arsenal
