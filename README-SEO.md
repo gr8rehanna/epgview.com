@@ -37,19 +37,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Presidents Day
 - Tottenham vs Man United
 - BAFTA Awards 2025
-- Michigan basketball
 - Dan Aykroyd
-- Eddie Murphy
 - Bill Murray
 - Adam Sandler
+- Cecily Strong
 - Liverpool vs Wolves
 - Kentucky flooding
 - Bob dylan
-- Oregon basketball
 - Michigan State basketball
 - Ludvig Aberg
-- Daytona weather
+- Ohio State basketball
 - Pedro Pascal
+- Daytona weather
+- Eddie Murphy
 - Juventus
 - Antony
 - Conclave
@@ -73,16 +73,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Earthquake in Delhi
 - Delhi earthquake tremors
 - News Today
-- Latest News
 - Chhaava Box Office Collection
-- IPL 2025 Schedule
 - New Delhi Railway Station Stampede
+- IPL Schedule 2025
+- Stampede
 - Delhi News
 - Fire
-- Stampede
-- Today Wordle answer
 - Chhaava box office collection day
-- MS Dhoni
 - Pakistan vs New Zealand
 - Valentine's Day
 - IPL
@@ -90,6 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Modi Trump meeting
 - Women's Premier League
 - Captain America
+- Manipur
+- ONGC
+- Hotstar
 - epgview
 - best epg
 - epg for iptv
