@@ -31,28 +31,29 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - White Lotus Season 3
-- NBA All-Star Game
 - Brittany Howard
 - Paul McCartney
-- Who won the Daytona 500
 - Presidents Day
 - Tottenham vs Man United
+- Who won the Daytona 500
 - BAFTA Awards 2025
 - Dan Aykroyd
-- Eddie Murphy
-- Bill Murray
-- Adam Sandler
-- Justin Tucker
 - Liverpool vs Wolves
-- Kentucky flooding
+- Patrick Schwarzenegger
 - Bob dylan
+- Adam Sandler
 - Oregon basketball
 - Michigan State basketball
 - Ludvig Aberg
 - Ohio State basketball
+- Eddie Murphy
+- Daytona weather
+- Anthony Edwards
+- Kentucky flooding
 - Juventus
 - Oscars 2025
 - Conclave
+- Tottenham vs Man United
 - Liverpool vs Wolves
 - Warwick Davis
 - Gmail users red alert
@@ -62,24 +63,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Betis
 - John Major
 - Lunar eclipse
-- White Lotus season 3
+- White Lotus Season 3
 - Isabella Rossellini
-- Steph McGovern
 - David Jonsson
+- Steph McGovern
 - Kneecap
 - David Tennant
 - Kieran Culkin
-- State pension
 - Earthquake in Delhi
 - Delhi earthquake tremors
+- Live News
 - News Today
 - Chhaava Box Office Collection
 - BYD Sealion 7 launch
-- Live News
 - IPL 2025 Schedule
 - New Delhi Railway Station Stampede
 - Fire
-- Delhi stampede
+- Stampede
 - Chhaava Box Office Collection Day
 - Pakistan vs New Zealand
 - Valentine's Day
