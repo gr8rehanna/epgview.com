@@ -31,10 +31,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Paquita la del Barrio
+- Barcelona  Rayo Vallecano
 - Ryan Reynolds
+- Pope Francis
 - George Washington
-- Tiger Woods
+- Richie Incognito
 - Karl-Anthony Towns
+- State Department Taiwan independence
 - Sabrina Carpenter
 - White Lotus season 3
 - NASCAR
@@ -42,18 +45,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NBA All-Star Game
 - Paul McCartney
 - BAFTA Awards 2025
-- Adam Sandler
 - Kentucky flooding
 - Justin Tucker
 - Michigan basketball
 - Kyle Busch
-- Trump Daytona 500
-- Bob dylan
-- Tom Hanks
+- Adam Sandler
 - Community Fibre
+- Leeds United vs Sunderland
 - Juventus
 - Gabby Petito
 - Pope Francis
+- Barcelona vs Rayo Vallecano
 - Oscars 2025
 - Daytona 500
 - Conclave
@@ -68,14 +70,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - White Lotus Season 3
 - David Jonsson
 - Isabella Rossellini
-- Lunar eclipse
-- Kneecap
-- Earthquake in Delhi
+- Barcelona vs Rayo Vallecano
+- Earthquake In Delhi
 - Capitals vs Royal Challengers
-- Delhi earthquake tremors
+- Earthquake Today
 - Vivo V50
 - News today
-- Live News
+- CET 12th Level Result
 - KIIT
 - Chhaava box office collection
 - AR Murugadoss Sivakarthikeyan
@@ -85,11 +86,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Aprilia Tuono 457
 - The White Lotus
 - Javier Milei
-- CET 12th Level Result 2025
 - IPL 2025 Schedule
 - New Delhi railway station
 - New Delhi Railway Station stampede
-- Delhi News
+- Fire
 - epgview
 - best epg
 - epg for iptv
