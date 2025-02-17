@@ -35,12 +35,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michigan basketball
 - Liverpool vs Wolves
 - Justin Tucker
+- BAFTA Awards 2025
 - Daytona weather
-- BAFTA awards 2025
-- Kansas basketball
 - Connor McDavid
-- USA vs Canada hockey
 - Daytona 500
+- USA vs Canada hockey
 - Mac McClung
 - Premier League
 - UConn women's basketball
@@ -49,33 +48,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Arsenal
 - Matthew Tkachuk
 - Hockey
-- Jared Cannonier
+- Biff Wiff
+- SNL 50th anniversary
 - Conclave
 - Liverpool vs Wolves
 - Warwick Davis
-- Everton
 - Wireless
+- Everton
 - Eden Project
 - Michael O'Sullivan
 - Gmail users red alert
-- Lunar eclipse
 - John Major
+- Lunar eclipse
 - White Lotus season 3
 - Steph McGovern
-- Kneecap
 - David Jonsson
+- Kneecap
+- Adampearson
+- David Tennant
 - Kieran Culkin
 - Take That
 - Arsenal Women
 - WSL
-- Michael Ball
-- Premier League
 - Tottenham vs Man United
 - New Delhi Railway Station Stampede
 - Liverpool vs Wolves
 - Warriorz vs Giants
+- IPL schedule 2025
 - Fire
-- WPL
+- WPL 2025
 - Chhaava box office collection day
 - Arsenal
 - Pakistan vs New Zealand
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - ONGC
 - Hotstar
 - ICC
-- Virat Kohli
 - epgview
 - best epg
 - epg for iptv
