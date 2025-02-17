@@ -34,22 +34,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brittany Howard
 - Paul McCartney
 - Tottenham vs Man United
-- Chevy Chase
 - Who won the Daytona 500
-- Michigan basketball
 - BAFTA Awards 2025
+- Michigan basketball
 - Dan Aykroyd
 - Bill Murray
 - Adam Sandler
+- Cecily Strong
 - Liverpool vs Wolves
 - Justin Tucker
+- Daytona weather
 - Kentucky flooding
 - Bob dylan
-- Oregon basketball
-- Michigan State basketball
-- Is Presidents Day a federal holiday
-- Ludvig Aberg
 - Patrick Schwarzenegger
+- Oregon basketball
+- Is Presidents Day a federal holiday
+- Michigan State basketball
 - Juventus
 - Conclave
 - Liverpool vs Wolves
@@ -61,25 +61,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Real Betis
 - John Major
 - Lunar eclipse
-- White Lotus season 3
+- White Lotus Season 3
 - Steph McGovern
 - Kneecap
 - David Tennant
+- State pension
 - Kieran Culkin
 - Take That
 - WSL
 - Michael Ball
-- Premier League
-- Earthquake in Delhi
+- Earthquake In Delhi
+- Earthquakes today
 - Manchester United
-- Live News
-- Earthquakes Today
+- News Today
 - Latest News
 - Chhaava Box Office Collection
 - IPL 2025 schedule
 - New Delhi Railway Station Stampede
-- Warriorz vs Giants
-- Delhi news
+- Delhi News
 - Fire
 - Stampede
 - Chhaava box office collection day
@@ -90,6 +89,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Modi Trump meeting
 - Women's Premier League
 - Captain America
+- Manipur
 - epgview
 - best epg
 - epg for iptv
