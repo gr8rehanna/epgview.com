@@ -30,10 +30,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
+- Gabby Petito
+- Paquita la del Barrio
+- Tiger Woods
+- George Washington
 - White Lotus season 3
+- Sabrina Carpenter
 - NASCAR
 - Presidents Day
 - NBA All-Star Game
+- All-Star Game
 - Paul McCartney
 - BAFTA Awards 2025
 - Dan Aykroyd
@@ -42,54 +48,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tottenham vs Man United
 - Kentucky flooding
 - Justin Tucker
-- Kyle Busch
-- Bob dylan
-- Oregon basketball
-- Ludvig Aberg
-- Anthony Edwards
-- Darrell Armstrong
-- Steph Curry
-- Jimmie Johnson
+- Patrick Schwarzenegger
+- Daytona
 - Community Fibre
 - Juventus
-- Snow/ice warning
-- Pope Francis
 - Gabby Petito
+- Pope Francis
 - Oscars 2025
 - Daytona 500
 - Conclave
 - Tottenham vs Man United
 - Liverpool vs Wolves
 - Warwick Davis
+- Man Utd
 - Wireless
 - Gmail users red alert
 - Michael O'Sullivan
 - Real Betis
 - Eden Project
-- White Lotus Season 3
+- White Lotus season 3
 - David Jonsson
 - Lunar eclipse
 - Isabella Rossellini
 - Earthquake in Delhi
-- Delhi earthquake tremors
 - RCB vs DC
+- Delhi earthquake tremors
 - Vivo V50
 - News today
-- AR Murugadoss Sivakarthikeyan
-- CET 12th Level Result
 - Chhaava box office collection
 - KIIT
+- Live news
+- Narendra Modi
 - BYD Sealion 7 launch
+- AR Murugadoss Sivakarthikeyan
 - GBS
 - Aprilia Tuono 457
 - IPL 2025 Schedule
+- New Delhi railway station
 - New Delhi Railway Station stampede
-- Delhi News
 - Fire
 - Chhaava Box Office Collection Day
 - Pakistan vs New Zealand
 - Valentine's Day
-- IPL
 - epgview
 - best epg
 - epg for iptv
