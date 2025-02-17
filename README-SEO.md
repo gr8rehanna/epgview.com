@@ -32,8 +32,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - White Lotus season 3
 - NASCAR
-- Paul McCartney
 - Presidents Day
+- Paul McCartney
 - Tottenham vs Man United
 - BAFTA Awards 2025
 - Michigan basketball
@@ -44,15 +44,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Bob dylan
 - Adam Sandler
 - Oregon basketball
-- Michigan State basketball
 - Ludvig Aberg
-- Eddie Murphy
-- Daytona weather
 - Anthony Edwards
 - Steph Curry
+- Kyle Busch
+- Jimmie Johnson
+- Trump Daytona 500
 - Community Fibre
 - Juventus
+- Snow/ice warning
 - Oscars 2025
+- Pope Francis
 - Daytona 500
 - Conclave
 - Tottenham vs Man United
@@ -63,21 +65,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michael O'Sullivan
 - Eden Project
 - Real Betis
+- Adrien Brody
 - White Lotus Season 3
 - Lunar eclipse
-- Isabella Rossellini
 - David Jonsson
-- Steph McGovern
-- Kneecap
-- David Tennant
+- Isabella Rossellini
 - Earthquake in Delhi
 - Vivo V50
 - Delhi earthquake tremors
 - News today
-- Chhaava Box Office Collection
+- Chhaava box office collection
 - Live news
 - BYD Sealion 7 launch
-- KIIT
+- GBS
+- Today news
 - IPL 2025 Schedule
 - New Delhi Railway Station Stampede
 - Stampede
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New India Co-operative Bank
 - Modi Trump meeting
 - Women's Premier League
-- Captain America
 - epgview
 - best epg
 - epg for iptv
