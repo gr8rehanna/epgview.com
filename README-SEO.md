@@ -32,15 +32,15 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - Paquita la del Barrio
 - Barcelona  Rayo Vallecano
+- Plane crash
 - Ryan Reynolds
 - Pope Francis
 - George Washington
-- Richie Incognito
-- Karl-Anthony Towns
+- Canada vs Finland
 - State Department Taiwan independence
+- Karl-Anthony Towns
 - Sabrina Carpenter
 - White Lotus season 3
-- NASCAR
 - Presidents Day
 - NBA All-Star Game
 - Paul McCartney
@@ -48,32 +48,32 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Kentucky flooding
 - Justin Tucker
 - Michigan basketball
-- Kyle Busch
 - Adam Sandler
+- Kyle Busch
+- Leeds United
 - Community Fibre
-- Leeds United vs Sunderland
-- Juventus
+- Love Island
 - Gabby Petito
-- Pope Francis
 - Barcelona vs Rayo Vallecano
+- Love Island final
+- Juventus
+- Pope Francis
+- Emmerdale
+- Ryan Reynolds
 - Oscars 2025
+- Leeds
+- Michael Wimmer
 - Daytona 500
 - Conclave
 - Tottenham vs Man United
 - Liverpool vs Wolves
 - Warwick Davis
 - Wireless
-- Gmail users red alert
-- Michael O'Sullivan
-- Real Betis
-- Eden Project
 - White Lotus Season 3
-- David Jonsson
-- Isabella Rossellini
 - Barcelona vs Rayo Vallecano
 - Earthquake In Delhi
-- Capitals vs Royal Challengers
 - Earthquake Today
+- Capitals vs Royal Challengers
 - Vivo V50
 - News today
 - CET 12th Level Result
@@ -83,13 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Narendra Modi
 - BYD Sealion 7 launch
 - GBS
+- Today news
 - Aprilia Tuono 457
 - The White Lotus
 - Javier Milei
-- IPL 2025 Schedule
 - New Delhi railway station
 - New Delhi Railway Station stampede
-- Fire
+- IPL schedule 2025
 - epgview
 - best epg
 - epg for iptv
