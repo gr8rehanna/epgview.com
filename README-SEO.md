@@ -32,52 +32,51 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - AC Milan
 - NHL
+- Bayern Munich
 - SPS Technologies
-- How many plane crashes in 2025
 - Intel stock
 - Justin Turner
 - Novak Djokovic
+- Southwest Airlines layoffs
 - Tee Higgins
 - Delta plane crash
 - Paquita la del Barrio
-- Barcelona
 - All-Star Game
 - 4 Nations Face-Off
 - Usa hockey
-- Are banks closed on Presidents Day
 - Grok-3
+- Are banks closed on Presidents Day
 - Duke basketball
 - Lil Wayne
 - Pope Francis
 - Brian Laundrie
 - Bayern vs Celtic
-- AC Milan
 - Rick Buckler
+- AC Milan
 - Championship
 - Kate Hudson
 - Espionage
 - Premium Bonds prize fund rate cut
+- F1
 - Everton new stadium
 - Doctor Who
 - Novak Djokovic
 - Grok 3
+- NASA asteroid hitting Earth 2024
 - Post Malone
+- Air fryers
 - Toronto plane crash
 - Love Island
 - Leeds United
 - Leeds United vs Sunderland
 - Barcelona vs Rayo Vallecano
-- Community Fibre
-- Gabby Petito
-- Barcelona
 - Chhatrapati Shivaji Maharaj Jayanti
-- Realme P3 Pro
+- Bayern vs Celtic
 - Grok 3
 - Giants vs Indians
 - Barcelona
 - Gyanesh Kumar Election Commissioner
 - DRDO Internship 2025
-- KIIT University
 - Gyanesh Kumar
 - Tesla
 - Delta airlines plane crash
@@ -89,7 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - News today
 - Chhaava Box office collection
 - Quality Power IPO GMP
-- Live news
+- Javier Milei
+- JPMorgan Chase
 - epgview
 - best epg
 - epg for iptv
