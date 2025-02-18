@@ -33,33 +33,34 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delta plane crash
 - Paquita la del Barrio
 - Barcelona
+- Gabby Petito
 - All-Star Game
+- Aubrey Plaza husband
+- Usa hockey
 - Duke basketball
 - Ryan Reynolds
 - Lil Wayne
 - Pope Francis
-- USA vs Sweden
-- Aubrey Plaza husband
-- Brian Laundrie
 - George Washington
 - 4 Nations
 - TGL
 - FAA
 - Paquita del Barrio
+- Grok 3
 - State Department Taiwan independence
 - Richie Incognito
-- Grok 3
 - Karl-Anthony Towns
 - Leeds United
-- Love Island
 - Barcelona vs Rayo Vallecano
+- Love Island: All Stars
 - Community Fibre
+- Love Island
 - Gabby Petito
 - Toronto plane crash
 - Juventus
 - Emmerdale
-- Antony
 - Leeds
+- Antony
 - Pope Francis
 - Patrick Schwarzenegger
 - Ryan Reynolds
@@ -69,27 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michael O'Sullivan jockey
 - Conclave
 - Tottenham vs Man United
-- Liverpool vs Wolves
 - Barcelona vs Rayo Vallecano
-- Barca
 - Grok 3
-- Gyanesh Kumar
 - Gyanesh Kumar Election Commissioner
+- Gyanesh Kumar
 - Earthquake in Delhi
 - Earthquake
 - Capitals vs Royal Challengers
 - Vivo V50
-- KIIT
 - News Today
+- KIIT
 - Chhaava Box Office Collection
-- Narendra Modi
-- LIVE News
-- Antony
+- Live News
+- GBS
 - The White Lotus
 - Javier Milei
-- Today News
+- Aprilia Tuono 457
 - Quality Power IPO GMP
 - New Delhi Railway Station stampede
+- New Delhi railway station
+- IPL schedule 2025
 - epgview
 - best epg
 - epg for iptv
