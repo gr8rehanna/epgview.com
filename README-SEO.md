@@ -30,53 +30,55 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- NHL
 - AC Milan
-- Four Nations Face-Off
+- NHL
 - SPS Technologies
+- How many plane crashes in 2025
+- Intel stock
+- Justin Turner
+- Novak Djokovic
 - Tee Higgins
 - Delta plane crash
 - Paquita la del Barrio
 - Barcelona
+- All-Star Game
 - 4 Nations Face-Off
 - Usa hockey
 - Are banks closed on Presidents Day
-- Grok 3
+- Grok-3
 - Duke basketball
 - Lil Wayne
 - Pope Francis
 - Brian Laundrie
-- George Washington
-- Paquita del Barrio
-- FAA
-- State Department Taiwan independence
 - Bayern vs Celtic
 - AC Milan
+- Rick Buckler
 - Championship
+- Kate Hudson
 - Espionage
 - Premium Bonds prize fund rate cut
 - Everton new stadium
-- Rick Buckler
-- Doctor who
+- Doctor Who
 - Novak Djokovic
 - Grok 3
+- Post Malone
 - Toronto plane crash
 - Love Island
-- Leeds United vs Sunderland
 - Leeds United
-- Community Fibre
+- Leeds United vs Sunderland
 - Barcelona vs Rayo Vallecano
-- Emmerdale spoilers
+- Community Fibre
 - Gabby Petito
 - Barcelona
-- Leeds
 - Chhatrapati Shivaji Maharaj Jayanti
 - Realme P3 Pro
 - Grok 3
 - Giants vs Indians
+- Barcelona
 - Gyanesh Kumar Election Commissioner
 - DRDO Internship 2025
-- Barca
+- KIIT University
+- Gyanesh Kumar
 - Tesla
 - Delta airlines plane crash
 - Sunita Williams
@@ -85,11 +87,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Faecal bacteria
 - Earthquake in Delhi
 - News today
-- KIIT
-- Chhaava Box Office collection
+- Chhaava Box office collection
 - Quality Power IPO GMP
-- Javier Milei
-- New Delhi Railway Station stampede
+- Live news
 - epgview
 - best epg
 - epg for iptv
