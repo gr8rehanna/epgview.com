@@ -36,25 +36,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - All-Star Game
 - USA hockey
 - Duke basketball
+- Grok 3
 - Ryan Reynolds
 - Lil Wayne
-- Grok 3
 - Pope Francis
-- Aubrey Plaza husband
 - 4 Nations
 - George Washington
 - FAA
 - Paquita del Barrio
 - Paquita
 - State Department Taiwan independence
+- Jason Momoa
 - Karl-Anthony Towns
 - White Lotus Season 3
-- NASCAR
+- NBA All-Star Game
 - Championship
 - Everton new stadium
 - Leeds United
-- Love Island
 - Delta plane crashes Toronto
+- Love Island
 - Barcelona vs Rayo Vallecano
 - Community Fibre
 - Emmerdale spoilers
@@ -74,16 +74,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - Gyanesh Kumar Election Commissioner
 - Barca
-- Gyanesh Kumar
 - DRDO Internship 2025
+- Gyanesh Kumar
 - Tesla
 - Delta airlines plane crash
+- Delhi CM News
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
 - News Today
 - KIIT
 - Chhaava Box Office collection
-- Narendra Modi
 - Quality Power IPO GMP
 - Javier Milei
 - Aprilia Tuono 457
