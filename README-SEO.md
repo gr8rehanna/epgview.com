@@ -48,48 +48,48 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Paquita del Barrio
 - State Department Taiwan independence
 - Karl-Anthony Towns
-- Sabrina Carpenter
-- White Lotus Season 3
+- White Lotus season 3
+- Paul Simon
+- Everton new stadium
 - Leeds United
 - Love Island
-- Toronto plane crash
+- Delta plane crashes Toronto
 - Barcelona vs Rayo Vallecano
 - Community Fibre
 - Gabby Petito
-- Emmerdale
-- Juventus
+- Emmerdale spoilers
 - Leeds
-- Antony
 - Pope Francis
 - Patrick Schwarzenegger
+- Pam St Clement
 - Ryan Reynolds
 - Tiffany EastEnders
 - Oscars 2025
 - Michael Wimmer
+- Galatasaray
+- Inter Milan
 - Michael O'Sullivan jockey
 - Daytona 500
-- Conclave
-- Tottenham vs Man United
 - Barcelona vs Rayo Vallecano
-- Gyanesh Kumar Election Commissioner
 - Grok 3
+- Gyanesh Kumar Election Commissioner
 - Audi RS Q8
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
 - Vivo V50
-- News Today
+- News today
 - KIIT
-- Chhaava Box Office Collection
+- Chhaava box office collection
 - Narendra Modi
-- Live news
 - GBS
-- Javier Milei
 - Quality Power IPO GMP
+- Javier Milei
 - Aprilia Tuono 457
-- Sivakarthikeyan
 - IPL 2025 schedule
 - New Delhi Railway Station stampede
 - New Delhi railway station
+- Fire
+- Chhaava Box Office Collection Day
 - epgview
 - best epg
 - epg for iptv
