@@ -31,33 +31,33 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Delta plane crash
+- Paquita la del Barrio
 - Barcelona
 - All-Star Game
 - Usa hockey
-- Canada vs Finland
 - Duke basketball
 - Ryan Reynolds
 - Lil Wayne
 - Pope Francis
+- Grok 3
 - Aubrey Plaza husband
+- Brian Laundrie
 - George Washington
+- 4 Nations
 - TGL
 - FAA
 - Paquita del Barrio
-- Grok 3
-- Paquita
 - State Department Taiwan independence
 - Karl-Anthony Towns
 - Sabrina Carpenter
-- White Lotus season 3
 - Leeds United
 - Love Island
 - Barcelona vs Rayo Vallecano
 - Community Fibre
 - Toronto plane crash
 - Gabby Petito
-- Juventus
 - Emmerdale
+- Juventus
 - Leeds
 - Antony
 - Pope Francis
@@ -75,8 +75,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Grok 3
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
-- Delhi earthquake
-- Vivo V50
 - News Today
 - KIIT
 - Chhaava box office collection
@@ -86,10 +84,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Javier Milei
 - Quality Power IPO GMP
 - Aprilia Tuono 457
+- Sivakarthikeyan
 - IPL 2025 schedule
 - New Delhi Railway Station stampede
 - New Delhi railway station
 - Fire
+- Chhaava Box Office Collection Day
 - epgview
 - best epg
 - epg for iptv
