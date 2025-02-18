@@ -36,20 +36,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - All-Star Game
 - Ryan Reynolds
 - Pope Francis
+- Duke basketball
 - Canada vs Finland
 - Barca
 - Aubrey Plaza husband
 - George Washington
-- Richie Incognito
-- State Department Taiwan independence
 - TGL
+- State Department Taiwan independence
 - FAA
-- Paquita del Barrio
-- Karl-Anthony Towns
+- Richie Incognito
 - Brian Laundrie
-- Sabrina Carpenter
-- White Lotus season 3
-- NBA All-Star Game
+- Paquita del Barrio
+- USA vs Sweden
+- Andy Samberg
+- Karl-Anthony Towns
 - Leeds United
 - Barcelona vs Rayo Vallecano
 - Community Fibre
@@ -71,6 +71,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Michael Wimmer
 - Conclave
 - Barcelona vs Rayo Vallecano
+- Grok 3
 - Earthquake in Delhi
 - Earthquake
 - Capitals vs Royal Challengers
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Fire
 - Chhaava Box Office Collection Day
 - Pakistan vs New Zealand
-- Valentine's Day
 - epgview
 - best epg
 - epg for iptv
