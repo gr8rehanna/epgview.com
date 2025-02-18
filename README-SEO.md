@@ -30,25 +30,25 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Delta
+- Delta plane crash
 - Paquita la del Barrio
 - Barcelona
-- Gabby Petito
 - Ryan Reynolds
 - Pope Francis
 - Canada vs Finland
 - Barca
 - George Washington
-- State Department Taiwan independence
 - Richie Incognito
-- Karl-Anthony Towns
+- State Department Taiwan independence
 - FAA
 - TGL
 - Paquita del Barrio
+- Karl-Anthony Towns
 - Sabrina Carpenter
 - White Lotus season 3
-- NBA All-Star Game
 - Is Presidents Day a federal holiday
+- Presidents Day
+- Paul McCartney
 - NASCAR
 - Leeds United
 - Community Fibre
@@ -56,40 +56,40 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Love Island: All Stars
 - Love Island
 - Gabby Petito
+- UK driving license petition
+- Toronto plane crash
 - Juventus
 - Emmerdale
 - Leeds
 - Pope Francis
-- Pam St Clement
 - Patrick Schwarzenegger
+- Pam St Clement
 - Ryan Reynolds
-- Toronto plane crash
+- Tiffany EastEnders
 - Oscars 2025
 - Michael Wimmer
-- Tiffany EastEnders
 - Daytona 500
 - Conclave
-- Tottenham vs Man United
 - Barcelona vs Rayo Vallecano
 - Triumph Speed T4 new colours
-- Earthquake In Delhi
+- Earthquake in Delhi
+- Earthquake
 - Capitals vs Royal Challengers
-- Earthquake in Delhi today
 - Vivo V50
 - News today
 - KIIT
-- CET 12th Level Result
 - Chhaava box office collection
-- AR Murugadoss Sivakarthikeyan
-- Live news
 - Narendra Modi
-- GBS
+- Antony
 - BYD Sealion 7 launch
 - The White Lotus
 - Aprilia Tuono 457
 - Javier Milei
-- IPL 2025 schedule
+- New Delhi Railway Station stampede
 - New Delhi railway station
+- Delhi News
+- Fire
+- Chhaava Box Office Collection Day
 - epgview
 - best epg
 - epg for iptv
