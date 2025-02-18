@@ -44,17 +44,17 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Brian Laundrie
 - George Washington
 - 4 Nations
-- TGL
 - FAA
 - Paquita del Barrio
 - State Department Taiwan independence
 - Karl-Anthony Towns
 - Sabrina Carpenter
+- White Lotus Season 3
 - Leeds United
 - Love Island
+- Toronto plane crash
 - Barcelona vs Rayo Vallecano
 - Community Fibre
-- Toronto plane crash
 - Gabby Petito
 - Emmerdale
 - Juventus
@@ -67,19 +67,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Oscars 2025
 - Michael Wimmer
 - Michael O'Sullivan jockey
+- Daytona 500
 - Conclave
 - Tottenham vs Man United
-- Liverpool vs Wolves
 - Barcelona vs Rayo Vallecano
 - Gyanesh Kumar Election Commissioner
 - Grok 3
+- Audi RS Q8
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
+- Vivo V50
 - News Today
 - KIIT
-- Chhaava box office collection
+- Chhaava Box Office Collection
 - Narendra Modi
-- LIVE News
+- Live news
 - GBS
 - Javier Milei
 - Quality Power IPO GMP
@@ -88,8 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - IPL 2025 schedule
 - New Delhi Railway Station stampede
 - New Delhi railway station
-- Fire
-- Chhaava Box Office Collection Day
 - epgview
 - best epg
 - epg for iptv
