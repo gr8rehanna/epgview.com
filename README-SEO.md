@@ -30,66 +30,66 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- 4 Nations Face-Off
-- Four Nations Face-Off
+- NHL
 - SPS Technologies
-- Delta Plane Crash
+- Tee Higgins
+- Delta plane crash
 - Paquita la del Barrio
 - Barcelona
 - Gabby Petito
 - All-Star Game
+- 4 Nations Face-Off
 - Usa hockey
 - Grok-3
 - Duke basketball
-- Ryan Reynolds
 - Lil Wayne
 - Pope Francis
-- 4 Nations
 - George Washington
 - Paquita del Barrio
 - FAA
 - State Department Taiwan independence
 - Karl-Anthony Towns
+- White Lotus Season 3
 - Championship
 - Everton new stadium
 - Espionage
-- Grok 3
+- Premium Bonds prize fund rate cut
 - Doctor Who
+- Post Malone
+- Grok 3
 - Toronto plane crash
 - Love Island
 - Leeds United vs Sunderland
 - Leeds United
-- Barcelona vs Rayo Vallecano
 - Community Fibre
+- Barcelona vs Rayo Vallecano
 - Emmerdale spoilers
 - Gabby Petito
+- Barcelona
 - Leeds
 - Pope Francis
 - Patrick Schwarzenegger
 - Tiffany EastEnders
-- Ryan Reynolds
-- Oscars 2025
-- Michael Wimmer
 - Grok 3
-- GG vs MI
-- Barcelona
+- Giants vs Indians
 - Gyanesh Kumar Election Commissioner
+- Barcelona
 - DRDO Internship 2025
 - Barca
-- Gyanesh Kumar
-- Zim vs Ire
 - Tesla
 - Delta airlines plane crash
+- Sunita Williams
 - Delhi CM News
-- Faecal bacteria
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
 - Vivo V50
-- News Today
 - KIIT
+- News today
 - Chhaava Box Office collection
-- Narendra Modi
 - Quality Power IPO GMP
+- Javier Milei
+- New Delhi Railway Station stampede
+- New Delhi railway station
 - epgview
 - best epg
 - epg for iptv
