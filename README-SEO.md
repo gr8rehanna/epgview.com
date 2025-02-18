@@ -36,10 +36,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - All-Star Game
 - Duke basketball
 - Ryan Reynolds
+- Lil Wayne
 - Pope Francis
+- USA vs Sweden
 - Aubrey Plaza husband
-- George Washington
 - Brian Laundrie
+- George Washington
+- 4 Nations
 - TGL
 - FAA
 - Paquita del Barrio
@@ -47,16 +50,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Richie Incognito
 - Grok 3
 - Karl-Anthony Towns
-- Baylor basketball
-- Sabrina Carpenter
-- White Lotus Season 3
 - Leeds United
+- Love Island
 - Barcelona vs Rayo Vallecano
 - Community Fibre
-- Love Island: All Stars
-- Love Island
 - Gabby Petito
-- UK driving license petition
 - Toronto plane crash
 - Juventus
 - Emmerdale
@@ -68,28 +66,30 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tiffany EastEnders
 - Oscars 2025
 - Michael Wimmer
+- Michael O'Sullivan jockey
 - Conclave
 - Tottenham vs Man United
+- Liverpool vs Wolves
 - Barcelona vs Rayo Vallecano
+- Barca
 - Grok 3
+- Gyanesh Kumar
+- Gyanesh Kumar Election Commissioner
 - Earthquake in Delhi
 - Earthquake
 - Capitals vs Royal Challengers
 - Vivo V50
-- News Today
 - KIIT
+- News Today
 - Chhaava Box Office Collection
-- Live News
+- Narendra Modi
+- LIVE News
 - Antony
-- BYD Sealion 7 launch
 - The White Lotus
 - Javier Milei
+- Today News
 - Quality Power IPO GMP
 - New Delhi Railway Station stampede
-- New Delhi railway station
-- Fire
-- Chhaava Box Office Collection Day
-- Pakistan vs New Zealand
 - epgview
 - best epg
 - epg for iptv
