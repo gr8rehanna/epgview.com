@@ -52,8 +52,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - NBA All-Star Game
 - Championship
 - Everton new stadium
-- Leeds United
-- Delta plane crashes Toronto
 - Love Island
 - Barcelona vs Rayo Vallecano
 - Community Fibre
@@ -70,26 +68,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Inter Milan
 - Michael O'Sullivan jockey
 - Daytona 500
+- Conclave
+- Tottenham vs Man United
 - Grok 3
 - Barcelona
 - Gyanesh Kumar Election Commissioner
-- Barca
+- GG vs MI
 - DRDO Internship 2025
+- Barca
 - Gyanesh Kumar
 - Tesla
 - Delta airlines plane crash
 - Delhi CM News
+- Faecal bacteria
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
+- Vivo V50
 - News Today
 - KIIT
 - Chhaava Box Office collection
+- Narendra Modi
 - Quality Power IPO GMP
 - Javier Milei
-- Aprilia Tuono 457
-- New Delhi Railway Station stampede
-- New Delhi railway station
-- Fire
 - epgview
 - best epg
 - epg for iptv
