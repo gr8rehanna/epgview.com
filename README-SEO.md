@@ -35,10 +35,9 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Four Nations Face-Off
 - SPS Technologies
 - Tee Higgins
-- Cooper Flagg
 - Delta plane crash
+- Paquita la del Barrio
 - Barcelona
-- Gabby Petito
 - 4 Nations Face-Off
 - Usa hockey
 - Are banks closed on Presidents Day
@@ -46,16 +45,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Duke basketball
 - Lil Wayne
 - Pope Francis
+- Brian Laundrie
 - George Washington
 - Paquita del Barrio
 - FAA
-- Paquita
-- Championship
-- Everton new stadium
-- Premium Bonds prize fund rate cut
-- Espionage
+- State Department Taiwan independence
+- Bayern vs Celtic
 - AC Milan
-- Doctor Who
+- Championship
+- Espionage
+- Premium Bonds prize fund rate cut
+- Everton new stadium
+- Rick Buckler
+- Doctor who
+- Novak Djokovic
 - Grok 3
 - Toronto plane crash
 - Love Island
@@ -67,13 +70,10 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Gabby Petito
 - Barcelona
 - Leeds
-- Pope Francis
-- Patrick Schwarzenegger
-- Tiffany EastEnders
 - Chhatrapati Shivaji Maharaj Jayanti
 - Realme P3 Pro
-- Giants vs Indians
 - Grok 3
+- Giants vs Indians
 - Gyanesh Kumar Election Commissioner
 - DRDO Internship 2025
 - Barca
@@ -84,11 +84,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delhi CM News
 - Faecal bacteria
 - Earthquake in Delhi
-- Capitals vs Royal Challengers
-- Vivo V50
 - News today
+- KIIT
 - Chhaava Box Office collection
 - Quality Power IPO GMP
+- Javier Milei
 - New Delhi Railway Station stampede
 - epgview
 - best epg
