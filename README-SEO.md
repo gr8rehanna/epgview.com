@@ -33,26 +33,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Delta plane crash
 - Paquita la del Barrio
 - Barcelona
+- All-Star Game
 - Ryan Reynolds
 - Pope Francis
 - Canada vs Finland
 - Barca
+- Aubrey Plaza husband
 - George Washington
 - Richie Incognito
 - State Department Taiwan independence
-- FAA
 - TGL
+- FAA
 - Paquita del Barrio
 - Karl-Anthony Towns
+- Brian Laundrie
 - Sabrina Carpenter
 - White Lotus season 3
-- Is Presidents Day a federal holiday
-- Presidents Day
-- Paul McCartney
-- NASCAR
+- NBA All-Star Game
 - Leeds United
-- Community Fibre
 - Barcelona vs Rayo Vallecano
+- Community Fibre
 - Love Island: All Stars
 - Love Island
 - Gabby Petito
@@ -60,6 +60,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Toronto plane crash
 - Juventus
 - Emmerdale
+- Antony
 - Leeds
 - Pope Francis
 - Patrick Schwarzenegger
@@ -68,10 +69,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Tiffany EastEnders
 - Oscars 2025
 - Michael Wimmer
-- Daytona 500
 - Conclave
 - Barcelona vs Rayo Vallecano
-- Triumph Speed T4 new colours
 - Earthquake in Delhi
 - Earthquake
 - Capitals vs Royal Challengers
@@ -83,13 +82,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Antony
 - BYD Sealion 7 launch
 - The White Lotus
-- Aprilia Tuono 457
 - Javier Milei
+- IPL 2025 schedule
 - New Delhi Railway Station stampede
 - New Delhi railway station
-- Delhi News
 - Fire
 - Chhaava Box Office Collection Day
+- Pakistan vs New Zealand
+- Valentine's Day
 - epgview
 - best epg
 - epg for iptv
