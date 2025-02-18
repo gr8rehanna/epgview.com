@@ -31,31 +31,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - NHL
+- AC Milan
+- Four Nations Face-Off
 - SPS Technologies
 - Tee Higgins
+- Cooper Flagg
 - Delta plane crash
-- Paquita la del Barrio
 - Barcelona
 - Gabby Petito
-- All-Star Game
 - 4 Nations Face-Off
 - Usa hockey
-- Grok-3
+- Are banks closed on Presidents Day
+- Grok 3
 - Duke basketball
 - Lil Wayne
 - Pope Francis
 - George Washington
 - Paquita del Barrio
 - FAA
-- State Department Taiwan independence
-- Karl-Anthony Towns
-- White Lotus Season 3
+- Paquita
 - Championship
 - Everton new stadium
-- Espionage
 - Premium Bonds prize fund rate cut
+- Espionage
+- AC Milan
 - Doctor Who
-- Post Malone
 - Grok 3
 - Toronto plane crash
 - Love Island
@@ -70,26 +70,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Pope Francis
 - Patrick Schwarzenegger
 - Tiffany EastEnders
-- Grok 3
+- Chhatrapati Shivaji Maharaj Jayanti
+- Realme P3 Pro
 - Giants vs Indians
+- Grok 3
 - Gyanesh Kumar Election Commissioner
-- Barcelona
 - DRDO Internship 2025
 - Barca
 - Tesla
 - Delta airlines plane crash
 - Sunita Williams
+- Rock
 - Delhi CM News
+- Faecal bacteria
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
 - Vivo V50
-- KIIT
 - News today
 - Chhaava Box Office collection
 - Quality Power IPO GMP
-- Javier Milei
 - New Delhi Railway Station stampede
-- New Delhi railway station
 - epgview
 - best epg
 - epg for iptv
