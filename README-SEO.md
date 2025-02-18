@@ -35,28 +35,26 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona
 - All-Star Game
 - Ryan Reynolds
-- Pope Francis
 - Duke basketball
-- Canada vs Finland
-- Barca
+- Pope Francis
 - Aubrey Plaza husband
+- Barca
 - George Washington
-- TGL
-- State Department Taiwan independence
-- FAA
-- Richie Incognito
-- Brian Laundrie
-- Paquita del Barrio
 - USA vs Sweden
+- TGL
+- FAA
+- State Department Taiwan independence
+- Brian Laundrie
+- Richie Incognito
+- Paquita del Barrio
 - Andy Samberg
 - Karl-Anthony Towns
+- Sabrina Carpenter
 - Leeds United
+- Love Island
 - Barcelona vs Rayo Vallecano
 - Community Fibre
-- Love Island: All Stars
-- Love Island
 - Gabby Petito
-- UK driving license petition
 - Toronto plane crash
 - Juventus
 - Emmerdale
@@ -70,6 +68,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Oscars 2025
 - Michael Wimmer
 - Conclave
+- Tottenham vs Man United
+- Liverpool vs Wolves
 - Barcelona vs Rayo Vallecano
 - Grok 3
 - Earthquake in Delhi
@@ -78,7 +78,7 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Vivo V50
 - News today
 - KIIT
-- Chhaava box office collection
+- Chhaava Box Office Collection
 - Narendra Modi
 - Antony
 - BYD Sealion 7 launch
