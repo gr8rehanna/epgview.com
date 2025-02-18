@@ -34,27 +34,28 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Paquita la del Barrio
 - Barcelona
 - All-Star Game
-- Usa hockey
+- USA hockey
 - Duke basketball
 - Ryan Reynolds
 - Lil Wayne
-- Pope Francis
 - Grok 3
+- Pope Francis
 - Aubrey Plaza husband
 - Brian Laundrie
-- George Washington
 - 4 Nations
+- George Washington
 - FAA
 - Paquita del Barrio
 - State Department Taiwan independence
 - Karl-Anthony Towns
-- White Lotus season 3
+- White Lotus Season 3
 - Sabrina Carpenter
 - Championship
 - Everton new stadium
-- Leeds United
 - Love Island
+- Leeds United vs Sunderland
 - Delta plane crashes Toronto
+- Leeds United
 - Barcelona vs Rayo Vallecano
 - Community Fibre
 - Emmerdale spoilers
@@ -62,18 +63,20 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Leeds
 - Pope Francis
 - Patrick Schwarzenegger
-- Ryan Reynolds
 - Tiffany EastEnders
+- Ryan Reynolds
 - Oscars 2025
 - Michael Wimmer
 - Galatasaray
 - Inter Milan
 - Michael O'Sullivan jockey
-- Daytona 500
 - Barcelona vs Rayo Vallecano
 - Grok 3
 - Gyanesh Kumar Election Commissioner
 - Barca
+- Gyanesh Kumar
+- DRDO Internship 2025
+- Tesla
 - Delta airlines plane crash
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
@@ -82,14 +85,11 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - KIIT
 - Chhaava Box Office collection
 - Narendra Modi
-- Live news
 - Quality Power IPO GMP
 - Javier Milei
 - Aprilia Tuono 457
-- IPL 2025 schedule
 - New Delhi Railway Station stampede
 - New Delhi railway station
-- Fire
 - epgview
 - best epg
 - epg for iptv
