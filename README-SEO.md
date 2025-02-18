@@ -30,29 +30,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- Delta plane crash
+- 4 Nations Face-Off
+- Four Nations Face-Off
+- SPS Technologies
+- Delta Plane Crash
+- Paquita la del Barrio
 - Barcelona
 - Gabby Petito
 - All-Star Game
-- USA hockey
+- Usa hockey
+- Grok-3
 - Duke basketball
-- Grok 3
 - Ryan Reynolds
 - Lil Wayne
 - Pope Francis
 - 4 Nations
 - George Washington
-- FAA
 - Paquita del Barrio
-- Paquita
+- FAA
 - State Department Taiwan independence
-- Jason Momoa
 - Karl-Anthony Towns
-- White Lotus Season 3
-- NBA All-Star Game
 - Championship
 - Everton new stadium
+- Espionage
+- Grok 3
+- Doctor Who
+- Toronto plane crash
 - Love Island
+- Leeds United vs Sunderland
+- Leeds United
 - Barcelona vs Rayo Vallecano
 - Community Fibre
 - Emmerdale spoilers
@@ -64,19 +70,14 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Ryan Reynolds
 - Oscars 2025
 - Michael Wimmer
-- Galatasaray
-- Inter Milan
-- Michael O'Sullivan jockey
-- Daytona 500
-- Conclave
-- Tottenham vs Man United
 - Grok 3
+- GG vs MI
 - Barcelona
 - Gyanesh Kumar Election Commissioner
-- GG vs MI
 - DRDO Internship 2025
 - Barca
 - Gyanesh Kumar
+- Zim vs Ire
 - Tesla
 - Delta airlines plane crash
 - Delhi CM News
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chhaava Box Office collection
 - Narendra Modi
 - Quality Power IPO GMP
-- Javier Milei
 - epgview
 - best epg
 - epg for iptv
