@@ -49,19 +49,19 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - State Department Taiwan independence
 - Karl-Anthony Towns
 - White Lotus season 3
-- Paul Simon
+- Sabrina Carpenter
+- Championship
 - Everton new stadium
 - Leeds United
 - Love Island
 - Delta plane crashes Toronto
 - Barcelona vs Rayo Vallecano
 - Community Fibre
-- Gabby Petito
 - Emmerdale spoilers
+- Gabby Petito
 - Leeds
 - Pope Francis
 - Patrick Schwarzenegger
-- Pam St Clement
 - Ryan Reynolds
 - Tiffany EastEnders
 - Oscars 2025
@@ -73,15 +73,16 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Barcelona vs Rayo Vallecano
 - Grok 3
 - Gyanesh Kumar Election Commissioner
-- Audi RS Q8
+- Barca
+- Delta airlines plane crash
 - Earthquake in Delhi
 - Capitals vs Royal Challengers
 - Vivo V50
-- News today
+- News Today
 - KIIT
-- Chhaava box office collection
+- Chhaava Box Office collection
 - Narendra Modi
-- GBS
+- Live news
 - Quality Power IPO GMP
 - Javier Milei
 - Aprilia Tuono 457
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - New Delhi Railway Station stampede
 - New Delhi railway station
 - Fire
-- Chhaava Box Office Collection Day
 - epgview
 - best epg
 - epg for iptv
