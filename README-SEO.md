@@ -31,31 +31,31 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Asap Rocky
-- 4 Nations Face-Off
 - Wordle hint
 - AC Milan
 - Bayern vs Celtic
+- NHL
 - Marvel Rivals
 - USPS Postmaster General Louis DeJoy
-- BYU Basketball
 - Guy Pearce
-- UConn basketball
 - Quinn Hughes
 - Kash Patel confirmation
 - Intel stock
 - Justin Turner
 - Bibas family
 - Southwest Airlines layoffs
+- UConn basketball
 - Wisconsin basketball
 - Mitch McConnell
-- Novak Djokovic
 - IVF
-- MOBO Awards 2025
+- Novak Djokovic
+- Leonard Peltier
 - Asap Rocky
+- MOBO Awards 2025
 - As Ever
 - Bayern vs Celtic
 - Rick Buckler
-- Espionage
+- British couple detained in Iran
 - AC Milan
 - F1
 - Championship
@@ -64,22 +64,22 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Wordle hint
 - Air fryers
 - Everton new stadium
-- Doctor Who
 - Benfica vs Monaco
+- Doctor Who
 - Novak Djokovic
 - Grok 3
 - Toronto plane crash
 - Love Island
+- Champions Trophy
+- Shivaji Maharaj
 - ICC Champions Trophy
-- PAK vs NZ
 - Bayern vs Celtic
 - IND vs BAN
-- AC Milan
 - Babar Azam
 - Chatori Rajani
-- Chhatrapati Shivaji Maharaj Jayanti
+- AC Milan
 - GG vs MI
-- Grok 3
+- Grok-3
 - DRDO Internship 2025
 - Gyanesh Kumar Election Commissioner
 - Sunita Williams
