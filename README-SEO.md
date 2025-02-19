@@ -31,27 +31,27 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 ## Trends Today.
 
 - Asap Rocky
-- AC Milan
 - 4 Nations Face-Off
+- AC Milan
 - Bayern vs Celtic
 - Michigan State basketball
 - Marvel Rivals
-- SPS Technologies
+- UConn basketball
 - USPS Postmaster General Louis DeJoy
 - Guy Pearce
+- SPS Technologies
 - Kash Patel confirmation
 - Intel stock
 - Justin Turner
 - Southwest Airlines layoffs
-- UConn basketball
-- Mitch McConnell
 - Bibas family
+- Mitch McConnell
+- Wisconsin basketball
 - SNL 50th anniversary Saturday Night
-- Tee Higgins
-- Leonard Peltier
 - JFK Library
-- MOBO Awards 2025
+- Leonard Peltier
 - Asap Rocky
+- MOBO Awards 2025
 - As Ever
 - Bayern vs Celtic
 - Rick Buckler
@@ -72,21 +72,21 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Toronto plane crash
 - Bayern vs Celtic
 - AC Milan
+- Chhatrapati Shivaji Maharaj Jayanti
 - GG vs MI
 - Grok 3
-- Shivaji Jayanti
 - DRDO Internship 2025
 - Gyanesh Kumar Election Commissioner
-- Chhaava movie Box Office Collection Day
 - Novak Djokovic
-- Tesla
+- Chhaava movie Box Office Collection Day
 - Sunita Williams
+- Tesla
 - Gyanesh Kumar
-- Delta airlines plane crash
-- Delhi earthquakes
-- Delhi CM News
+- Delta Airlines plane crash
+- Delhi CM news
 - Faecal bacteria
 - Earthquake in Delhi
+- KIIT
 - Quality Power IPO GMP
 - The White Lotus
 - JPMorgan Chase
