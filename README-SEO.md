@@ -33,23 +33,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Asap Rocky
 - 4 Nations Face-Off
 - AC Milan
+- Wordle hint
 - Bayern vs Celtic
-- Michigan State basketball
 - Marvel Rivals
 - USPS Postmaster General Louis DeJoy
 - UConn basketball
-- Guy Pearce
-- SPS Technologies
+- BYU Basketball
+- Michigan State basketball
 - Kash Patel confirmation
 - Intel stock
 - Justin Turner
-- Southwest Airlines layoffs
 - Bibas family
-- BYU Basketball
+- Southwest Airlines layoffs
 - Mitch McConnell
 - Wisconsin basketball
+- Novak Djokovic
 - IVF
-- SNL 50th anniversary Saturday Night
+- Leonard Peltier
 - Asap Rocky
 - MOBO Awards 2025
 - As Ever
@@ -69,11 +69,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Benfica vs Monaco
 - Novak Djokovic
 - Grok 3
-- Atalanta vs Club Brugge
+- Toronto plane crash
 - Bayern vs Celtic
 - PAK vs NZ
 - AC Milan
-- Shivaji Jayanti
+- Chatori Rajani
+- Chhatrapati Shivaji Maharaj Jayanti
 - GG vs MI
 - Grok 3
 - DRDO Internship 2025
@@ -83,13 +84,12 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chhaava movie Box Office Collection Day
 - Tesla
 - Gyanesh Kumar
-- Delta Airlines plane crash
+- Delta airlines plane crash
+- Delhi CM news
 - Delhi earthquakes
-- Delhi CM News
 - Faecal bacteria
 - Earthquake in Delhi
 - KIIT
-- Quality Power IPO GMP
 - epgview
 - best epg
 - epg for iptv
