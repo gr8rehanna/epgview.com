@@ -39,25 +39,24 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - USPS Postmaster General Louis DeJoy
 - BYU Basketball
 - Guy Pearce
+- UConn basketball
 - Quinn Hughes
 - Kash Patel confirmation
 - Intel stock
 - Justin Turner
 - Bibas family
 - Southwest Airlines layoffs
-- UConn basketball
 - Wisconsin basketball
 - Mitch McConnell
 - Novak Djokovic
 - IVF
-- Asap Rocky
 - MOBO Awards 2025
+- Asap Rocky
 - As Ever
 - Bayern vs Celtic
 - Rick Buckler
 - Espionage
 - AC Milan
-- Premium Bonds prize fund rate cut
 - F1
 - Championship
 - Kate Hudson
@@ -70,11 +69,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Novak Djokovic
 - Grok 3
 - Toronto plane crash
+- Love Island
 - ICC Champions Trophy
 - PAK vs NZ
 - Bayern vs Celtic
 - IND vs BAN
 - AC Milan
+- Babar Azam
 - Chatori Rajani
 - Chhatrapati Shivaji Maharaj Jayanti
 - GG vs MI
@@ -82,14 +83,13 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - DRDO Internship 2025
 - Gyanesh Kumar Election Commissioner
 - Sunita Williams
+- KIIT) University
 - Novak Djokovic
 - Chhaava movie Box Office Collection Day
 - Tesla
-- Gyanesh Kumar
 - Delhi CM News
-- Delta airlines plane crash
-- Faecal bacteria
-- Earthquake in Delhi
+- Gyanesh Kumar
+- Delta Airlines plane crash
 - epgview
 - best epg
 - epg for iptv
