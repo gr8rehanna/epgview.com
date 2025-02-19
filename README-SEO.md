@@ -33,46 +33,45 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - AC Milan
 - NHL
 - Bayern vs Celtic
+- Asap Rocky
 - SPS Technologies
+- Kash Patel confirmation
 - Intel stock
 - Mitch McConnell
 - Justin Turner
-- Novak Djokovic
 - Southwest Airlines layoffs
-- Guy Pearce
+- Novak Djokovic
+- Bibas family
 - Tee Higgins
 - Delta plane crash
 - Paquita la del Barrio
 - Gabby Petito
-- All-Star Game
 - 4 Nations Face-Off
 - Usa hockey
 - Grok 3
-- Duke basketball
 - Are banks closed on Presidents Day
 - Bayern vs Celtic
 - Rick Buckler
 - AC Milan
 - Espionage
-- Championship
 - Premium Bonds prize fund rate cut
-- Kate Hudson
+- Championship
 - F1
-- Everton new stadium
-- Doctor Who
+- Kate Hudson
 - NASA asteroid hitting Earth 2024
+- Everton new stadium
 - Air fryers
+- Doctor Who
+- Benfica vs Monaco
 - Novak Djokovic
 - Grok 3
-- Benfica vs Monaco
-- Atalanta vs Club Brugge
 - Toronto plane crash
 - Love Island
 - Leeds United
 - Leeds United vs Sunderland
+- Barcelona vs Rayo Vallecano
 - Chhatrapati Shivaji Maharaj Jayanti
 - Bayern vs Celtic
-- Realme P3 Pro
 - Grok 3
 - Giants vs Indians
 - Gyanesh Kumar Election Commissioner
@@ -80,9 +79,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - KIIT University
 - Gyanesh Kumar
 - Tesla
-- Delta airlines plane crash
 - Sunita Williams
-- Rock
+- Delta airlines plane crash
 - Delhi CM News
 - Faecal bacteria
 - Earthquake in Delhi
@@ -90,6 +88,8 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chhaava Box office collection
 - Quality Power IPO GMP
 - Javier Milei
+- JPMorgan Chase
+- New Delhi Railway Station stampede
 - epgview
 - best epg
 - epg for iptv
