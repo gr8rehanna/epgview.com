@@ -32,51 +32,52 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 - AC Milan
 - NHL
-- Bayern Munich
+- Bayern vs Celtic
 - SPS Technologies
 - Intel stock
+- Mitch McConnell
 - Justin Turner
 - Novak Djokovic
 - Southwest Airlines layoffs
+- Guy Pearce
 - Tee Higgins
 - Delta plane crash
 - Paquita la del Barrio
+- Gabby Petito
 - All-Star Game
 - 4 Nations Face-Off
 - Usa hockey
-- Grok-3
-- Are banks closed on Presidents Day
+- Grok 3
 - Duke basketball
-- Lil Wayne
-- Pope Francis
-- Brian Laundrie
+- Are banks closed on Presidents Day
 - Bayern vs Celtic
 - Rick Buckler
 - AC Milan
-- Championship
-- Kate Hudson
 - Espionage
+- Championship
 - Premium Bonds prize fund rate cut
+- Kate Hudson
 - F1
 - Everton new stadium
 - Doctor Who
+- NASA asteroid hitting Earth 2024
+- Air fryers
 - Novak Djokovic
 - Grok 3
-- NASA asteroid hitting Earth 2024
-- Post Malone
-- Air fryers
+- Benfica vs Monaco
+- Atalanta vs Club Brugge
 - Toronto plane crash
 - Love Island
 - Leeds United
 - Leeds United vs Sunderland
-- Barcelona vs Rayo Vallecano
 - Chhatrapati Shivaji Maharaj Jayanti
 - Bayern vs Celtic
+- Realme P3 Pro
 - Grok 3
 - Giants vs Indians
-- Barcelona
 - Gyanesh Kumar Election Commissioner
 - DRDO Internship 2025
+- KIIT University
 - Gyanesh Kumar
 - Tesla
 - Delta airlines plane crash
@@ -89,7 +90,6 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Chhaava Box office collection
 - Quality Power IPO GMP
 - Javier Milei
-- JPMorgan Chase
 - epgview
 - best epg
 - epg for iptv
