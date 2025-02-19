@@ -30,34 +30,35 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 
 ## Trends Today.
 
-- AC Milan
-- NHL
 - Asap Rocky
+- AC Milan
+- 4 Nations Face-Off
 - Bayern vs Celtic
 - Marvel Rivals
+- Michigan State basketball
 - SPS Technologies
-- Kash Patel confirmation
-- Guy Pearce
-- Intel stock
 - USPS Postmaster General Louis DeJoy
-- Mitch McConnell
+- Guy Pearce
+- Kash Patel confirmation
+- Intel stock
 - Justin Turner
+- Mitch McConnell
 - Southwest Airlines layoffs
+- Novak Djokovic
 - Bibas family
+- UConn basketball
 - Tee Higgins
 - Delta plane crash
 - Paquita la del Barrio
-- Gabby Petito
-- 4 Nations Face-Off
-- Usa hockey
 - MOBO Awards 2025
+- As Ever
 - Bayern vs Celtic
 - Rick Buckler
 - Espionage
 - AC Milan
 - Premium Bonds prize fund rate cut
-- Championship
 - F1
+- Championship
 - Kate Hudson
 - NASA asteroid hitting Earth 2024
 - Air fryers
@@ -69,24 +70,23 @@ Global EPG Provider, Affordable and Simple. 100+ Countries & 27K+ Channels Guide
 - Atalanta vs Club Brugge
 - Toronto plane crash
 - Love Island
-- Leeds United
-- Chhatrapati Shivaji Maharaj Jayanti
 - Bayern vs Celtic
-- Grok 3
 - GG vs MI
+- Grok 3
 - Gyanesh Kumar Election Commissioner
+- Shivaji Jayanti
+- Novak Djokovic
 - Tesla
-- Gyanesh Kumar
 - Sunita Williams
+- Gyanesh Kumar
 - Delta airlines plane crash
 - Delhi earthquakes
 - Delhi CM News
 - Faecal bacteria
 - Earthquake in Delhi
-- News today
-- Chhaava Box office collection
+- Chhaava movie Box Office Collection Day
 - Quality Power IPO GMP
-- Javier Milei
+- The White Lotus
 - JPMorgan Chase
 - New Delhi Railway Station stampede
 - New Delhi railway station
